@@ -6,7 +6,7 @@ The Sims 4 (2014) [Ru] (1.25.136.1020/dlc) Repack xatab [Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155050.jpgsave_picture_155050.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hebi Katana - Hebi Katana (2020) [MP3|320 Kbps] <Doom Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155051.jpgsave_picture_155051.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B28DEC36BE12A2E7196F43357F1061FA2B074927
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155052.jpgsave_picture_155052.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C8DA49F245224EF08BA12380812BB2F23F9977B7
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155053.jpgsave_picture_155053.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:9259550EF3D6FBD25242B69A7C6F1D4BB326C45E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155054.jpgsave_picture_155054.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Draconian - 8 Albums (2002-2020) [FLAC|Lossless|image + .cue] <Gothic Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155055.jpgsave_picture_155055.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:A683ED36808C3C34636CA57810689BE20633F3AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155056.jpgsave_picture_155056.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:B30C97E55B424A6F6E9E7D000EBDCB724F180005
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155057.jpgsave_picture_155057.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Arturia Analog Lab V v5.4.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155059.jpgsave_picture_155059.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ GarageSale 8 v8.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155060.jpgsave_picture_155060.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:B026BFCEB7CDC3C8651E881C5857CDCA30547965
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155061.jpgsave_picture_155061.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:FABAFBDEFAFA35CCD907129A532822E52809D81E
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155062.jpgsave_picture_155062.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Sonuscore - The Orchestra Complete v1.1 [Kontakt, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155063.jpgsave_picture_155063.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:FEFCCA03273F8283C24B63A42ACF726DFBEA08F7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155064.jpgsave_picture_155064.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:BE2989629D4804185F7458377C5A56B5CA519BD2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155065.jpgsave_picture_155065.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:652A7BF2685ED6AA8F7D7D04FC92E50450D13D86
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155066.jpgsave_picture_155066.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:B6DB547E0D91339BDF4476D4246E40BE97483DA9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155067.jpgsave_picture_155067.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Sundered (2017) [Ru/Multi] (911) Repack xatab [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155068.jpgsave_picture_155068.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:7508F7EDAAB26634F68826B1AF51D4B617EE0CCE
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155069.jpgsave_picture_155069.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Chris Antony - Cause and Effect (2020) [MP3|320 Kbps] <Progressive Metal, Heavy 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155070.jpgsave_picture_155070.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:880652EAC2A6225B03B37D13B5D50DA1F30DA3FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155071.jpgsave_picture_155071.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 21.12.16 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155072.jpgsave_picture_155072.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:0A7C105C24D62843860668FF3DA040BB9C55BEE0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155073.jpgsave_picture_155073.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ George Michael & Wham! - Last Christmas (2019) WEB-DL [VP9/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155074.jpgsave_picture_155074.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:5F9D81CA5ABFAD45B132959531D7C9782BC94563
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155075.jpgsave_picture_155075.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ UI Browser 3.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155076.jpgsave_picture_155076.jpg" />
 </div>
 
 

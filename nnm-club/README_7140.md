@@ -6,7 +6,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244584.jpgsave_picture_244584.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ TUNIC v.1.0.t1483.b37 (2022) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244585.jpgsave_picture_244585.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Screens 4 v4.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244586.jpgsave_picture_244586.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sketch 83.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244587.jpgsave_picture_244587.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Шансон 2020 Музыкальный хит-парад [часть.01] 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244588.jpgsave_picture_244588.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:24C63F31F716508AE1760E8B4CF287FC8895091A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244589.jpgsave_picture_244589.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:3EA5C6B9028C6B5736FAC2CFB6CF9265F30CC482
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244590.jpgsave_picture_244590.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:DB01014FBA146720BDB7428DCDACB515E5535898
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244591.jpgsave_picture_244591.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:55BE0796D77EC155A994CA1275AF362B7157EF80
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244592.jpgsave_picture_244592.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Legion Of The Damned - The Poison Chalice (2023) EP [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244594.jpgsave_picture_244594.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:33EA5CE8E17FFC7DED806855506FEF9DEFB8A401
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244595.jpgsave_picture_244595.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Windows 11 Manager 1.2.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244596.jpgsave_picture_244596.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Last Union - Twelve (2019) Japan [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244597.jpgsave_picture_244597.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Avi Rosenfeld & XIS & JJ Sprondel - Rock Rock Baby (2022) [MP3|320 Kbps] <Classi
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244598.jpgsave_picture_244598.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Desolate Dreams - Inevitability (2016) [MP3|320 Kbps] <Instrumental Progressive 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244599.jpgsave_picture_244599.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:0DC2D74150364362BE80352D197C1E684E831C87
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244600.jpgsave_picture_244600.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:0A52E4DD306CB0DFB8FDDB785A719F1FDF11D362
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244601.jpgsave_picture_244601.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Broken Age v.3a (2014) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244602.jpgsave_picture_244602.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Platens - Of Poetry And Silent Mastery (2021) Japanese Edition [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244603.jpgsave_picture_244603.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:17E40792C7F898A8E41E143A0267B511B7E21FFD
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244604.jpgsave_picture_244604.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Henry Threadgill - Double Up, Plays Double Up Plus (2018) [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244606.jpgsave_picture_244606.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Gravecarver - Spectral Carnage (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244607.jpgsave_picture_244607.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VA - Ibiza Sunset Chill Vol.3 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244608.jpgsave_picture_244608.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Charlie Parker - Five Classic Albums (1949 - 1954) 2CD, 2020, Avid Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244609.jpgsave_picture_244609.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Driver Easy Pro 5.7.2.21892 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244610.jpgsave_picture_244610.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ The Raw Collective - The Game (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244611.jpgsave_picture_244611.jpg" />
 </div>
 
 

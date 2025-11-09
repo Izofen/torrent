@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25361.jpgsave_picture_25361.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B2E7535D65F064191B7342E4EEA3367BD1AF2EBA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25362.jpgsave_picture_25362.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B2E7535D65F064191B7342E4EEA3367BD1AF2EBA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25363.jpgsave_picture_25363.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:914AB7DC9C3C7117B0765D924B6383DEC2CCA7BE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25364.jpgsave_picture_25364.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0731AB2C28E8567EA17F947ED20A786C3AF495F2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25365.jpgsave_picture_25365.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Warcraft I + II: Remastered (2024) [Ru/Multi] (1.0.0.2198/1.0.1.2242) Repack Dec
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25366.jpgsave_picture_25366.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6FA6CCB043CD5F2F9CF67920B88E3E4CB841893A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25367.jpgsave_picture_25367.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ v2rayN 7.9.3 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25368.jpgsave_picture_25368.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - The Beatles' Covers (De-Noised) (2025) Remaster SMRP [MP3|320 Kbps] <Classi
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25369.jpgsave_picture_25369.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Malwarebytes AdwCleaner 8.5.0.595 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25370.jpgsave_picture_25370.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ IObit Driver Booster Pro 12.3.0.549 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25371.jpgsave_picture_25371.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Udemy, Ag Motion Designs | Cinema 4D & Redshift: Looping Animation Mastery (2025
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25372.jpgsave_picture_25372.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 811.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25373.jpgsave_picture_25373.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:56FFC9067858B0B34C0A3A1B06F74A620866EF61
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25374.jpgsave_picture_25374.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:378132253A777603B3D82263D2ECD8516AFFC266
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25375.jpgsave_picture_25375.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Isla de la Muerte (2025) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25376.jpgsave_picture_25376.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:870B7B711C9B8254CD3EC895D0FD39CE1C7BD88A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25377.jpgsave_picture_25377.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:D1F28FDCB1189DFF238C33E4F589EF8EF93CB76D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25378.jpgsave_picture_25378.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:B6D214CEBCD213626021D86859B0C1C7316A4136
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25379.jpgsave_picture_25379.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Logic Circuit Simulator Pro / Симулятор Логической Схемы
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25380.jpgsave_picture_25380.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Split Fiction (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25381.jpgsave_picture_25381.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:0C3A39ACD51718F0D80BB94B799BD39BB59FE26B
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25382.jpgsave_picture_25382.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:85B0BCAE5910A603576616B0DC8CE7C6488A9EE9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25383.jpgsave_picture_25383.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:F77E6AA8D04D888D89966C878297988A5BC0C9B5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25384.jpgsave_picture_25384.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka V | DanMachi V | В по
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25385.jpgsave_picture_25385.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:791C2868C0789F388DCDC418A82E99A659756B51
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25386.jpgsave_picture_25386.jpg" />
 </div>
 
 

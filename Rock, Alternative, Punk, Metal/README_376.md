@@ -6,7 +6,7 @@ TORF - Романтика не в моде (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225782.jpgsave_picture_225782.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dream Theater - Systematic Chaos (2007) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225825.jpgsave_picture_225825.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Aerolith - Megalorama Part II (2023) [MP3|320 Kbps] <Progressive Rock, Space Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225869.jpgsave_picture_225869.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Meat Puppets - Santa Monica (1988) live, Remaster, 2023, [MP3|320 Kbps] <Pop Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225883.jpgsave_picture_225883.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Jonathan Cain - Back To The Innocence (1995) Japanese Edition [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225892.jpgsave_picture_225892.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Will The Thrill - Take It Sleazy (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225899.jpgsave_picture_225899.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ G519 - Blue Atomic Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225906.jpgsave_picture_225906.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Marc Atkinson - For A Broken Dime (2023) [FLAC|Lossless|WEB-DL|tracks] <Acoustic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225915.jpgsave_picture_225915.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Protean Shield - Protean Shield (2023) [MP3|320 Kbps] <Epic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225927.jpgsave_picture_225927.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Cavalera - Bestial Devastation (2023) EP [FLAC|Lossless|image + .cue] <Thrash/De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225947.jpgsave_picture_225947.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Unscarred - Vacant Skies (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226049.jpgsave_picture_226049.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Recreating Eden - Tome I: Awaken (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226067.jpgsave_picture_226067.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Phantom Witch - Forced to Worship (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226075.jpgsave_picture_226075.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Doomdozer - Live in Industrial Plate (Live) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226086.jpgsave_picture_226086.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sisyphean - Illusions of Eternity (2017) [FLAC|Lossless|image + .cue] <Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226093.jpgsave_picture_226093.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Hey Colossus - RRR (2011) 2CD, Expanded Edition, 2018, Riot Season Records [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226101.jpgsave_picture_226101.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Perracide - Underdog (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226108.jpgsave_picture_226108.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Astral Serpent - Mirages in Izar (2023) [FLAC|Lossless|WEB-DL|tracks] <Raw B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226114.jpgsave_picture_226114.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Sisyphean - Colours of Faith (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226121.jpgsave_picture_226121.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Mudness - Mudness (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226140.jpgsave_picture_226140.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Torture Rack - Primeval Onslaught (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226148.jpgsave_picture_226148.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dogs Of Neptune - One Taste Of Blood (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226444.jpgsave_picture_226444.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Shape of Chaos - The Shape of Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226460.jpgsave_picture_226460.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Eternal Rot - Moribound (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226468.jpgsave_picture_226468.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Dead Fields Of Woolwich - Dead Fields Of Woolwich (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226475.jpgsave_picture_226475.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Anna Fiori - De la Tierra (Un encuentro semiacústico) (2019) EP [MP3|320 Kbps] 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226749.jpgsave_picture_226749.jpg" />
 </div>
 
 

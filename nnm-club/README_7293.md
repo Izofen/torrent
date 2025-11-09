@@ -6,7 +6,7 @@ VA - Dance Covers 2022 - The Best Party Hits Only! (2022) [MP3|320 Kbps] <Club, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249655.jpgsave_picture_249655.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ zCommander - File Manager for Mac 6.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249656.jpgsave_picture_249656.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Marc Broussard - S.O.S. 4_ Blues For Your Soul (2023) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249657.jpgsave_picture_249657.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:276D98A0020BACFA678D37AD4C64EBA29A8B47DC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249658.jpgsave_picture_249658.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:7C50DCCC88C2C0246D22A0DCDB0292B3BD6E2056
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249659.jpgsave_picture_249659.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Wing Helper 1.50 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249660.jpgsave_picture_249660.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ IP Scanner Pro 4.06 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249661.jpgsave_picture_249661.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:E0322F42AE03F3A067F7768D397710C9B5D9FA64
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249662.jpgsave_picture_249662.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:7259A6AAAB60209F508EFE20FA35BF0E892D2661
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249663.jpgsave_picture_249663.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:AB97951D5936CAB327B99A4FE777577CA7017C15
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249664.jpgsave_picture_249664.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Uplifting Only Top 15 March 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249665.jpgsave_picture_249665.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:F0191E5AB4390E5BA36EE453151312A077778D98
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249666.jpgsave_picture_249666.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:44DDC615E18875056EA8C9A3D71DB06D193011BB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249667.jpgsave_picture_249667.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - Love Songs 2000s (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249668.jpgsave_picture_249668.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:43087810CC4DC6A23CE9EB757AE1D4269960FBFB
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249669.jpgsave_picture_249669.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:CDF04F3FE3270D67C1BAF6BC24E20173251D772D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249670.jpgsave_picture_249670.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Kenny Neal - Straight from the Heart (2022) [FLAC|Lossless|tracks + .cue] <Moder
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249671.jpgsave_picture_249671.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ VA - 60 minutes. Old School Dance Music vol.16 (mixed by Dj V) (2023) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249672.jpgsave_picture_249672.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ BELOFF [dp] 2022.03.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249673.jpgsave_picture_249673.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ The Blazers - Just Around Midnight (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249674.jpgsave_picture_249674.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:DB2519D00F78E449006F37D82EF89727E0B41B4C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249675.jpgsave_picture_249675.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:3CC3499F099E202BA391B07CCE34546E0C7FCF34
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249676.jpgsave_picture_249676.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:9089E0C9A429256C7E29E51411FFDA8F39386A80
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249677.jpgsave_picture_249677.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - UV 250 (Mixed by Paul Thomas) (2023) [MP3|320 Kbps] <House, Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249678.jpgsave_picture_249678.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:00F7608A79DAF770AF9429BDBC1FD8EB7BCECEE9
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249679.jpgsave_picture_249679.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:F640D6A4F1D7E9389ADE3A5A88EC346DED6E4DE7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249680.jpgsave_picture_249680.jpg" />
 </div>
 
 

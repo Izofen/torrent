@@ -6,7 +6,7 @@ Triumph - Magic Power: All Star Tribute to Triumph (2025) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65724.jpgsave_picture_65724.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wicked Bluesman - Dreams & Destiny (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65725.jpgsave_picture_65725.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Pasquale Grasso - Fervency (2025) Sony Music [FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65726.jpgsave_picture_65726.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:69AE2AF6D7465A8D2F615295EE7205A7B4C0F982
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65727.jpgsave_picture_65727.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ A-Z - A2Z² (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Progressive H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65728.jpgsave_picture_65728.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rosetta West - Gravity Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65729.jpgsave_picture_65729.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Lord Belial - Unholy Trinity (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65730.jpgsave_picture_65730.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Anthony Krizan - Cool Shade of Blue (2025) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65731.jpgsave_picture_65731.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Howling Void - The Glow of a Distant Fire (2025) [MP3|320 Kbps] <Symphonic, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65732.jpgsave_picture_65732.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ The Red Moon Macabre - Baleful Gathering (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65733.jpgsave_picture_65733.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Wisemary - Awake (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65734.jpgsave_picture_65734.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Gregory James Falcon - Something Blue (2025) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65735.jpgsave_picture_65735.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Muzzy - Do You Know the Muzzy Man (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65736.jpgsave_picture_65736.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:32078F56E4C982238E98C597481DD11B49CB8B0E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65737.jpgsave_picture_65737.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - La Hora Azul, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Ou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65738.jpgsave_picture_65738.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Muse - Unravelling (2025) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65739.jpgsave_picture_65739.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:2C23B3F6A6D60D7DF3126B397BEE9BEC539DC81D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65740.jpgsave_picture_65740.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Uplifting Only Top 15: June 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65741.jpgsave_picture_65741.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - Trancendence, Vol. 02 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65742.jpgsave_picture_65742.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:20354BB6AA810AD59A881AEA05CDD2C6298AA0EB
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65743.jpgsave_picture_65743.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Badflower - No Place Like Home (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alter
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65744.jpgsave_picture_65744.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Anthony Krizan - Dust and Bone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65745.jpgsave_picture_65745.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Manowar - The Triumph of Steel (1992) Released, 2011, Back On Black [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65746.jpgsave_picture_65746.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Sodom - The Arsonist (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65747.jpgsave_picture_65747.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:CA6F24C5FD1A4DA5E88D33EE29711C49C6FEE4B7
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65748.jpgsave_picture_65748.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ magnet:?xt=urn:btih:7762C833403EA2D06809E298713EB105F069EF0A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65749.jpgsave_picture_65749.jpg" />
 </div>
 
 

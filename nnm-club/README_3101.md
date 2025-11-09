@@ -6,7 +6,7 @@ Ceremonial Perfection - Alone In The End (2010) [MP3|320 кб/с]<Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99584.jpgsave_picture_99584.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ Gigantic Brain - They Did This To Me (2010) [MP3|192 кб/с]<Experimental Grind
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99593.jpgsave_picture_99593.jpg" />
 </div>
 
 
@@ -71,7 +71,7 @@ magnet:?xt=urn:btih:4555BCB6FB522DC7D7F707E7C42489A7726DDA5A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99595.jpgsave_picture_99595.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A580B60F8A5155732F47DCDAFCE49984FB6E41C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99600.jpgsave_picture_99600.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ A State Of Trance - Radio Top 20 March And April (2012) [MP3|320 кб/с]<Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99602.jpgsave_picture_99602.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:A3EAE961FC8BABF1F1E8297C2A4F1105F60CAC25
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99612.jpgsave_picture_99612.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Various - Desert Storm Presents Vocal Jungle Volume One... (1996) [MP3|256 кб/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99613.jpgsave_picture_99613.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:DB286DB75C8B058DC7FD5239BC93E83A8AD9FC17
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99618.jpgsave_picture_99618.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:BAA90C79199A1561FDB89A399FA588F91EC9F727
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99621.jpgsave_picture_99621.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:B83B4F155E6221AB7F6BDD382F74EA178CDEEB32
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99626.jpgsave_picture_99626.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Various Artists - Jungle Mania 94 (1994) [MP3|320 кб/с]<Jungle, Ragga Jungle,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99631.jpgsave_picture_99631.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:1E548BF35225C6523457392E32980CDE555AF42C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99636.jpgsave_picture_99636.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:F4123DCDB4B22B47114D30122D8726BC5FA2DCA4
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99637.jpgsave_picture_99637.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Авто Дискотека DFM Зарубежная (2012) [MP3|256 kbps]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99638.jpgsave_picture_99638.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ A.S.Y.S. - Bpm Is Dead (2012) [MP3|320 кб/с]<Techno, Hard Trance, Acid>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99640.jpgsave_picture_99640.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:916FFEEA0E653F2FE6512D40F6081DD4FF03320E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99646.jpgsave_picture_99646.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Радио Energy - NRJ HOT30 (13.04.2012) [MP3|320 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99647.jpgsave_picture_99647.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Tiger Eye 2: The Sacrifice (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99649.jpgsave_picture_99649.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:02ED635AAEE8D3993158559FF3B05CCFD35DA349
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99653.jpgsave_picture_99653.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:75CCD6D45DA29366293ACC51C35D548DCF71D404
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99657.jpgsave_picture_99657.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:2B870DE4510B12982CEC834F87ED02C399ED8540
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99658.jpgsave_picture_99658.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:45C2CE112F3A48C64E0F39F04F61F4240546A88D
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99659.jpgsave_picture_99659.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - Spa Sounds Premium (2012) [MP3|320 кб/с]<Chillout, Relax>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99661.jpgsave_picture_99661.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:F795E51696B47B31DE0E3B584731BDDDF2982632
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99665.jpgsave_picture_99665.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ magnet:?xt=urn:btih:CECFBB6199AC036453CDD045FD7D3CF8BA60216C
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99666.jpgsave_picture_99666.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ magnet:?xt=urn:btih:0DE651331D4B045391D92FA1D317C29CF0C0BD17
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99669.jpgsave_picture_99669.jpg" />
 </div>
 
 

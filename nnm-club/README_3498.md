@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111309.jpgsave_picture_111309.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Daevar - Amber Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom, Psych>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111310.jpgsave_picture_111310.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:CC9569F7BF1E48C6628F511C25CC59EE3C650C1D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111311.jpgsave_picture_111311.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - Klavier - Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111312.jpgsave_picture_111312.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Erroll Garner - Piano Magic (1940-e - 1950-e) 1999, Hallmark [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111313.jpgsave_picture_111313.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Kevin & JD - Island Of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111314.jpgsave_picture_111314.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Erroll Garner & Billy Taylor - Separate Keyboards (1945, 1949) 1993, Savoy Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111315.jpgsave_picture_111315.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Pat Martino & Gil Goldstein - We Are Together Again (2012) Warner [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111316.jpgsave_picture_111316.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Voided - One (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111317.jpgsave_picture_111317.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:B21B2BE8E9B0874977147A3F36B65A3919C9383B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111318.jpgsave_picture_111318.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:F9A269269D9A1883FCF33221791A9CE41595C8A2
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111319.jpgsave_picture_111319.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jeff Russo - Fargo Year 5 (Soundtrack from the MGM/ FXP Series) (2023) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111320.jpgsave_picture_111320.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - Ultimate Relaxing Lounge Jazzy Weekend Playlist (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111321.jpgsave_picture_111321.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Jeff Russo - Fargo Year 4 (Soundtrack from the MGM/FXP Series) (2020) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111322.jpgsave_picture_111322.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ House Of Lords - Come To My Kingdom (2008) [FLAC|Lossless|image + .cue] <Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111323.jpgsave_picture_111323.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:D296A6079160331C87DCA7D4BA5452DE56C5D945
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111324.jpgsave_picture_111324.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Giuseppe Alicata - Take Me To Your Heart (2019) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111325.jpgsave_picture_111325.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:34C4362EBA082DD82261F04CAD899A21979E561E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111326.jpgsave_picture_111326.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:E518E9784C3E8848E0BD65A65959C2A380E4D0DC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111327.jpgsave_picture_111327.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:1D21BEB6369AA1BDE36B0EBD640F3982DC67E52A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111328.jpgsave_picture_111328.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Estopa - Estopía (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Latin Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111329.jpgsave_picture_111329.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Ultimate Relaxing Jazz Music for Weekends (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111330.jpgsave_picture_111330.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Evolucija - The World is Full of Wrath (2024) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111331.jpgsave_picture_111331.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - Urban Grooves 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Funk, Down
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111332.jpgsave_picture_111332.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - Jazzy Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111333.jpgsave_picture_111333.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ VA - Jazz Dinner Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111334.jpgsave_picture_111334.jpg" />
 </div>
 
 

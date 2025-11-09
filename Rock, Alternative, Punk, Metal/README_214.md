@@ -6,7 +6,7 @@ Metric - Synthetica [Deluxe Edition] (2012) [MP3|320 кб/с]<Indie / Pop-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134756.jpgsave_picture_134756.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Downplay - The Human Condition [EP] (2012) [MP3|320 кб/с]<Alt. Rock / Hard Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134802.jpgsave_picture_134802.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ magnet:?xt=urn:btih:208E90B1FF48564A25F660A6802514E85AE9FFF5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134816.jpgsave_picture_134816.jpg" />
 </div>
 
 
@@ -97,7 +97,7 @@ Pride Of Lions - Immortal (2012) [MP3|320 кб/с]<Melodic Rock | AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134857.jpgsave_picture_134857.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Enigmatic Entrance - Becoming Daylight (2021) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134949.jpgsave_picture_134949.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ The Hedons - Tomb Of Stars (2012) [MP3|320 кб/с]<Stoner Rock / Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134960.jpgsave_picture_134960.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Deaf Dealer - Keeper Of the Flame (1986) Reissue, 2023, Cult Metal Classics [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134969.jpgsave_picture_134969.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Ecocide - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134972.jpgsave_picture_134972.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Blaze - Silicon Messiah (2000) Japanese Edition [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135001.jpgsave_picture_135001.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Steel Rath - Prayers of War (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135005.jpgsave_picture_135005.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Легенды Русского Рока I (1996) 6CDs Box-Set [MP3|320 kbp
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135177.jpgsave_picture_135177.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Freakstorm - Angel In The Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135181.jpgsave_picture_135181.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Glenn Hughes & Robin George - Overcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135212.jpgsave_picture_135212.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Necronomicon - Screams (1994) Reissue, 2019, Metal Command Records [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135214.jpgsave_picture_135214.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Vehemence - Helping The World To See (2004) [APE|Lossless|image + .cue] <Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135221.jpgsave_picture_135221.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:CBDEA3D286BE2EFEA8AD865A0590AEB6D93D9C22
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135269.jpgsave_picture_135269.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ The Black Owl - The Black Owl Band (2020) [FLAC|Lossless|WEB-DL|tracks] <Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135277.jpgsave_picture_135277.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Secret Rule - Universe (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135281.jpgsave_picture_135281.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Trapeze - Lost Tapes, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135283.jpgsave_picture_135283.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Fabula Rasa - Tome I: The Arrival (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135285.jpgsave_picture_135285.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ The Black Owl - Let Us Prey (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135287.jpgsave_picture_135287.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Shayne Malone - Sacred (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135289.jpgsave_picture_135289.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Hell's Addiction - 9 O'Clock Horses (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135303.jpgsave_picture_135303.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Pinball Wizard - Dirty Ways (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135304.jpgsave_picture_135304.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Fierce Justice - Fireborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135313.jpgsave_picture_135313.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Cracklin'Groove - Cracklin'Groove (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135316.jpgsave_picture_135316.jpg" />
 </div>
 
 

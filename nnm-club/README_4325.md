@@ -6,7 +6,7 @@ Nifty File Lists 1.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134360.jpgsave_picture_134360.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Rammstein - Videos 1995-2012 (Disk 1-2) (2012) BDRip_720р
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134361.jpgsave_picture_134361.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134362.jpgsave_picture_134362.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:FC590A231177FE6E3E6834C643D79D845809D3F7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134363.jpgsave_picture_134363.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Cranio - 11:11 (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134364.jpgsave_picture_134364.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Herb Ellis / Ray Brown Sextet - Hot Tracks (1976) 1990, Concord Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134365.jpgsave_picture_134365.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Shadowspawn - Blasphemica (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134366.jpgsave_picture_134366.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ AutoKrypt13 for Mac 13.07 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134367.jpgsave_picture_134367.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Sacrifire - The Art of Decay (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134368.jpgsave_picture_134368.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:E4BA5DEAB471E654DFD56DA2B58D600A68238E74
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134369.jpgsave_picture_134369.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Cal Tjader - Gozame! Pero Ya... (1980) 1987, Concord Picante [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134371.jpgsave_picture_134371.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:C3BF9C618575887A19EAC288266A0CE87B97E037
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134372.jpgsave_picture_134372.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ AbleFTP13 for Mac 13.07 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134373.jpgsave_picture_134373.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ batchCONVERTER for Mac 2.00 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134375.jpgsave_picture_134375.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Scarblade - The Cosmic Wrath (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134377.jpgsave_picture_134377.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:3FA6FFCF2237DC60F6AD7832A2FA3255779831AC
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134378.jpgsave_picture_134378.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Gigi Gryce & Donald Byrd - Jazz Lab (1957) 2010, Jubilee [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134379.jpgsave_picture_134379.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:F366DB09C6F5D3D65CFC0F4F3EC543E81B22C155
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134380.jpgsave_picture_134380.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Mp3tag 1.8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134381.jpgsave_picture_134381.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ GraphicConverter for Mac 12.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134383.jpgsave_picture_134383.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ The Crotals - Conjure (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Stoner
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134385.jpgsave_picture_134385.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Il Divo - The Greatest Hits (2012) 2CD Deluxe Edition [FLAC|Lossless]<Neo-Classi
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134386.jpgsave_picture_134386.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:6689012B7A4F1AF492C2CA88B2B2FE3BC70F1A8B
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134388.jpgsave_picture_134388.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ The Outer Worlds (2023) [Ru/Multi] (1.6411.19706.0/dlc) License GOG [Spacer’s 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134392.jpgsave_picture_134392.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ MInstAll v.25.11.2023 By Andreyonohov (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134394.jpgsave_picture_134394.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:EB1A6BC7C1C0A78055DFD2E7FFEF7DDB98791566
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134396.jpgsave_picture_134396.jpg" />
 </div>
 
 

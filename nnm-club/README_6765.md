@@ -6,7 +6,7 @@ PDF Expert 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232802.jpgsave_picture_232802.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Collapsed Minds - Abyss (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232805.jpgsave_picture_232805.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Microsoft PowerToys 0.70.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232806.jpgsave_picture_232806.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ O&O DiskImage Professional 18.4 Build 295 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232808.jpgsave_picture_232808.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Firefox Browser 113.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232810.jpgsave_picture_232810.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Thunderforge - Vanquish The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232811.jpgsave_picture_232811.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:88DF89C9682EB8D4070779DDA68EFFE77C130E11
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232812.jpgsave_picture_232812.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ King Weird - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Sludge, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232815.jpgsave_picture_232815.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Blackmagic Design Fusion Studio 18.5b Build 43 Public Beta 3 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232816.jpgsave_picture_232816.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:5F44ECD06C81ECCB7840A501D740E60AF1ECB0CA
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232817.jpgsave_picture_232817.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Spiritus Mortis - The Great Seal (2022) [FLAC|Lossless|WEB-DL|tracks] <Tradition
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232821.jpgsave_picture_232821.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:9B5F7152C4CED9AA5A0C4B48789F24E7E46D0BE2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232822.jpgsave_picture_232822.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ EZ CD Audio Converter 11.0.2.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232824.jpgsave_picture_232824.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Ancestry - Transitions (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232826.jpgsave_picture_232826.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Speedwhore - Visions of a Parallel World (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232827.jpgsave_picture_232827.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Skype 8.98.0.206 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232828.jpgsave_picture_232828.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ PotPlayer 230523 (1.7.21915) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232829.jpgsave_picture_232829.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Rusty Bonez - Brainworm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232832.jpgsave_picture_232832.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:99B430142FC09E2E04701E34D2AB9CE921B4A359
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232833.jpgsave_picture_232833.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ TweakNow WinSecret Plus! 4.7.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232835.jpgsave_picture_232835.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Collapsed Minds - Dead End Theory (2017) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232837.jpgsave_picture_232837.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:4202AD9E46B27033D7B1750BE9FE551F2531F2FD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232839.jpgsave_picture_232839.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Anguish Force - Atzwang (2012) [FLAC|Lossless|image + .cue] <Heavy, Power, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232840.jpgsave_picture_232840.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ BBC Scottish Symphony Orchestra, Alpesh Chauhan - Tchaikovsky: The Tempest, Fran
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232842.jpgsave_picture_232842.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Hellwitch - Annihilational Intercention (2023) [FLAC|Lossless|WEB-DL|tracks] <Te
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232843.jpgsave_picture_232843.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Darktable 4.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232845.jpgsave_picture_232845.jpg" />
 </div>
 
 

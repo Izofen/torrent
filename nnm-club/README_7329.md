@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250593.jpgsave_picture_250593.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:379F7B5744098650BD8918B5AA17284BB4320D9B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250594.jpgsave_picture_250594.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4E50A4FF6E0118BD92AA85D075A24C67B91E5D43
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250595.jpgsave_picture_250595.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ YT Downloader 9.17.17 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250596.jpgsave_picture_250596.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dwarf Fortress (2022) [En] (53.02) Repack Necros
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250597.jpgsave_picture_250597.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:9B41F041D268E5AE8EF79252937059D99BF87A6A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250598.jpgsave_picture_250598.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6B17F0560A5EEEA2E8B4DDF52A13DC9DD80CCC12
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250599.jpgsave_picture_250599.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Alien Shooter 2 - The Legend (2020) [Ru/En] (1.3.2) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250600.jpgsave_picture_250600.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:EA554296A49702D5C8293D00A34BC188EA14FC9E
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250601.jpgsave_picture_250601.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ YouTube удаляет ролики где показано, как устано
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_250602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_250602.jpgsave_picture_250602.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Best Russian Echoes of Screamo.vol. 14 (2025) Compilation [MP3|320 Kbps] <A
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250603.jpgsave_picture_250603.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dirkschneider & The Old Gang - Babylon (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250604.jpgsave_picture_250604.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:24255921591A0C2C7659B0E454E311BAB5CC3FBE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250605.jpgsave_picture_250605.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:B4D484FF4288ADF2A727E532D8EDBDD3A42DF970
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250606.jpgsave_picture_250606.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:BC3E82FCC5131CCF6F12E9FC75610D6E215007D0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250607.jpgsave_picture_250607.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:4FA2DDEA2CA0E77B9C15D00FDF189B2480B03B20
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250608.jpgsave_picture_250608.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:3A119F5DF4EE94A3C06F7D42DA2C0BD573BFE607
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250609.jpgsave_picture_250609.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:26816FB7F75E37C0E92CCBE79E9EFE78DE7DFDD8
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250610.jpgsave_picture_250610.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Logan S. Helmes | Python Cheat Sheet Encyclopedia (2025) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250611.jpgsave_picture_250611.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:DD38CC09B981B80B25F328DCAF97DB4ABF2B300B
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250612.jpgsave_picture_250612.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:1A2DB1FA7C1C623CE892F34226677DF5CE1E53BE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250613.jpgsave_picture_250613.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:9836D248DEF179A7CB44B95936F7DE82318855D2
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250614.jpgsave_picture_250614.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:55AAC86324FC93623CA3FD570BF8AB79DF9A792F
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250615.jpgsave_picture_250615.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:4289279A4CA8DA3846B87F2AF8134D5FD03C383B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250616.jpgsave_picture_250616.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Max Gor | Работа в системе «1С:Медицина. Больниц�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250617.jpgsave_picture_250617.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:236D85297322108CAFAF5813E6FA63E256CC3761
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250618.jpgsave_picture_250618.jpg" />
 </div>
 
 

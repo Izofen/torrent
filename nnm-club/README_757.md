@@ -6,7 +6,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20008.jpgsave_picture_20008.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Disciples: Liberation (2021) [Ru/Multi] (1.0.3.b314.r63560/dlc) Repack Let'sРla
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20009.jpgsave_picture_20009.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AAF Family DCH Audio Realtek 10.11.9823.1 Mod by AlanFinotty [En]
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20010.jpgsave_picture_20010.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AE78EC9D9A55CF3B3A4345228518D94EEC997C52
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20011.jpgsave_picture_20011.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:58BA76B7DEB20E80D5A810829982F3AEFD7C0FF9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20012.jpgsave_picture_20012.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:AA5C20574C3A3C3A19BD87B75045979F40FFD1E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20013.jpgsave_picture_20013.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ SWORD ART ONLINE Fractured Daydream (2024) [Ru/Multi] (1.3.0.0/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20014.jpgsave_picture_20014.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:D6927CF329475823970FD378B101D5471628C59B
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20015.jpgsave_picture_20015.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:8375570CD51980D8B1A2CDAB2ED5397BB2A1E25F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20016.jpgsave_picture_20016.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:80D7E80D8E3322CA5EDAE389114FF13750D62391
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20017.jpgsave_picture_20017.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:C6CA4F178253A3B50D017C069C653959828DAA44
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20018.jpgsave_picture_20018.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:60D38EA83DDB1DDD024CE7B933ECBB57B48C94E3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20019.jpgsave_picture_20019.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:FBD2E499B8F825351594E8A1480D501E61050C34
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20020.jpgsave_picture_20020.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20021.jpgsave_picture_20021.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:4D92275556D2BFEA4785BE64DFD61F3CAFF102D4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20022.jpgsave_picture_20022.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:EAA7A229E851E063AEE36A71D46F73A6BB5FA749
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20023.jpgsave_picture_20023.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ qBittorrent 5.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20024.jpgsave_picture_20024.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Night Slashers: Remake (2024) [Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20025.jpgsave_picture_20025.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Notepad++ 8.8.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20026.jpgsave_picture_20026.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:BD7567483E449D90A11DA403D741C3F429CDBFF2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20027.jpgsave_picture_20027.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:C4A246502D72290B742E6BC0147B7FCB2871DE91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20028.jpgsave_picture_20028.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:4E130B16AAC4A8A0D09050DA4AD1CB81A4B14996
 >>Глухарь
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20029.jpgsave_picture_20029.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Hero's Hour (2022) [Ru/Multi] (2.8.1b/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20030.jpgsave_picture_20030.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Lords of Xulima (2014) [Ru/Multi] (2.1.1/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20031.jpgsave_picture_20031.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:3540B0F604ADB430F4099E829A37735556474041
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20032.jpgsave_picture_20032.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:ED0373D7166894F56DE7305F703EC7E36A4DF458
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20033.jpgsave_picture_20033.jpg" />
 </div>
 
 

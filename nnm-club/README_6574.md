@@ -6,7 +6,7 @@ PhotoDirector - Редактор фото 18.1.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210378.jpgsave_picture_210378.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6A35685D1E408B84564D62717688AA29F968D681
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210380.jpgsave_picture_210380.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dexter Gordon Quartet - Swiss Nights, Vol.2 (1975) 1987, SteepleChase [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210381.jpgsave_picture_210381.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Hasleo Data Recovery Professional 6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210384.jpgsave_picture_210384.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Damon Smith - A Fresh Harvest From Old Seeds (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210386.jpgsave_picture_210386.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:37A8CE17F080D2C6B0F7EF6FFAE2D39CC81541AA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210388.jpgsave_picture_210388.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:6B878DF187678C193445BDA2166A29A581A5A745
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210390.jpgsave_picture_210390.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Glary Disk Cleaner 5.0.1.292 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210393.jpgsave_picture_210393.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Angelina Hunter Trio - 2 Альбома (2018, 2023) 2CD [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210396.jpgsave_picture_210396.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ iNet Network Scanner 2.9.81 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210399.jpgsave_picture_210399.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Levania - Fukushima (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210401.jpgsave_picture_210401.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Silent Shore - Euphoric Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210403.jpgsave_picture_210403.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Hellish War - Wine Of Gods (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210405.jpgsave_picture_210405.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Vintage Trouble - Heavy Hymnal (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210406.jpgsave_picture_210406.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Sunday Family Brunch Lounge Soothing (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210408.jpgsave_picture_210408.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:97A83C4ABD01DE22DED263F7CB67D98A3411FCB3
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210416.jpgsave_picture_210416.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:1DA486257B7149EA40F44E5D0A16E957A47CDC7E
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210418.jpgsave_picture_210418.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ MediaHuman YouTube Downloader 3.9.9.83 (2506) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210419.jpgsave_picture_210419.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Slimjet 40.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210421.jpgsave_picture_210421.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:6DBCBACBAAFB6B3A06441E4B23F29630DC99B3A1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210423.jpgsave_picture_210423.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:0FF4913FF26A9FD528C3774003E076BA01174EC0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210426.jpgsave_picture_210426.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:838C9D212936EEE715D83A0575F498BF219CD499
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210427.jpgsave_picture_210427.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Uninstall Tool 3.7.2 Build 5703 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210430.jpgsave_picture_210430.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:8FC8394C6D3024A96E2741FEA5E43844119B1413
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210431.jpgsave_picture_210431.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Topaz Photo AI 1.3.10 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210433.jpgsave_picture_210433.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:912001B256D0A0B26F682B7AB3B7B52699A3F678
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210434.jpgsave_picture_210434.jpg" />
 </div>
 
 

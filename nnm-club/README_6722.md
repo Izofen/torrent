@@ -6,7 +6,7 @@ Deathsiege - Throne of Heresy (2022) [FLAC|Lossless|image + .cue] <Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231180.jpgsave_picture_231180.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MEmu 9.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231181.jpgsave_picture_231181.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Invisor - Media File Inspector 3.23 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231182.jpgsave_picture_231182.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:6F1A0F16FD9CF8A2BA7941060FC6FC29A7825704
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231184.jpgsave_picture_231184.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:2D7772E365F3FA8254BF51A79FC52E0F8BC8203A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231185.jpgsave_picture_231185.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:44DB6129AAF579C5946986375D0B9FBD32B40520
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231186.jpgsave_picture_231186.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Desolator - Resurgency & Desolator - Dark Revival - Mass Human Pyre (2011) Split
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231187.jpgsave_picture_231187.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:BE4545FF32144725F2A427337C33A702C8F9F9A6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231189.jpgsave_picture_231189.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mister Kill - Mister Kill (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231190.jpgsave_picture_231190.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:6D5F0F95E2C23CF422E7BA0021A292881A4B50CA
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231191.jpgsave_picture_231191.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ AI Photo for Mac 1.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231192.jpgsave_picture_231192.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ James and the Cold Gun - James and the Cold Gun (2023) [MP3|320 Kbps] <Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231195.jpgsave_picture_231195.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:B95B1D1687405609D8DE4679A55023B13E68283E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231196.jpgsave_picture_231196.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:0EAED4DECD8F1E0B7BEFDDE901796C16C83D8A75
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231197.jpgsave_picture_231197.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ MetaVideo 1.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231198.jpgsave_picture_231198.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Zorormr - Corpus Hermeticum (2015) [FLAC|Lossless|image + .cue] <Melodic Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231199.jpgsave_picture_231199.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:DFDF0DB49EE8F279189F13264EEECF5CC455DAC7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231200.jpgsave_picture_231200.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:07C5B661ABA08B3D696CAA4B3062C8BE263997BE
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231201.jpgsave_picture_231201.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ System Toolkit 6.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231202.jpgsave_picture_231202.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:09EFA2FAF13B9E1918FF0082BB5462DF033CA694
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231205.jpgsave_picture_231205.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ MetaImage  2.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231206.jpgsave_picture_231206.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:D17FEDB19BD2CD8D2F8A670C20B260AEB75FB187
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231207.jpgsave_picture_231207.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Total Commander 11.00 beta5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231210.jpgsave_picture_231210.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Arouse the Darkness - Cemetery Of Buried Hopes (2022) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231211.jpgsave_picture_231211.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Howl at the Sky - In Line for the End Times (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231212.jpgsave_picture_231212.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Evil Hunter - Lockdown (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231213.jpgsave_picture_231213.jpg" />
 </div>
 
 

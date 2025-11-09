@@ -6,7 +6,7 @@ Celestial Crown - Rebirth (2016) [FLAC|Lossless|image + .cue] <Gothic Metal, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160690.jpgsave_picture_160690.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Guillotine - Metal in the Vein (2007) [WavPack|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160691.jpgsave_picture_160691.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ WiszdomStone - Rise (2009) [WavPack|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160692.jpgsave_picture_160692.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Granada - Prisionego (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160693.jpgsave_picture_160693.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Red Harvest - Sick Transit Gloria Mundi (2002) Promo CD [APE|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160694.jpgsave_picture_160694.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cookie 7.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160695.jpgsave_picture_160695.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ FSNotes 6.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160696.jpgsave_picture_160696.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Red Harvest - New World Rage Music (2001) Promo CD [APE|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160697.jpgsave_picture_160697.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160698.jpgsave_picture_160698.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ HateFrame - Sign of Demise (2005) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160699.jpgsave_picture_160699.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Skarz - What Remains (2020) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160700.jpgsave_picture_160700.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Archicad 27 build 3001 + Content [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160701.jpgsave_picture_160701.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:4CC00F88DCBD4064D7B08093271A9E74A634A3B2
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160702.jpgsave_picture_160702.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:3A4CD5DBDE10A5FDDC716A89D69C3B4A65EBD3BA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160703.jpgsave_picture_160703.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:8C118599783302BA49335809E537D1B4A07E1AEC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160704.jpgsave_picture_160704.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:0A3C5A4C4308EDC1F399E17517474EAEBABEF396
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160705.jpgsave_picture_160705.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:D40F16218B053ACAD365873DC1ABF5C9A9807626
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160706.jpgsave_picture_160706.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:1610A09CE35B3DBF9E06ABDA30D2C5D558704665
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160707.jpgsave_picture_160707.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:7F69D92E4498CF99B1951DEE1D5C1B8BAD391A13
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160708.jpgsave_picture_160708.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:44C25B6413D6B4B3940480068BC50B695FC4AB73
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160709.jpgsave_picture_160709.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Tiny Thor (2023) [Multi] (6125) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160710.jpgsave_picture_160710.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:CE75C793CAAA31E3AC31A9DC3870A20D2375ED49
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160711.jpgsave_picture_160711.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Moviehouse - The Film Studio Tycoon (2023) [Ru/Multi] (1.6.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160712.jpgsave_picture_160712.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Windows 11 (v23h2) x64 HSL/PRO by KulHunter v1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160713.jpgsave_picture_160713.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:FE6A7C27242721B027C6946BFDB11E9237251FEF
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160714.jpgsave_picture_160714.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Quake II (1997) [Ru/Multi] (5984/dlc) License GOG [Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160715.jpgsave_picture_160715.jpg" />
 </div>
 
 

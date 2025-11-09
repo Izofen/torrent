@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153305.jpgsave_picture_153305.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nita Strauss - The Call of the Void (2023) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153314.jpgsave_picture_153314.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Flower Kings - Back in the World of Adventures (1995) Reissue, 2003, Inside 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153338.jpgsave_picture_153338.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Signum Regis - Undivided (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153368.jpgsave_picture_153368.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Last Autumn’s Dream - Paintings (2015) Japanese Edition [MP3|320 кб/с] <Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153405.jpgsave_picture_153405.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ozzy Osbourne - The Essential Ozzy Osbourne (2003) 2019 remastered Epic [FLAC 2.
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153454.jpgsave_picture_153454.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ E1NS - Вечная мерзлота (2016) [MP3|320 Kbps] <Alternative Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153459.jpgsave_picture_153459.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:99AA6DF3D0948DDE62FEDD42B511891C3CC1BC09
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153465.jpgsave_picture_153465.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hypertoad - God please destroy humanity (2016) ЕР [MP3|320 Kbps] <Instrumental
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153468.jpgsave_picture_153468.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Earthside - Let The Truth Speak (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153492.jpgsave_picture_153492.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Autumn's Child - Angel's Gate (2020) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153522.jpgsave_picture_153522.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ DGM - Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153596.jpgsave_picture_153596.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ DE3RA - Old Scratch (2020) [MP3|320 Kbps] <Psychedelic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153597.jpgsave_picture_153597.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Plaguemace - Reptilian Warlords (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153598.jpgsave_picture_153598.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Mur-Len Road - I Gotta Get Outta Here (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153605.jpgsave_picture_153605.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Kriegsopfer - Redención (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153610.jpgsave_picture_153610.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Aversion To Life - Ritualized Murder (2006) [FLAC|Lossless|image + .cue] <Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153680.jpgsave_picture_153680.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:B2383F08497C56E90DB95273FEBC7B040362F1D5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153824.jpgsave_picture_153824.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:D49AEFB30F30040EEB12AAAD55384DF6CDF9D8F1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153833.jpgsave_picture_153833.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:9D7774C59D78A892F544312DD7EF9AE49B4F3C0A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153847.jpgsave_picture_153847.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Rainbow - Down To Earth  (1979) 2CD Deluxe Edition /2011, Polydor/ [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153867.jpgsave_picture_153867.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Eric Clapton - Unplugged (1992) Reissue, Remastered, 2022, Mobile Fidelity Sound
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153959.jpgsave_picture_153959.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Pink Cream 69 - 18 альбомов Discography 20 CD (1989-2017) [FLAC|Lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153992.jpgsave_picture_153992.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Thyrfing - Vanagandr (2021) [FLAC|Lossless|image + .cue] <Viking Metal, Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154019.jpgsave_picture_154019.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:7D30174B525181967AE8ECD15A838C779A3C491E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154023.jpgsave_picture_154023.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Gary Hughes - 7 альбомов Discography (1990-2007) [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154056.jpgsave_picture_154056.jpg" />
 </div>
 
 

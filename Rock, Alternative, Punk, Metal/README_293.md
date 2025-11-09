@@ -6,7 +6,7 @@ Aeon Zen - Self Portrait (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174142.jpgsave_picture_174142.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Highlord - The Warning After (2013) [FLAC|Lossless|image + .cue] <Power Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174148.jpgsave_picture_174148.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Highlord - Hic Sunt Leones (2016) [FLAC|Lossless|image + .cue] <Power Metal, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174156.jpgsave_picture_174156.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Neptune - Northern Steel (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174158.jpgsave_picture_174158.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Advice - Destiny By Dawn (2015) Compilation [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174163.jpgsave_picture_174163.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Highlord - The Death Of The Artists (2009) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174167.jpgsave_picture_174167.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Acutor - Dios ha muerto (1998) Reissue 2015, Mort Discos [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174168.jpgsave_picture_174168.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Highlord - Instant Madness (2006) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174171.jpgsave_picture_174171.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Necrofobia - Dark, Deep & Eternal (2004) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174184.jpgsave_picture_174184.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:86303E9CD26AA3495A06B1D1934B849FA6EEB737
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174273.jpgsave_picture_174273.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:82462D026A892738E146B3759026A8386F7C84A2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174331.jpgsave_picture_174331.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:6287131303E40595B1B102C51E80E43590DFE1C5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174353.jpgsave_picture_174353.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Amberian Dawn - 10 Releases (2008-2022) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174378.jpgsave_picture_174378.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Aeon Zen - A Mind's Portrait (2009) [FLAC|Lossless]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174398.jpgsave_picture_174398.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Group 1850 - 3 Albums, 1 Box-set, 11CD (1969-2019) [FLAC|Lossless|image + .cue |
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174404.jpgsave_picture_174404.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:0CC043E7D3C2328051502EBE68FC5D36119EA059
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174406.jpgsave_picture_174406.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:2966AF7E9F3909DACC10BCB22BD88B7D830BB506
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174446.jpgsave_picture_174446.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Blind Guardian - Imaginations From The Other Side (2020) Live [MP3|320 Kbps] <He
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174476.jpgsave_picture_174476.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:12FD1A9EF794EFE17D91C6CB091F816AB4C6B216
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174526.jpgsave_picture_174526.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Puscifer - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Industrial, Exper
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174549.jpgsave_picture_174549.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:B40C3B2B354D0D34754BA500D2381D3D270679BD
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174554.jpgsave_picture_174554.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Olshanoe - 2 Albums (2021-2022) [MP3|320 Kbps] <Folk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174563.jpgsave_picture_174563.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:F0BCC83E8DE9F5976EDA37D5D4780391BA9DF2A2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174571.jpgsave_picture_174571.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Arrayan Path - Thus Always to Tyrants (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174583.jpgsave_picture_174583.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Velvet Two Stripes - No Spell for Moving Water (2023) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174589.jpgsave_picture_174589.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Highlord - When The Aurora Falls... (2000) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174601.jpgsave_picture_174601.jpg" />
 </div>
 
 

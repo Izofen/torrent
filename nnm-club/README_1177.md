@@ -6,7 +6,7 @@ Revo Uninstaller Pro 5.3.5 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30957.jpgsave_picture_30957.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Display Driver Uninstaller 18.0.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30958.jpgsave_picture_30958.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PDF24 Creator 11.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30959.jpgsave_picture_30959.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ While We Wait Here (2024) [Ru/Multi] (Build 16641425) Repack FitGirl [Soundtrack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30960.jpgsave_picture_30960.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:7156A63CB7797A79351F70D0AE50A54B43F567F9
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30961.jpgsave_picture_30961.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1B4D68AE8B67094C3850E1C73F8791D25395966E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30962.jpgsave_picture_30962.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Wise Disk Cleaner 11.1.9.835 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30963.jpgsave_picture_30963.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Pink Floyd - The Dark Side Of The Moon - Live At Wembley 1974 (2023) Master [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30964.jpgsave_picture_30964.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Wonder Boy: Asha in Monster World (2021) [Ru/Multi] (Build 8291740) Repack Let's
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30965.jpgsave_picture_30965.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:2024C00943D87D883EA87EFCDB7A2473420FB81D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30966.jpgsave_picture_30966.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Firefox Browser 134.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30967.jpgsave_picture_30967.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:211FFB8A93EEE20396EC66C9F9E6CE49DE6B743E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30968.jpgsave_picture_30968.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:E3C91C3B146007CC26F0C08F8B1A901819CED4A1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30969.jpgsave_picture_30969.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Alan Walker - Walkerworld 2.0 (2025) [FLAC 24/44,1,48|Lossless|WEB-DL|tracks] <E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30970.jpgsave_picture_30970.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:E915204DD521ABD94AB02EA62EF883BC6A244993
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30971.jpgsave_picture_30971.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:D94C8E4656614806E74E7C9392F15813BD81081D
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30972.jpgsave_picture_30972.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - Absolute Classic Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30973.jpgsave_picture_30973.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ SIV (System Information Viewer) 5.79 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30974.jpgsave_picture_30974.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Aiseesoft Filmai 1.0.18 RePack (& Portable) by TryRooM 1.0.18 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30975.jpgsave_picture_30975.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Diabetes:M v9.0.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30976.jpgsave_picture_30976.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:43B5F83985B3200E4BDED085ECB86018F7F20DFD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30977.jpgsave_picture_30977.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Bandicam 8.0.1.2512 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30978.jpgsave_picture_30978.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ FotoTweak - AI Image Generator v1.0.46 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30979.jpgsave_picture_30979.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:0D29082D5C9BB5796B6694282FAA61E1AC2C7C2B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30980.jpgsave_picture_30980.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ O&O ShutUp10++ 1.9.1442 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30981.jpgsave_picture_30981.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:4E8C44C8FC77A6A659F004CE0095632EEE993B41
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30982.jpgsave_picture_30982.jpg" />
 </div>
 
 

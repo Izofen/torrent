@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251929.jpgsave_picture_251929.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:F79A971CEB10BB4D1ADF3C5D19606737D479CFFA
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251930.jpgsave_picture_251930.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:AC6CC6CFBA44BE938D9B17C51831B0A28BC54DDB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251931.jpgsave_picture_251931.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Photo Lab PRO v3.12.56 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251932.jpgsave_picture_251932.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:F3F43494C4DB26ADEDA8E8CFA6BB8B8FD54838D9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251933.jpgsave_picture_251933.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ FITLAB, А.В. Михалевский | Бои без правил для диа
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251934.jpgsave_picture_251934.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:486905934EA196CBEFB6311EC4FD4CE9B2CC2D72
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251935.jpgsave_picture_251935.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:634114AC995882427959AA6780BAFFF9DBA3F3D0
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251936.jpgsave_picture_251936.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:7C790ABE7B13B0EE7345A96D3296D3EB34496540
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251937.jpgsave_picture_251937.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Matthew Dowst | Practical Automation with PowerShell (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251938.jpgsave_picture_251938.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:15C01A611C7C278D591590862FD7F61F140FD031
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251939.jpgsave_picture_251939.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ John Sharp | Microsoft Visual C# Step by Step, 10th Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251940.jpgsave_picture_251940.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:16E89A55FC201EEB7E2B2E4F010CF84981E15F32
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251941.jpgsave_picture_251941.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:AD92DACD44367607665E34EE9EEC964DA044CD13
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251942.jpgsave_picture_251942.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:5CCB8611DDDFEA71FDC50232A7A6FF506C7749D8
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251943.jpgsave_picture_251943.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Federico Kereki | Mastering JavaScript Functional Programming, 3rd Edition (2023
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251944.jpgsave_picture_251944.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:1D60C7615AF2E2BE4B9020B609FE4A897AB40D95
 >>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251945.jpgsave_picture_251945.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:D93BB5F593F50D94D448A087E3F72E7EDB5F2556
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251946.jpgsave_picture_251946.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Ant Download Manager 2.16.2 Build 91828 (91829) + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251947.jpgsave_picture_251947.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:70776BE0D4CA7C4A29FDD14AE0E8CD65003210CD
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251948.jpgsave_picture_251948.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Marten Deinum, и др. | Spring 6 Recipes: A Problem-Solution Approach to Sprin
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251949.jpgsave_picture_251949.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:9EE4C63524B9BAD144E307373EBEA1637513077D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251950.jpgsave_picture_251950.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:D99AC2AFEECC5C9D8FA9E1F8A5E4BCE8C3659DC0
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251951.jpgsave_picture_251951.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Windows 10 Enterprise LTSB 1607 (x86/x64) 8in1 +/- Office 2021 by Eagle123 (05.2
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251952.jpgsave_picture_251952.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:10502B356EC990D3C0294179FC5EFA91342D00F3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251953.jpgsave_picture_251953.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:E55A355AE8111FBD9062960507379A53B0FDFD55
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251954.jpgsave_picture_251954.jpg" />
 </div>
 
 

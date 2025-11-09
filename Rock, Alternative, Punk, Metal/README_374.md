@@ -6,7 +6,7 @@ Edward Reekers - The Liberty Project (2023) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223399.jpgsave_picture_223399.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Induction - The Power Of Power (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223421.jpgsave_picture_223421.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Roosterz - Brutal Nuggetz (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223428.jpgsave_picture_223428.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ AMH (Adam and The Metal Hawks) - Hurry Up And Wait (2023) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223432.jpgsave_picture_223432.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dark Sky - Signs Of The Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223447.jpgsave_picture_223447.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Any Given Sin - War Within (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Alt.M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223455.jpgsave_picture_223455.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Ocean - Holocene (2023) 3 x CD, BOX Set [FLAC|Lossless|tracks + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223463.jpgsave_picture_223463.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Owlbear - Chaos To The Realm (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223473.jpgsave_picture_223473.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Integrity - 4 Albums (1991-2001) Deluxe Edition, 2022, 2023, Relapse Records [FL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223483.jpgsave_picture_223483.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Rain Parade - Last Rays of a Dying Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223503.jpgsave_picture_223503.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Cliffside - Deeper Water (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223551.jpgsave_picture_223551.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Brutally Deceased - Black Infernal Vortex (2014) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223575.jpgsave_picture_223575.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tumulation - Haunted Funeral Creations (2023) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223583.jpgsave_picture_223583.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:178AAC4D8CCC3B02F501AAA8BC9B4E81BE6ECBC4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223951.jpgsave_picture_223951.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Rian - Wings (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223967.jpgsave_picture_223967.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Rick Springfield - Automatic (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224087.jpgsave_picture_224087.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mammoth WVH - Mammoth WVH II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Al
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224161.jpgsave_picture_224161.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Iron Bees - Хулиганы (2023) [MP3|320 Kbps] <Ska, Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224169.jpgsave_picture_224169.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Nuclear Power Trio - Wet Ass Plutonium (2023) [FLAC|Lossless|image + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224177.jpgsave_picture_224177.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ APE - Human Greed (1992) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224182.jpgsave_picture_224182.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ High On Fire - The Art of Self Defense (2000) Reissue, 2023, MNRK Music [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224193.jpgsave_picture_224193.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Lyle Workman - Built To Last (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224202.jpgsave_picture_224202.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ The Shredderz - The Shredderz (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224242.jpgsave_picture_224242.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Icon Of Sin - Legends (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224247.jpgsave_picture_224247.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ BBCC - Michael (2023) [FLAC|Lossless|WEB-DL|tracks] <Art-Punk, Experimental Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224254.jpgsave_picture_224254.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:012F54F51158B764B95202C66E5EA02EB984BC91
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224266.jpgsave_picture_224266.jpg" />
 </div>
 
 

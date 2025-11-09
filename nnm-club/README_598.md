@@ -6,7 +6,7 @@ VA - Musical kaleidoscope part 41 Assorted (2025) [MP3|320 Kbps] <Electronic, In
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15860.jpgsave_picture_15860.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4822B42BE5DF5D79F805E356B3D2A19377216236
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15861.jpgsave_picture_15861.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:BCE23A49467B72938B401D987A492D4C390AA546
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15862.jpgsave_picture_15862.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B77D1D4B54A70203A08D2BA0D359166383C9BDF0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15863.jpgsave_picture_15863.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Aiseesoft Video Converter Ultimate 10.9.8 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15864.jpgsave_picture_15864.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15865.jpgsave_picture_15865.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Skylum Aperty 1.4.0.1260 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15866.jpgsave_picture_15866.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F795015EBD0CB5F89CFE7540E2DDA3D3579E6A51
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15867.jpgsave_picture_15867.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:35C40162A9B9285752B01CEAD8242E03EF062FD3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15868.jpgsave_picture_15868.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Spectator 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15869.jpgsave_picture_15869.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Farm Together 2 (2024) [Ru/Multi] (Build 18675684/dlc) Repack FitGirl [Soundtrac
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15870.jpgsave_picture_15870.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:29287000301395EFF351CA078213B21F0E60F69C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15871.jpgsave_picture_15871.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ The Gnomon Workshop, April Connors | Gesture Drawing Fundamentals (2021) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15872.jpgsave_picture_15872.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:390D47BC01C6EE7FC982683F008867C219B7974B
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15873.jpgsave_picture_15873.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:4917A672A83A14BEBD0100EE8DCF9F8CD82D20E9
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15874.jpgsave_picture_15874.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15875.jpgsave_picture_15875.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:14C153662468831E1532897AE00AD553F30FF8B6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15876.jpgsave_picture_15876.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ R-Studio Network 9.5 Build 191514 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15877.jpgsave_picture_15877.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ f5game, Ольга Грищенко | 9 загадок Шерлока Холмс
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15878.jpgsave_picture_15878.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:CFD3CC2423F2D08DECDAB919F162CB47224A79AD
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15879.jpgsave_picture_15879.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:95CEB026EF981A0DEA101AEAE2EAD2C7B2F79D44
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15880.jpgsave_picture_15880.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:64395B98ED8A906638303B8E96474E0FEFF93BBB
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15881.jpgsave_picture_15881.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15882.jpgsave_picture_15882.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:ECF6F49EA916737F1004146BD3FF959E4B7B962B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15883.jpgsave_picture_15883.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ The Danger Zone (2025) [Ru/En] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15884.jpgsave_picture_15884.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Open Server Panel 6.3.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15885.jpgsave_picture_15885.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203467.jpgsave_picture_203467.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:87D4C079B6EA1C9E2DBB9C00D1EC76BB281A6C8F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203468.jpgsave_picture_203468.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:94A52E3AA42296C4C7F2C85034033E4ACE1B8420
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203469.jpgsave_picture_203469.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A847133C34BD4B58B3A39A06F83B6F65DDD9118A
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203470.jpgsave_picture_203470.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3C653E1872C110D8A60A89708391F774D9E891F9
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203471.jpgsave_picture_203471.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Compilation  Blues Rock Part 31 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203472.jpgsave_picture_203472.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:914E1FEBDECF3F73257BDA09A396FF5B279B4B6F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203473.jpgsave_picture_203473.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:59A4BFC09A1223215D06F5285AFF021E0075CC4F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203475.jpgsave_picture_203475.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Udemy, Luke Priddy | Master English Writing | Syntax, English Grammar, and More 
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203476.jpgsave_picture_203476.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Kodi 20.0 (Nexus) for Android [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203477.jpgsave_picture_203477.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:3CEE99147A0CC6EADB5DF3C35DCA0257A0EB5249
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203478.jpgsave_picture_203478.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:60BB4AD9C2BBEEECCC54F441EA5C49B62FAF5161
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203479.jpgsave_picture_203479.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:A58DFFE5D11001FA91A38AF2AE3F8357FF52E0A0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203480.jpgsave_picture_203480.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:B328AF2E50E576F6352173C319E151EBC8DABB71
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203481.jpgsave_picture_203481.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:5607E7FE2CF220005044762D0C3A3EAD8A7D443C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203482.jpgsave_picture_203482.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:13014BF7B885394751B420EC3D50B7B473F64874
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203483.jpgsave_picture_203483.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Udemy, Ashutosh Pawar | The Complete FastAPI Course With OAuth & JWT Authenticat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203484.jpgsave_picture_203484.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Kodi 20.0 (Nexus) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203485.jpgsave_picture_203485.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:B8CA74CACC00E43B5A1358F174F0E6335D8005B7
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203486.jpgsave_picture_203486.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:18A5CA358FEE33D5234C7518F046324FAC6134F2
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203487.jpgsave_picture_203487.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:F1852BB5B14B46A2B4D79D4668C8D52B93BA11C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203488.jpgsave_picture_203488.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Serif Affinity Photo 2.0.4.1701 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203489.jpgsave_picture_203489.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ ArtRage 6.1.3 RePack by OctaneS [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203490.jpgsave_picture_203490.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ MemTest86 10.6 Build 2000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203491.jpgsave_picture_203491.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Red Button 5.97 include Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203492.jpgsave_picture_203492.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:4DF72856B479644A28F56096FEB33241DB22B987
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203493.jpgsave_picture_203493.jpg" />
 </div>
 
 

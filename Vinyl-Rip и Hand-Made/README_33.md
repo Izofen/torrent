@@ -6,7 +6,7 @@ Bruce Dickinson - Balls to Picasso (1994) [FLAC|24/96|tracks|Vinyl-Rip] <Rock, H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112927.jpgsave_picture_112927.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Samson - Live at Reading`81 (1990) [FLAC|24/96|image + .cue|Vinyl-Rip] <NWOBHM, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112931.jpgsave_picture_112931.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Любимые песенки малышей (1971) [FLAC 24/192|Lossless|t
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112944.jpgsave_picture_112944.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:ABFF9647A6148DB11D36A25C1D57B06629F0F7CE
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112946.jpgsave_picture_112946.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:7E57CB6FC80691120FE4221A90CA02B957F17DAB
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112962.jpgsave_picture_112962.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:485D5CFCAE55F4DDC51CA3FF95C540DC1FEAF208
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112970.jpgsave_picture_112970.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Darkthrone - Goatlord (1996) Reissue, 2011, Peaceville [FLAC|24/192|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112989.jpgsave_picture_112989.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Samson - Head On (1980) Reissue, 2004, Earmark [FLAC|24/96|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112999.jpgsave_picture_112999.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Samson - Shock Tactics (1981) Reissue, 1989, Repertoire Records [FLAC|24/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113000.jpgsave_picture_113000.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bruce Dickinson - Tattooed Millionaire (1990) [FLAC|24/96|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113018.jpgsave_picture_113018.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:526D5202512CDD5C9A5028710A244351862583D0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113037.jpgsave_picture_113037.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:3820322A8D347D377B3D897E77FD31F8C105AF7C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113041.jpgsave_picture_113041.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:C69486AF18C6B151EA75ABFED52C83CF7D2FCE59
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113073.jpgsave_picture_113073.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:DCF69E7E60AD2D671FFF0025570499355DE7EBFF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113074.jpgsave_picture_113074.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Rockets - Wonderland (2019) [FLAC 24/96|Lossless|tracks] <Synth-pop, Space-rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113078.jpgsave_picture_113078.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Эстрадное обозрение (2 серия) (1961) [FLAC 24/96|Los
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113084.jpgsave_picture_113084.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:FFB07C7B253ABCCEF05875B1FD89FDF0DAEF454A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113085.jpgsave_picture_113085.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Stone Temple Pilots - Studio Albums (10 releases) (1992-2020) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113088.jpgsave_picture_113088.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Яблони в цвету (1976) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113096.jpgsave_picture_113096.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Darkthrone - Panzerfaust (1995) Reissue, 2010, Peaceville [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113113.jpgsave_picture_113113.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Darkthrone - Transilvanian Hunger (1994) Reissue, 2013, Peaceville [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113122.jpgsave_picture_113122.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Elektric Music - Esperanto (1993) [FLAC 24/96|Lossless|tracks] <Electronic, Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113147.jpgsave_picture_113147.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:3AABAFE58EC8827D6C617A7E76DF01D18450D4CC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113154.jpgsave_picture_113154.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:AD602B5F184342A6225B180F9A1D1D34D8AE5EEA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113177.jpgsave_picture_113177.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ganymed - Dimension No.3 (1980) [FLAC 24/96|Lossless|tracks] <Pop, Electronic, D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113180.jpgsave_picture_113180.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:00CF73F01D3BF8E68D8E947EF532B60781A05216
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113183.jpgsave_picture_113183.jpg" />
 </div>
 
 

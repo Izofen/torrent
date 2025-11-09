@@ -6,7 +6,7 @@
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164270.jpgsave_picture_164270.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ocenaudio 3.13.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164271.jpgsave_picture_164271.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Mysterium: Lake Bliss / Мистериум: Озеро счастья (2013) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164272.jpgsave_picture_164272.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Indie Rock This Summer (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164273.jpgsave_picture_164273.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:727C77202A9557A36E8788DD1504FACC82191C71
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164274.jpgsave_picture_164274.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:3CEA8623B33D1FA19DB3FF551E3DF75395B486BF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164275.jpgsave_picture_164275.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:7506939F72579DC67E96E88AA260CCF7C96ED8C7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164276.jpgsave_picture_164276.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Skype 8.107.0.215 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164277.jpgsave_picture_164277.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:C668AA1BDE2A9C6F23D950FD8156EF3DE6AF8001
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164278.jpgsave_picture_164278.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Color UI 2.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164279.jpgsave_picture_164279.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:65E58809F412BC6747EE6A98798565D2C9773C0C
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164280.jpgsave_picture_164280.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:B2EC063D32F929D0C656531776A9A0803293FC55
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164281.jpgsave_picture_164281.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Enpass Password Manager Pro v6.7.1.572 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164282.jpgsave_picture_164282.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:872CC153681BFEDAEF04D895A96FCF4A4C8EF68F
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164283.jpgsave_picture_164283.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:BCAD5C7C2D032B8D3902C53E31821E3347528A2F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164284.jpgsave_picture_164284.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:B4FB401530B2FA0AC98C51D1C1B09C9A574F404C
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164285.jpgsave_picture_164285.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:ED004A69A55004A8E59302FF402516D4C20FD287
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164286.jpgsave_picture_164286.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Jamie Cullum - The Pianoman At Christmas (2020) Island Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164287.jpgsave_picture_164287.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Elton John - The Lockdown Sessions (2021) Japanese Edition [FLAC|Lossless|image 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164288.jpgsave_picture_164288.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:A699347B7458D0A76647CBCBCB3611932849FD94
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164289.jpgsave_picture_164289.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Topaz Video AI 4.0.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164290.jpgsave_picture_164290.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:982547FB200DC73FB2D29F6C739A125D3606D169
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164291.jpgsave_picture_164291.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ HazeOver 1.9.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164292.jpgsave_picture_164292.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:33B4D24C7E0CAE34061ACB2255B195ED9464F11D
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164293.jpgsave_picture_164293.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:546F058DC1BD752EA38039268F7E5A827BA439BF
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164294.jpgsave_picture_164294.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Damiano's Elysium - The Land Beyond Dreams Part 2 (2022) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164295.jpgsave_picture_164295.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32595.jpgsave_picture_32595.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Cataclismo (2024) [Ru/Multi] (0.22.0.6.417) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32596.jpgsave_picture_32596.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:7D4723DFFA27F834FD4DC81BACD9399492290B93
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32597.jpgsave_picture_32597.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:A8F1B62DFDA9F643F1D4F49A69B922A58EDC8D51
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32598.jpgsave_picture_32598.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5498) Repack Let'sРl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32599.jpgsave_picture_32599.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:9125DD2AA1EDF4C109282583AAF5F20530E9B378
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32600.jpgsave_picture_32600.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Balabolka 2.15.0.886 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32601.jpgsave_picture_32601.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Deathbulge: Battle of the Bands (2023) [En] (1.2.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32602.jpgsave_picture_32602.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:D296E9B3F0FD220289144DA0B168D70BC6D3CA3B
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32603.jpgsave_picture_32603.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Pools (2024) [Ru/Multi] (12.12.24) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32604.jpgsave_picture_32604.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Marcus Trummer - From The Start (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32605.jpgsave_picture_32605.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Ventusky: Прогноз погоды v40.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32606.jpgsave_picture_32606.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32607.jpgsave_picture_32607.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:C36ED21EA3757257BB3824AF253371909F351849
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32608.jpgsave_picture_32608.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Queen - Hot Space (1982) Japanese Edition, SHM-CD, Reissue, Remastered, Repress,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32609.jpgsave_picture_32609.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Ken Laszlo - Hey Hey Guy Don't Cry Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32610.jpgsave_picture_32610.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Dude, Where Is My Beer? (2020) [Ru/Multi] (11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32611.jpgsave_picture_32611.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:CB7C59134D1676F9149FED208D279EC94947DBDC
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32612.jpgsave_picture_32612.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ The Many Pieces of Mr. Coo (2023) [Ru/Multi] (1.00.09) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32613.jpgsave_picture_32613.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:EA9ABAF9C6D64C295D45C82DD91EA157E33E5285
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32614.jpgsave_picture_32614.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ TikTok Private Plus (PayBack Edition) v37.9.16 Mod by TikTok Updates + Plugin Up
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32615.jpgsave_picture_32615.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:4987C79B1B6622C24FD3F41678275E6B68C6EFBD
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32616.jpgsave_picture_32616.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:DE47F44181F1DDD690D1413147060BB2590C260A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32617.jpgsave_picture_32617.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - Jazz Sexiest Ladies Top 100 (2024) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32618.jpgsave_picture_32618.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:FF4BB99773B80719F6CA0D6000FF818A1B5A1E9D
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32619.jpgsave_picture_32619.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Musical kaleidoscope part 18 (2024) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32620.jpgsave_picture_32620.jpg" />
 </div>
 
 

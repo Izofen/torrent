@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115171.jpgsave_picture_115171.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Monkey's Audio 10.52 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115172.jpgsave_picture_115172.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Ace Frehley - 10.000 Volts (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115173.jpgsave_picture_115173.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Anaka - The Oblivion Call (2024) [MP3|320 Kbps] <Heavy, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115174.jpgsave_picture_115174.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Sahib Shihab Quintet - Seeds (1968) 2008, Rearward [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115175.jpgsave_picture_115175.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Monster Mike Welch - Nothing But Time (2023) [FLAC|Lossless|tracks + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115176.jpgsave_picture_115176.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:5152B6C06D85CB199C499D04DC121D5B83C07B39
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115177.jpgsave_picture_115177.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:A814D3B7AA2022D77F031264D22A120EC26CFE62
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115178.jpgsave_picture_115178.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:C01A7BFF48E62E633AD8EA738C981EC4B6D7B8B6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115179.jpgsave_picture_115179.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:9C89E4668236F012BFCECB989A48D5A3626920AC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115180.jpgsave_picture_115180.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:5730A3B3DC19870D23B89D19D5E553838A10C6AB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115181.jpgsave_picture_115181.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:344868D09E82DC26A71F3C9926B97193D26E7438
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115182.jpgsave_picture_115182.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Text Edit Plus 14.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115183.jpgsave_picture_115183.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Tablacus Explorer 24.2.27 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115184.jpgsave_picture_115184.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.020.1441 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115185.jpgsave_picture_115185.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:23060B343357C1469E5ACE4F4698BDAC24F38BCF
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115186.jpgsave_picture_115186.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:EC0433166222B9C2CB7F0466055CD505601C397E
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115187.jpgsave_picture_115187.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:FBDABF2585F4EAD0436BE67B39EF19B4AAF3DACC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115188.jpgsave_picture_115188.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115189.jpgsave_picture_115189.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Night Runner - Starfighter (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115190.jpgsave_picture_115190.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ PrivaZer Pro 4.0.83 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115191.jpgsave_picture_115191.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:6A1315A00369D004C5CF3376D5BAD9F1C8537BF0
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115192.jpgsave_picture_115192.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:D1273377E97AEBB60EE6DB0640D2268D766BB85D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115193.jpgsave_picture_115193.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Dan McCafferty - In Memory Of Dan McCafferty - No Turning Back (2023) [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115194.jpgsave_picture_115194.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:5B1D8762007846E5D9A2F683C29DBF69382A7F2E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115195.jpgsave_picture_115195.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Modern Man - Modern Man (1987) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Pop Roc
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115196.jpgsave_picture_115196.jpg" />
 </div>
 
 

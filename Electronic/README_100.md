@@ -6,7 +6,7 @@ VA - Clubhits Top 200 Vol. 13 (2019) [FLAC|Lossless|tracks] <Club, Future House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151023.jpgsave_picture_151023.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ David Guetta - Live @ DJ Mag Top 100 DJs Awards, Ibiza, Spain (2023-11-15) [MP3|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151117.jpgsave_picture_151117.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jens Buchert - Electronic Space Odyssey-Transcending Lounge Music (2009) [FLAC|L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151126.jpgsave_picture_151126.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Armin van Buuren - A State Of Trance 1147 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151181.jpgsave_picture_151181.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nora En Pure - Live @ DJ Mag Top 100 DJs Awards, Bali, Indonesia (2023-11-15) [M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151241.jpgsave_picture_151241.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - 10 Years Of Suanda Music - Mixed by Christopher Corrigan (2023) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151277.jpgsave_picture_151277.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Trance Autumn 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151314.jpgsave_picture_151314.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Daylight - 30 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Dance-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151459.jpgsave_picture_151459.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Winter Spirits: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151533.jpgsave_picture_151533.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Expanding Records - Label-Pack 32 Releases (1996-2010) [FLAC|Lossless|tracks+.cu
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151549.jpgsave_picture_151549.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Astrid Monroe & Genesis P-Orridge - When I Was Young (2001) SiRS [FLAC|Lossless]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151708.jpgsave_picture_151708.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Recoverworld Radio 004 (Mixed by Rich Smith) (2015) [MP3|320 кб/с] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151725.jpgsave_picture_151725.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - The Owls Are Not What They Seem: David Lynch Tribute Remixes (2017) kultFRO
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151877.jpgsave_picture_151877.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Third Party - Live @ Party People, HERE at Outernet London, United Kingdom (2025
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152018.jpgsave_picture_152018.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Armin van Buuren - A State Of Trance 1247 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152026.jpgsave_picture_152026.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Ori Uplift - Uplifting Only Episode 662 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152036.jpgsave_picture_152036.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Future Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Electroni
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152054.jpgsave_picture_152054.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Spiral Trax Records presents: Compilations Collection - 40 Releases (1998-2021) 
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152058.jpgsave_picture_152058.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ FaraoN - Deep House Music Collection 2025 (2025) [MP3|320 Kbps] <House, Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152074.jpgsave_picture_152074.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Capsula - Sense of a Drop (2009) Waveform Records [FLAC|Lossless|tracks+.cue] <P
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152153.jpgsave_picture_152153.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Tenebrous Music - Label 3 Releases (2015-2016) [FLAC|Lossless|WEB-DL|tracks] <Te
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152211.jpgsave_picture_152211.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Jason van Wyk - Days You Remember (2013) White Notebook [FLAC|Lossless|WEB-DL|tr
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152253.jpgsave_picture_152253.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Dub Tractor - Hello Ambient Wash (2017) Music For Dreams [FLAC|Lossless|tracks] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152369.jpgsave_picture_152369.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Atmosfera Records Best of Trance (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152372.jpgsave_picture_152372.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ CoH - CoHgs (2017) Editions Mego [FLAC|Lossless|WEB-DL|tracks] <Abstract, Experi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152377.jpgsave_picture_152377.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - The Hues of Infinity (2015) Projekt [FLAC|Lossless|tracks+.cue] <Ambient, D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152382.jpgsave_picture_152382.jpg" />
 </div>
 
 

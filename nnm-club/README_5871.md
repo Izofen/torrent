@@ -6,7 +6,7 @@ Koan - Munchausen Trilemma (Side A) (2020) [AAC|~325 Kbps] <Ambient, Chillout, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184520.jpgsave_picture_184520.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SSH Config Editor Pro 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184522.jpgsave_picture_184522.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Novembers Doom - Nephilim Grove (2019) [FLAC|Lossless|image + .cue] <Melodic Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184523.jpgsave_picture_184523.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Topaz Video AI 3.5.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184526.jpgsave_picture_184526.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Clipboard Booster 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184527.jpgsave_picture_184527.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Metalite - A Virtual World (2021) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184528.jpgsave_picture_184528.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:69255E2A07100A7D83B2AB54BD10BC35C81ED6B9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184530.jpgsave_picture_184530.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Metalite - Biomechanicals (2019) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184531.jpgsave_picture_184531.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Hidden Object Secrets: Family Revenge (2023) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184533.jpgsave_picture_184533.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Topaz Photo AI 2.0.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184535.jpgsave_picture_184535.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:EB15B5F8DFA67E387C3EAB2D03341656646B15D0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184536.jpgsave_picture_184536.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Chez Kane - Powerzone (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184538.jpgsave_picture_184538.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:29C7208DF89E74010EE06AADC96832E9F78B1B1E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184539.jpgsave_picture_184539.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ EZ CD Audio Converter 11.2.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184541.jpgsave_picture_184541.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:6EB52D7FBFC317EF31F985E5003D96720DE1073C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184542.jpgsave_picture_184542.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ CPU-Z 2.08.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184545.jpgsave_picture_184545.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Principle 5.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184546.jpgsave_picture_184546.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ The Jokers - Rock And Roll Bones (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184547.jpgsave_picture_184547.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Toxik - Dis Morta (2022) [FLAC|Lossless|image + .cue] <Technical Speed Metal, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184549.jpgsave_picture_184549.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ GlueMotion 1.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184551.jpgsave_picture_184551.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ DesktopClock3D 1.92 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184552.jpgsave_picture_184552.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ HyperDither 2.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184555.jpgsave_picture_184555.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:228D671D1540D6570866B6378C521D3F7EE501CF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184556.jpgsave_picture_184556.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:672A1ACB566310D9F5893ACA65043B95F366FD84
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184557.jpgsave_picture_184557.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Captain Black Beard - Neon Sunrise (2022) Japanese Edition [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184560.jpgsave_picture_184560.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ MetaImage 1.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184561.jpgsave_picture_184561.jpg" />
 </div>
 
 

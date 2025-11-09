@@ -6,7 +6,7 @@ Federico Caruso - Sfunk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107222.jpgsave_picture_107222.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dreamroot - Push (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107224.jpgsave_picture_107224.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bryard Huggins - Confidential (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107225.jpgsave_picture_107225.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ James Blake & Lil Yachty - Bad Cameo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107226.jpgsave_picture_107226.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dua Lipa - Radical Optimism (2023) Extended Versions, 2024, Warner Records [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107256.jpgsave_picture_107256.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - For Discos Only: Indie Dance Music From Fantasy & Vanguard Records (1976-19
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107277.jpgsave_picture_107277.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Channel Tres - Head Rush (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electrón
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107286.jpgsave_picture_107286.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Hourglass - Voids and Visions (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107287.jpgsave_picture_107287.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kalax - LOST (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107302.jpgsave_picture_107302.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Yes - Fragile (1971) Super Deluxe Edition, Steven Wilson Remix, 2024, Rhino Atla
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107330.jpgsave_picture_107330.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Imagine Dragons - Loom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Ind
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107345.jpgsave_picture_107345.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Naive New Beaters - Fvtvrvm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107375.jpgsave_picture_107375.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Lola Young - This Wasn't Meant For You Anyway (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107418.jpgsave_picture_107418.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Linda Thompson - Proxy Music (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107424.jpgsave_picture_107424.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Red Hot Org, Kronos Quartet - 2024 Red Hot Org (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107426.jpgsave_picture_107426.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Marcella Detroit - Jewel (1994) Remastered and Expanded, 2024, Because Ltd [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107430.jpgsave_picture_107430.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Terence Fixmer - The Paradox In Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <i
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107450.jpgsave_picture_107450.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Motor Gypsy - Motor Gypsy II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107452.jpgsave_picture_107452.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ MaxX & Love - These Blues Might Get You Too (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107453.jpgsave_picture_107453.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ John Vlasic - After the Sunset (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107454.jpgsave_picture_107454.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Bottenhavet - Ljud i Tysta Rum (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107456.jpgsave_picture_107456.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Leonardo979 - Overdrive Motel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107459.jpgsave_picture_107459.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Mercury Riots - In Solstice (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107467.jpgsave_picture_107467.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Lutharo - Studio Albums (4 releases) (2018-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107468.jpgsave_picture_107468.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Allan Wilson - Walking to Nowhere (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107471.jpgsave_picture_107471.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Mike Campbell & The Dirty Knobs - Vagabonds, Virgins & Misfits (2024) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107473.jpgsave_picture_107473.jpg" />
 </div>
 
 

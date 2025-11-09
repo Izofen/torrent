@@ -6,7 +6,7 @@
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100630.jpgsave_picture_100630.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BDF941B66D5A3DE72C18452601647AD74ADA2CFA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100631.jpgsave_picture_100631.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:636CBE0431C58F40E87871F8D19153577F085BD3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100632.jpgsave_picture_100632.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CB4D3B1E253E65C8AE612208547EE3B31AD4DF7A
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100633.jpgsave_picture_100633.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Photo Lab PRO v3.13.44 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100634.jpgsave_picture_100634.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ R. Armando Morabito - Compilation (2024) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100635.jpgsave_picture_100635.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8164D1A73BA80725CE74F634DD6CED7A59759E37
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100636.jpgsave_picture_100636.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:A03675E31C4FD121BB21293C5794E64D11D82321
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100637.jpgsave_picture_100637.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:1802DD03239DCCC757D975C820E62E0D3FB3A5CC
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100638.jpgsave_picture_100638.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ PhotoRoom v5.7.6 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100639.jpgsave_picture_100639.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:83CFACF2968BB778A0BD75893C64393702939090
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100640.jpgsave_picture_100640.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:21F13AF6846F2B3BF516736B9B597ABCD9D14E85
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100641.jpgsave_picture_100641.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:E5335008277D5C67CE1E5688EC7DA63146D8F1C2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100642.jpgsave_picture_100642.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:B2431D3DCCF55A19A3873C2B2AE8A30F7BA9C821
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100643.jpgsave_picture_100643.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:0E923842E681CF24827C6C77AB3FDEB3AD17DF98
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100644.jpgsave_picture_100644.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - SAW 3 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100645.jpgsave_picture_100645.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:D8C0C72A910EFFED13A04136156FDED669A43A53
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100646.jpgsave_picture_100646.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VA - The Best Of Suanda Chillout 2024 (2024) [MP3|320 Kbps] <Downtempo, Chillout
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100647.jpgsave_picture_100647.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ FROM - Can’t Stand The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100648.jpgsave_picture_100648.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Mike McCorison lyric writer - The Wild Viking Project V2 (2024) [FLAC 24/48|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100649.jpgsave_picture_100649.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ VA - Best Melodic & Progressive House 2024 (2024) [MP3|320 Kbps] <Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100650.jpgsave_picture_100650.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:5889B90102DE9A3DE7FD088B6C251D61C91E419B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100651.jpgsave_picture_100651.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Photo Studio PRO v2.7.12.3613 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100652.jpgsave_picture_100652.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:2358D2EE733CE6749C7ED7FF353396D539DA9139
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100653.jpgsave_picture_100653.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:C02E34812AD096CF4423E0622B1CAC9D4F91EA8D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100654.jpgsave_picture_100654.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:6EF871CBB2BD418DE24715C2FA64AB1E75D80ADD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100655.jpgsave_picture_100655.jpg" />
 </div>
 
 

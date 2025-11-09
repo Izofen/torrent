@@ -6,7 +6,7 @@ Thronehammer - Kingslayer (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140068.jpgsave_picture_140068.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:6831F76322DFCBC613E9B6792E0AD169BF942626
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140069.jpgsave_picture_140069.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - House Fusion: Absolute EDM Sound (2019) [MP3|320 Kbps] <House, Dance, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140071.jpgsave_picture_140071.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:B7A5DC8098E87A4EF9AB125875541A4C98DC833A
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140072.jpgsave_picture_140072.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:6F8AB3645DB0BE80EB05525B85D2BA29617DEF0C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140073.jpgsave_picture_140073.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:667D69E424B6A8ED1D6FB108127F196A3E9CDB9F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140075.jpgsave_picture_140075.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:FCCEAB496B5AC0ACCD8334B21AA7E83A94B43483
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140076.jpgsave_picture_140076.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ PullTube 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140077.jpgsave_picture_140077.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Geekbrains | Frontend-разработчик. Часть 3 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140078.jpgsave_picture_140078.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:C5B79A1180984C30DC6C599F37D9F5E9F24984D8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140079.jpgsave_picture_140079.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Hunting Unlimited 3 (2004) [En] (1.0) License ELEGANCE
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140080.jpgsave_picture_140080.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:2D65EBA517E4E86826BD2A8800C5E3C8FB0C8947
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140083.jpgsave_picture_140083.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:0A266AE57169D1D9C32140F79EB8330F065AC292
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140084.jpgsave_picture_140084.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:3DFD231F22C49586771FDF11CD313958458C8CEF
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140085.jpgsave_picture_140085.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:10AECA187BCD86C039D8D3D43DF01CED575F023D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140086.jpgsave_picture_140086.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:07EAE49101E10FE0F567F279C472226B496625AF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140087.jpgsave_picture_140087.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Win7codecs 3.9.2 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140090.jpgsave_picture_140090.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Win7codecs - пакет кодеков для установки в операц
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140091.jpgsave_picture_140091.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Download Master 6.15.1.1585 RePack (&Portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140092.jpgsave_picture_140092.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:A63B656896636277A72B203D89B39F53EA487E58
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140093.jpgsave_picture_140093.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:FF85FDB76B76BC28BB7816A61EB9116BA13FDFC7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140094.jpgsave_picture_140094.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:E98BC539F704653135968829636CDB18A543EB92
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140095.jpgsave_picture_140095.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ In Tormentata Quiete - 4 Albums (2005-2017) [FLAC|Lossless|image + .cue] <Folk R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140096.jpgsave_picture_140096.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Sebastian Bach - Give 'Em Hell (2014) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140097.jpgsave_picture_140097.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Scanner - The Signal Of A Signal Of A Signal (2019) Touched Music [FLAC|Lossless
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140099.jpgsave_picture_140099.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:674EA64AA45D2463612B97D932E8AC0AFFCD7148
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140101.jpgsave_picture_140101.jpg" />
 </div>
 
 

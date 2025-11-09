@@ -6,7 +6,7 @@ Arida Vortex - Riders Of Steel (2020) Japanese Edition [FLAC|Lossless|image + .c
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190030.jpgsave_picture_190030.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Amplified! - 2 Albums (2021-2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190033.jpgsave_picture_190033.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Oak - The Quiet Rebellion Of Compromise (2022) [MP3|320 Kbps] <Progressive Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190034.jpgsave_picture_190034.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Forever & Always - AURA (2022) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190039.jpgsave_picture_190039.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Eternal Solitude - The Gates of the Beyond (2022) [MP3|320 Kbps] <Death, Doom Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190041.jpgsave_picture_190041.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Stratovarius - Visions Of Europe (1998) 2 CD [OGG Vorbis|480 Kbps] <Rock, Heavy 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190043.jpgsave_picture_190043.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Akraia - Mistress (2022) EP [MP3|320 Kbps] <Sludge Doom, Occult>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190044.jpgsave_picture_190044.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Stratovarius - Under Flaming Winter Skies (2012) 2 CD [OGG Vorbis|480 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190054.jpgsave_picture_190054.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Stratovarius - The Chosen Ones (1999) [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190056.jpgsave_picture_190056.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:FA6B0FE60AA820E74E24E4E208CB95EEE768BB37
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190059.jpgsave_picture_190059.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Kotipelto - Reasons (2004) Single [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Powe
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190063.jpgsave_picture_190063.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Romantic Rock Mix (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190076.jpgsave_picture_190076.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Bloodbound - Rise Of The Dragon Empire (2019) Japanese Edition [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190108.jpgsave_picture_190108.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Puddle of Mudd - Ubiquitous (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190138.jpgsave_picture_190138.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Osaka Punch - Mixed Ape (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190158.jpgsave_picture_190158.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Eclipse - Megalomanium (2023) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190163.jpgsave_picture_190163.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Nenufar - Take the Pain Away (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190172.jpgsave_picture_190172.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ The Quireboys - Amazing Disgrace (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190177.jpgsave_picture_190177.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Limbs - Everything Under Heaven (2023) [FLAC|Lossless|WEB-DL|tracks] <Mathcore, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190188.jpgsave_picture_190188.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ The Sound That Ends Creation - Exactly What You Thought, But Worse Than You Imag
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190190.jpgsave_picture_190190.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Captain Planet - Come On, Cat (2023) [FLAC|Lossless|WEB-DL|tracks] <Verschiedene
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190193.jpgsave_picture_190193.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Danicide - Broken (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Melodic Death>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190194.jpgsave_picture_190194.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Morokh - Insomnia (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Hardcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190195.jpgsave_picture_190195.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Karpathian Relict - Never Be After (2023) [FLAC|Lossless|WEB-DL|tracks] <Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190197.jpgsave_picture_190197.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Antipod - Eveil (2023) [FLAC|Lossless|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190201.jpgsave_picture_190201.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Spirit Adrift - Divided By Darkness (2019) 2020 [FLAC|Lossless|image + .cue] <Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190205.jpgsave_picture_190205.jpg" />
 </div>
 
 

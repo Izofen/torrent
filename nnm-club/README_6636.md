@@ -6,7 +6,7 @@ Rhinoceros 7 v.7.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218901.jpgsave_picture_218901.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Lancer - Tempest (2023) [FLAC|Lossless|WEB-DL|tracks] <Power-Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218907.jpgsave_picture_218907.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Unite 4 v.4.5.0 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218917.jpgsave_picture_218917.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Kataklysm - Goliath (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218950.jpgsave_picture_218950.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Swift Publisher 5 v.5.6.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218963.jpgsave_picture_218963.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:A3F3AEBFD5A66E5B07D574D6908A23DA2AEF2EC6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218973.jpgsave_picture_218973.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:B55CAFEFECA3A71E0D63A4244A408108F74514C5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218982.jpgsave_picture_218982.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Hell in the Club - F.U.B.A.R. (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218992.jpgsave_picture_218992.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ MacCleanse 12 v.12.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219006.jpgsave_picture_219006.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Oscar Pettiford - Another One (1955) 2000, Bethlehem [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219015.jpgsave_picture_219015.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ MacMagic 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219020.jpgsave_picture_219020.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Mactracker 7.12.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219029.jpgsave_picture_219029.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:F66B5F62156DD12350DF37CA6A8F2F3C3E92E552
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219042.jpgsave_picture_219042.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Lucifungus - 3 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom, S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219048.jpgsave_picture_219048.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Colibri 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219064.jpgsave_picture_219064.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Cryptal Darkness - Endless Tears... (1996) [FLAC|Lossless|image + .cue] <Atmosph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219072.jpgsave_picture_219072.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Decimator - Alienist (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219083.jpgsave_picture_219083.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Darkness Everywhere - The Seventh Circle (2022) EP [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219091.jpgsave_picture_219091.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Decimator - Bloodstained (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219101.jpgsave_picture_219101.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Cryptal Darkness - Chapter II - The Fallen (2001) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219112.jpgsave_picture_219112.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Cryptal Darkness - They Whispered You Had Risen (1999) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219119.jpgsave_picture_219119.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ December's Mourning - Desolate Shores (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219129.jpgsave_picture_219129.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ DeathCollector - Death's Toll (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219137.jpgsave_picture_219137.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:F97637889BD6ACE6A7074500A69FF22D685D6F43
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219266.jpgsave_picture_219266.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:C890933CC3FD8EB3F051AF2EEAA1EE69B35BF5E0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219361.jpgsave_picture_219361.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Meg Myers - I'd Like 2 Go Home Now (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219430.jpgsave_picture_219430.jpg" />
 </div>
 
 

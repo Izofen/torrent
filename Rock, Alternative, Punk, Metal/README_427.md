@@ -6,7 +6,7 @@ Pure Reason Revolution - Eupnea (2020) [FLAC|Lossless|image + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237169.jpgsave_picture_237169.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Thorium - Empires In The Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237172.jpgsave_picture_237172.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Karnataka - Requiem For A Dream (2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237179.jpgsave_picture_237179.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:A35B35E1EA9CC8A1D2FB54CA84608AF24877DA7B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237183.jpgsave_picture_237183.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Iced Earth - Iced Earth (1990) [FLAC|Lossless|image + .cue] <Thrash Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237203.jpgsave_picture_237203.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Dirty Seeds - Beware The Beast Man (2023) [MP3|320 Kbps] <Heavy Rock, Stoner
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237209.jpgsave_picture_237209.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Iron Savior - The Landing (2011) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237210.jpgsave_picture_237210.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Scar Symmetry - The Singularity (Phase II - Xenotaph) (2023) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237214.jpgsave_picture_237214.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lunar Shadow - Wish to Leave (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237231.jpgsave_picture_237231.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Harakiri For The Sky - Maere (2021) 2xCD [FLAC|Lossless|image + .cue] <Post-Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237249.jpgsave_picture_237249.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The 69 Eyes - Death Of Darkness (2023) [FLAC|Lossless|image + .cue] <Goth Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237253.jpgsave_picture_237253.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Leverage - Above The Beyond (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237267.jpgsave_picture_237267.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:BDC37909F995FCDFD56FA54BDAD64B58A796C68C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237286.jpgsave_picture_237286.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Victor Smolski - Majesty & Passion (2004) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237298.jpgsave_picture_237298.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Killer Be Killed - Killer Be Killed (2014) [FLAC|Lossless|tracks + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237305.jpgsave_picture_237305.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Midnight Phantom - L.A. Nights (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237312.jpgsave_picture_237312.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Arjen A. Lucassen (Ayreon, Star One, Ambeon, Guilt Machine, The Gentle Storm) - 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237324.jpgsave_picture_237324.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Devoid - Lonely Eye Movement (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237329.jpgsave_picture_237329.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Helestios - Your Pain Tastes Good (2020) [FLAC|Lossless|WEB-DL|tracks] <Power, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237335.jpgsave_picture_237335.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Lutharo - Hiraeth (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237337.jpgsave_picture_237337.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Midnight Phantom - Hollywood Dreams (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237365.jpgsave_picture_237365.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Peter Hammill – Out Of Water (1990) [FLAC|Lossless|tracks + .cue]<Art Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237375.jpgsave_picture_237375.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Hyades - The Wolves Are Getting Hungry (2015) [FLAC|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237400.jpgsave_picture_237400.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Phlesh - The Decomposing (2023) [MP3|320 Kbps] <Gothic, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237401.jpgsave_picture_237401.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ LAC - Limbo (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237408.jpgsave_picture_237408.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Gates of Prophecy - Gates of Prophecy (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237414.jpgsave_picture_237414.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76825.jpgsave_picture_76825.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Windows XP 2012 Pro SP3 SanBuild 2012.2 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76826.jpgsave_picture_76826.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Windows XP 2012 Pro SP3 SanBuild 2012.2 [Русский]
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76827.jpgsave_picture_76827.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:69D843BEC8CA8246BF17A8B74A676478E354BD37
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76834.jpgsave_picture_76834.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:69D843BEC8CA8246BF17A8B74A676478E354BD37
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76836.jpgsave_picture_76836.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:2B60B75D8E2DB23C951372847DB96E6033E9D64F
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76837.jpgsave_picture_76837.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Vidalia 2.2.35-6 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76844.jpgsave_picture_76844.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Tor (The Onion Router) — свободное программное обесп�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76851.jpgsave_picture_76851.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Tor (The Onion Router) — свободное программное обесп�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76860.jpgsave_picture_76860.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:1436D0CDC117E384190D12D8756C82084BA99095
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76871.jpgsave_picture_76871.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:94FAEC950E834CBB532222F9BC6B93E427E92F15
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76876.jpgsave_picture_76876.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Vandread / Вандред [2000][manga][Русский][главы 1-14][Complet
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76880.jpgsave_picture_76880.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:21590290FF8310ECF7E86CBAEEBCCB4E74D603EF
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76883.jpgsave_picture_76883.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:B76F8C453D5C13465595684C4A88CD1AD41A1028
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76885.jpgsave_picture_76885.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:E29ADE70F555866EBB1AC1FD846F1C0C4C141A68
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76890.jpgsave_picture_76890.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:3BE0CF8024F1DA9AB7EE4B8E5F8E2B1648104983
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76898.jpgsave_picture_76898.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Eros Ramazzotti - Stilelibero (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76903.jpgsave_picture_76903.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Eros Ramazzotti - Stilelibero (2001) DVD9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76904.jpgsave_picture_76904.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:40CA16AD7663184C72D9D5910513BC545EE1614C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76906.jpgsave_picture_76906.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Discovery: Тайна Забытой Царицы Египта / Discovery: Secr
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76907.jpgsave_picture_76907.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:7F809CC1787C2F50A64754376B7BFD1C68491F29
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76912.jpgsave_picture_76912.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:7F809CC1787C2F50A64754376B7BFD1C68491F29
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76916.jpgsave_picture_76916.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Smashing Pumpkins - 8 альбомов ,28 Синглов(1991-2008) [MP3|320 kb
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76919.jpgsave_picture_76919.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Smashing Pumpkins - 8 альбомов ,28 Синглов(1991-2008) [MP3|320 kb
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76927.jpgsave_picture_76927.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:595E3ABBA04F166C16848352969DE74FACB37647
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76928.jpgsave_picture_76928.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:595E3ABBA04F166C16848352969DE74FACB37647
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76931.jpgsave_picture_76931.jpg" />
 </div>
 
 

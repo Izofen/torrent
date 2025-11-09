@@ -6,7 +6,7 @@
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169876.jpgsave_picture_169876.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mel Torme - Sings For Lovers 1982 - 1996 (2008) Concord Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169877.jpgsave_picture_169877.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:68C192D207DEF3112F0AEDBDDB9E65F66A68983D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169878.jpgsave_picture_169878.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:95C41C4B81914074DBF53B9C5414BC1AAD4C960B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169879.jpgsave_picture_169879.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:EEEAF6C87945CC3D892D5DBCD0ACB520BC6C3FC4
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169880.jpgsave_picture_169880.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ John Clark - I Will (1997) Postcards [FLAC|Lossless|image + .cue] <Post-Bop, Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169881.jpgsave_picture_169881.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:048BEC0E7927544099E2912D5188057A8114DB19
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169882.jpgsave_picture_169882.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Fathom - The Lurking Gloom (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169883.jpgsave_picture_169883.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:9AF41CB95EC77DDBF7F2F957E3D732ECC589140A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169884.jpgsave_picture_169884.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Blues Dance Hits (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169885.jpgsave_picture_169885.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Psideralica - Inhuman Feelings (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169886.jpgsave_picture_169886.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:367C279EA270A675D6381E814A296331BABE578B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169887.jpgsave_picture_169887.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ GFI Kerio Control 9.4.3 build 8243 [i386] 2xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169888.jpgsave_picture_169888.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:556DA9BA1D263C15EB2C4CE7E2DE0C5597D6B80D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169889.jpgsave_picture_169889.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Don Cherry - The Complete Blue Note Recordings Of Don Cherry (1965, 1966) 2CD, 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169890.jpgsave_picture_169890.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:F9D4E3EC592D265B6D1A5A132DE3CD6F058D23CA
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169891.jpgsave_picture_169891.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:94E3B6AF1ED1601896C17BCCBD9C0F08FC927298
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169892.jpgsave_picture_169892.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ save2pc Ultimate 5.6.2.1610 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169893.jpgsave_picture_169893.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Path Finder 10.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169894.jpgsave_picture_169894.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Merging Flare - Revolt Regime (2019) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169895.jpgsave_picture_169895.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Wendell Odom | CCNA 200-301 Official Cert Guide, Volume 1 / Официально
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169896.jpgsave_picture_169896.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ DjVu Reader Pro 2.4.3 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169897.jpgsave_picture_169897.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Tarmat - Out Of The Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169898.jpgsave_picture_169898.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:038860A5B6DDA0A9A417E5683ED99550C2DD996C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169899.jpgsave_picture_169899.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Blues & Roots Rock (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169900.jpgsave_picture_169900.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Wendell Odom | CCNA 200-301 Official Cert Guide, Volume 2 / Официально
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169901.jpgsave_picture_169901.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ K-Lite Codec Pack Update 17.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245659.jpgsave_picture_245659.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Power from Hell - Lust And Violence (2011) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245660.jpgsave_picture_245660.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Deckset 2.0.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245661.jpgsave_picture_245661.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Invisible 2.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245662.jpgsave_picture_245662.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:83888A2D23B36FD3AF7660F774AF62EA5EA397A8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245663.jpgsave_picture_245663.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:76442B81FE70F1D27B0F6330999112D1350EC126
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245664.jpgsave_picture_245664.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:778AB6DCB46150E2D461700D4C76299059D0DC58
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245665.jpgsave_picture_245665.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:E7F0D131D3B9D7F051CACC870C38E1BE3FFFB9DC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245666.jpgsave_picture_245666.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Hocico - HyperViolent (2022) 2xCD [FLAC|Lossless|image + .cue] <EBM, Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245667.jpgsave_picture_245667.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ De Profundis - The Corruption of Virtue (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245668.jpgsave_picture_245668.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ NirLauncher Package 1.23.71 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245669.jpgsave_picture_245669.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ LDA - Shattered Feelings. (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245670.jpgsave_picture_245670.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Mastodon - 8 Albums, 2 Compilation &  Live, 6 Singles & EP (2001-2021) 28CD [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245671.jpgsave_picture_245671.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:D028BDD141DB4E704AB1DD226B7F5E67360BCC25
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245672.jpgsave_picture_245672.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Java SE Development Kit 20.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245673.jpgsave_picture_245673.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Beleth - Silent Genesis (2021) [FLAC|Lossless|image + .cue] <Death Metal, Groove
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245674.jpgsave_picture_245674.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Blaze Of Sorrow - Vultus Fati (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245675.jpgsave_picture_245675.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:F1B71EA0665450BB75409AF7A0CDDC627F68D769
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245676.jpgsave_picture_245676.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ The Dave Stryker Trio - Prime (2022) [FLAC|Lossless|tracks + .cue] <Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245677.jpgsave_picture_245677.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ QOwnNotes 23.4.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245678.jpgsave_picture_245678.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ EssentialPIM Pro 11.0.3 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245679.jpgsave_picture_245679.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:132C8B468883CF19161A835349BCFFF0394471CA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245680.jpgsave_picture_245680.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:FD2244DA8FF25140ADC1696003C1677266E620A5
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245681.jpgsave_picture_245681.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Wojnar - Jam Synem Orlim Jest na Wieki!… (2009) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245682.jpgsave_picture_245682.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:F73A92795EECD4ECC0EF36EDB03751F89A498184
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245683.jpgsave_picture_245683.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Bubblegum Dance (2023) [MP3|320 Kbps] <Europop, Trance, Euro House, Vocal, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245684.jpgsave_picture_245684.jpg" />
 </div>
 
 

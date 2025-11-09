@@ -6,7 +6,7 @@ Emurasoft EmEditor Professional 22.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225466.jpgsave_picture_225466.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:63C6E6445B4E2A650445BBBAE790F57E08808EDC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225477.jpgsave_picture_225477.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:0C642EF87FAB406ABB51B5C6A8D265D20F05AA7F
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225487.jpgsave_picture_225487.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ DesktopOK 11.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225496.jpgsave_picture_225496.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C44C7A4EB68BDFA54EFF358AFEB35A07294391D4
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225506.jpgsave_picture_225506.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:68AC4395BAE7714D589D05ABDD16033A8CCFFFC8
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225514.jpgsave_picture_225514.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:8A0339AB0F3DB3E2BE5C138FE48D7B84084AFAD0
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225519.jpgsave_picture_225519.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Terrace Martin & Curly - Curly (2023) [MP3|320 Kbps] <Jazz, Smooth Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225525.jpgsave_picture_225525.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Cavalera - Morbid Visions (2023) [FLAC|Lossless|image + .cue] <Thrash Metal, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225532.jpgsave_picture_225532.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:2A699C1D62CC583A4D9F13C09B3DE2D99265185E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225539.jpgsave_picture_225539.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VA - Trance 2023 Vol. 7 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225547.jpgsave_picture_225547.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Wise Program Uninstaller 3.1.5.259 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225554.jpgsave_picture_225554.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:4ED7BE488327131841AF7EB62144103CDB547FC4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225562.jpgsave_picture_225562.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:87A1AEADA732D0CA9B50D381440A9D6FE46C3725
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225571.jpgsave_picture_225571.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Waterfox Current G5.1.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225613.jpgsave_picture_225613.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Ekseption & Royal Philharmonic Orchestra - Ekseption 00.04 (2023) Expanded Editi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225625.jpgsave_picture_225625.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:DB9ABE1C6A7B1EF46BF537F0155B94B752328CB8
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225639.jpgsave_picture_225639.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:2A1B7ED15FED47ACD1447A989065723BF1BF3EAF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225649.jpgsave_picture_225649.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:4531046262DEEB79F0065E2E2F147CE2FF5282B7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225659.jpgsave_picture_225659.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Outlanders - From Chaos to Extinction (2023) [MP3|320 Kbps] <Heavy, Thrash Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225670.jpgsave_picture_225670.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:7A796C8E1DBD04D8C06D1BD2C4FFFFACB09CA5C8
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225678.jpgsave_picture_225678.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:4A5251E4D8F5069DCB383257C6DA1DA94E33AB9F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225690.jpgsave_picture_225690.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ PicPick Free+Pro 7.2.1 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225699.jpgsave_picture_225699.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:FDA9292A67A0150D9F06D0B743436337DAA467A0
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225706.jpgsave_picture_225706.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:16EAEFD2EB1DF355144930CA27A718921137A49E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225713.jpgsave_picture_225713.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:6D1D0BB4917DC6D66EF8E8096353137BC8E26F6C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225722.jpgsave_picture_225722.jpg" />
 </div>
 
 

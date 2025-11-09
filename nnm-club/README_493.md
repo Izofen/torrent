@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13084.jpgsave_picture_13084.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:65EA7FB98CB5EFD6B1817D9F8E0434CF74F48F94
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13085.jpgsave_picture_13085.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:858328C6E4F377B058D15B5974EEA094062E3A76
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13086.jpgsave_picture_13086.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Architect Life: A House Design Simulator (2025) [Ru/Multi] (1.0/dlc) Repack FitG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13087.jpgsave_picture_13087.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C41F6A8CECA675992151DC65C4D475057F0097F3
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13088.jpgsave_picture_13088.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:DE5B61695BE705CF0DD5669B1CD6D3E38244397D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13089.jpgsave_picture_13089.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9/dlc) Scene Rune [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13090.jpgsave_picture_13090.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Ninja to Koroshiya no Futarigurashi | NinKoro | Ниндзя и ассасин �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13091.jpgsave_picture_13091.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Luminar Neo 1.24.4.14984 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13092.jpgsave_picture_13092.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Kuroshitsuji: Midori no Majo Hen | Black Butler: Emerald Witch Arc | Тёмны�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13093.jpgsave_picture_13093.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Dragons Reef (2025) [Ru/Multi] (1.2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13094.jpgsave_picture_13094.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ K-Lite Codec Pack 19.0.5 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13095.jpgsave_picture_13095.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:06D23A6F4E1AEACBCF0F4221D193334279C63E2F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13096.jpgsave_picture_13096.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:86A6613D13A0083B35BA752195B2CFC094F3E9DF
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13097.jpgsave_picture_13097.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Adobe Illustrator 2025 29.6.1.9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13099.jpgsave_picture_13099.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:77A4F947FFA06BADEBDC19EB050AD7B3838B613C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13100.jpgsave_picture_13100.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:77A4F947FFA06BADEBDC19EB050AD7B3838B613C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13101.jpgsave_picture_13101.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:77A4F947FFA06BADEBDC19EB050AD7B3838B613C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13102.jpgsave_picture_13102.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:D39FFB8DAF85F4E774A25590291E4CE74164870F
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13103.jpgsave_picture_13103.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Google и TikTok разместили свое оборудование побл
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13104.jpgsave_picture_13104.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Google, TikTok и ряд других компаний разместили кэ
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13105.jpgsave_picture_13105.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:E41484C44694FC64997F51B8BBCF7A6A865D71A3
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13106.jpgsave_picture_13106.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:9FFD856282B04E1E75E683D732D56EE30C8224D3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13107.jpgsave_picture_13107.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Deathless. Tales of Old Rus / Бессмертный. Сказки Старой 
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13108.jpgsave_picture_13108.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:F545846F18D9430A038D4EF0BB42D8C1FC87119F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13109.jpgsave_picture_13109.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:2468B479D6B7D68A6FB14687316BAAC006982652
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13110.jpgsave_picture_13110.jpg" />
 </div>
 
 

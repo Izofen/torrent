@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2793.jpgsave_picture_2793.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FE7BA56E7A741D6589A5A2B8069F221B4A65DBA6
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2794.jpgsave_picture_2794.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3C867657A98FD73F9D83E0995A47AC8453026667
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2795.jpgsave_picture_2795.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F2CA657F57603412555C43CCCF1E2C670E8E8E29
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2796.jpgsave_picture_2796.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:E83D4A63033E298A81318EAF9DD0121E51281366
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2797.jpgsave_picture_2797.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:AC84A1BCE6F80D166E93417E268EF31F38A75DD8
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2798.jpgsave_picture_2798.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:EEAB7B6825227FBE629CB69F923830D315B01411
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2799.jpgsave_picture_2799.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ BZ Напоминания и Дни Рождения PRO v3.9.3 Mod by Viktor245
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2800.jpgsave_picture_2800.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:72FF9648A6ED2795CD7A74C6B1C85A2431CF9975
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2801.jpgsave_picture_2801.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:46EF8186860649C3D716426DA80EACC86566ED3A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2802.jpgsave_picture_2802.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:46EF8186860649C3D716426DA80EACC86566ED3A
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2803.jpgsave_picture_2803.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:E4BEB22E2C9AEC93E12DD2831377E49E96676D94
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2804.jpgsave_picture_2804.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:9EA3D2F83AD39A6D622931716DF2EC80E31A3FB0
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2805.jpgsave_picture_2805.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Master PDF Editor 5.9.94 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2806.jpgsave_picture_2806.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:29701D271A10775DE42A3CEF4B3676849A5C395E
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2807.jpgsave_picture_2807.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:05BE5A2166199DE1E9379232762E17AAED6F85A3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2808.jpgsave_picture_2808.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:0F7D4A64F122B2F2CBEBF7C8FE347ADD7DD3B8C3
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2809.jpgsave_picture_2809.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Captain of Industry (2022) [Ru/Multi] (0.7.9) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2810.jpgsave_picture_2810.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:F9FC8B361773ECE43EB35051DC5A90C5EC75FEBC
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2811.jpgsave_picture_2811.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:140D21B885C07E3C064389F85E0C392409B46DE6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2812.jpgsave_picture_2812.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - Tomorrowland Belgium (2025) [MP3|320 Kbps] <House, Trance, Techno, Drum & B
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2813.jpgsave_picture_2813.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:53E3B4840412EFE614C26BE7DEDD4BB7166E8AE3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2814.jpgsave_picture_2814.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Discovery: Мастерская Ричарда Хаммонда / Richard Hammon
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2815.jpgsave_picture_2815.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ ASCOMP Screencapt 2.004 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2816.jpgsave_picture_2816.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ The Procession to Calvary (2020) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2817.jpgsave_picture_2817.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Master PDF Editor 5.9.94 (x64) [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2818.jpgsave_picture_2818.jpg" />
 </div>
 
 

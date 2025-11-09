@@ -6,7 +6,7 @@ Indian Handcrafts - Empress in Decline (2022) [MP3|320 Kbps] <Stoner Rock, Punk 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239820.jpgsave_picture_239820.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Biodub - Minutenschlaf EP (2012) Tiefenrausch [FLAC|Lossless|WEB-DL|tracks] <Dub
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239821.jpgsave_picture_239821.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:BEE3FE5A21331D8113C15E140CAC96946C5DA0F7
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239822.jpgsave_picture_239822.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ The Hirs Collective - We're Still Here (2023) [FLAC|Lossless|WEB-DL|tracks] <Cha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239823.jpgsave_picture_239823.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:36A6BA1AA3A32AA6316310985F559A738592186F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239824.jpgsave_picture_239824.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:79EB8551C1C0E3BD068E6D480C104A4D73B315CC
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239825.jpgsave_picture_239825.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Buddha Room - 2 + Hours of World Music (2018) [MP3|320 Kbps] <Ethnic, World Musi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239826.jpgsave_picture_239826.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Morpheus Descends - Ritual Of Infinity (1991, 1992) Reissue, 2005, XTREEM MUSIC 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239827.jpgsave_picture_239827.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ PullTube 1.6.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239828.jpgsave_picture_239828.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:436591906CD953D660A0A5B3F61F09E3E0FE545D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239829.jpgsave_picture_239829.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Asylum Pyre - Call Me Inhuman - The Sun - The Fight - Part 5 (2023) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239830.jpgsave_picture_239830.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:B0B0A91E7A010F27447A7A06D9C24BDE1F6E99F4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239831.jpgsave_picture_239831.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:4137AC35EBB64E91705D021437747C2390C04641
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239832.jpgsave_picture_239832.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ CyberLink AudioDirector Ultra 13.4.2730.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239833.jpgsave_picture_239833.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:7EC9F75E21015991343FBD12625961C9DF05F96C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239834.jpgsave_picture_239834.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ CHM Viewer Star 6.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239835.jpgsave_picture_239835.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:0EA8B83F497C4F10165D9681349C6FE3CB3475CD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239836.jpgsave_picture_239836.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:FF411EF07B393FC0491162219FB54B059F9B8CD9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239837.jpgsave_picture_239837.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:33D4E0D3F84E5516543085BDAE91E5390D8EE3E6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239838.jpgsave_picture_239838.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:2D0E808EFE921BD6541D3C36FED80ACBC03BF79D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239839.jpgsave_picture_239839.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:CFC2AA93B5039682DAE795E37C4A5D29740305CF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239840.jpgsave_picture_239840.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Sirenia - 1977 (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Symphonic, Gothic Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239842.jpgsave_picture_239842.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:37E0DE4443960B378548F8BB66595C3D8FEE77AC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239843.jpgsave_picture_239843.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:5910978DE3C35E21F475C0266B8339E830A1363C
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239844.jpgsave_picture_239844.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ discoDSP - Discovery Pro 7.7 STANDALONE, VSTi, VSTi 3, AAX Repack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239845.jpgsave_picture_239845.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ The Flood - Hear Us Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239846.jpgsave_picture_239846.jpg" />
 </div>
 
 

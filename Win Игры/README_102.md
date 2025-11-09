@@ -6,7 +6,7 @@ NEEDY STREAMER OVERLOAD / NEEDY GIRL OVERDOSE: Internet Angel Pack (2022) [Ru/Mu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28983.jpgsave_picture_28983.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Foundation (2019) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28989.jpgsave_picture_28989.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28994.jpgsave_picture_28994.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Deliver Us Mars (2023) [Ru/Multi] (build 17157569) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29013.jpgsave_picture_29013.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Stone of Madness (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29015.jpgsave_picture_29015.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Somnus (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29031.jpgsave_picture_29031.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Final Fantasy VII (7) Rebirth (2025) [Multi] (build 17035252) Scene FAiRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29050.jpgsave_picture_29050.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Princess&Blade (2021) [Multi] (0.95.6) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29059.jpgsave_picture_29059.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Eternal Strands (2025) [Multi] (1.0.12.8195) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29063.jpgsave_picture_29063.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rock Star Life Simulator (2024) [Ru/Multi] (1.0) RePack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29064.jpgsave_picture_29064.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29065.jpgsave_picture_29065.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534) Repack Let'sРlay [Supporter Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29066.jpgsave_picture_29066.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (Build 20147338/dlc) Re
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29083.jpgsave_picture_29083.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Call of Duty: Black Ops Cold War (2020) [Ru/Multi] (1.34.0.15931218) Repack sele
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29174.jpgsave_picture_29174.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ System Shock (2023) [Ru/Multi] (1.3.0.19128) Repack Let'sРlay [Remake]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29180.jpgsave_picture_29180.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Learning Factory (2021) [Ru/Multi] (1.0.0.546) Repack FitGirl [Curious Mind Edit
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29190.jpgsave_picture_29190.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Dark Town Secrets: Lost Lulu / Секреты Темного города: В п
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29211.jpgsave_picture_29211.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ JOY OF PROGRAMMING - Software Engineering Simulator (2024) [Ru/Multi] (1.0.0) Re
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29216.jpgsave_picture_29216.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ ReSetna (2025) [Ru/Multi] (build 17191225) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29221.jpgsave_picture_29221.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The End of the Sun (2025) [Ru/Multi] (1.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29224.jpgsave_picture_29224.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Industry Giant 4.0 (2024) [Ru/Multi] (0.4.2) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29230.jpgsave_picture_29230.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Battle Realms: Zen Edition (2019) [Ru/Multi] (1.59.1) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29232.jpgsave_picture_29232.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Manor Lords (2024) [Ru/Multi] (0.8.029) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29236.jpgsave_picture_29236.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.03.20053/dlc) License GOG [Digital Delux
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29239.jpgsave_picture_29239.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29273.jpgsave_picture_29273.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29288.jpgsave_picture_29288.jpg" />
 </div>
 
 

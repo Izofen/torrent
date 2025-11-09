@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132218.jpgsave_picture_132218.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B0768DBEC688DBA1411FC6D3A23330E84EBB9D08
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132219.jpgsave_picture_132219.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A5D43E65E03073705AF78B53E0E5163BBE123DC4
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132220.jpgsave_picture_132220.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5A9DD43F56E25469275242BE409F27AC23A9C92A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132221.jpgsave_picture_132221.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132222.jpgsave_picture_132222.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E89A6BB21601FF9993CA8D1FE23330C24933862A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132223.jpgsave_picture_132223.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:24F02A49862A441EF1EB80384B49E473800A7745
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132224.jpgsave_picture_132224.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:EB20BB0F61AE203B9E7E98944DC488E1C33D4180
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132226.jpgsave_picture_132226.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - USA Hot Top 40 Singles Chart 30 December (2012) (2012) [MP3|256 кб/с]<Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132227.jpgsave_picture_132227.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:7B5EB6CCB1673756221B291B9EE99E0BBE6B2F78
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132228.jpgsave_picture_132228.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:99D48AE7B83461E274AF37C7F626FC1EB4BE9A55
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132229.jpgsave_picture_132229.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:8E9463BD4B7053979D8AF2F5AB4ACDE9C97E0207
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132230.jpgsave_picture_132230.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:2031F18BF91447F09F5B60150D1EC148FD325D01
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132231.jpgsave_picture_132231.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:8CCA6F3F1D1AA0977119880FD8CC54BCA4AF9178
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132232.jpgsave_picture_132232.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:0FACBB09A596F6A0032229899B19B2CF5AEC048E
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132234.jpgsave_picture_132234.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:2A3087A461ACD316C5595088A0CD05B9D7A4F0AE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132236.jpgsave_picture_132236.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Deus Otiosus - Godless (2012) [FLAC|Lossless]<Old School Death / Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132237.jpgsave_picture_132237.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Computer Desktop Wallpapers Collection (29.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132239.jpgsave_picture_132239.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:E79D3F8E2582106B051C5B9D4090F0DFF50FEA37
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132240.jpgsave_picture_132240.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:FEA614743AA0D9489AADEB731FB85E14F90C8174
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132241.jpgsave_picture_132241.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:00CEEA549C39B866E4D34E2497313C17809198FE
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132242.jpgsave_picture_132242.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:8D23CD88B4B1CB489E7FFD553BD55959841FDEA3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132244.jpgsave_picture_132244.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:5052DAAAC6BC73CFDF289541D747374CD09F13A6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132245.jpgsave_picture_132245.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Udemy, Art Studio313 | Master 3D & 2D Hand Painting/Combine Blender & Photoshop 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132246.jpgsave_picture_132246.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:8B4CE765E1335F4D7E6B6BD98471937A2ADF3BCC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132247.jpgsave_picture_132247.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ magnet:?xt=urn:btih:00846BC8E61933B04C68C7010AF4D7DBEB01B517
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132248.jpgsave_picture_132248.jpg" />
 </div>
 
 

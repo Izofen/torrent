@@ -6,7 +6,7 @@ Nat King Cole, George Shearing - Nat King Cole Sings / George Shearing Plays (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248788.jpgsave_picture_248788.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Hekasoft Backup & Restore 0.8 [Мульти, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248789.jpgsave_picture_248789.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Hekasoft Backup & Restore – это небольшая утилита для с
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248796.jpgsave_picture_248796.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Hekasoft Backup & Restore – это небольшая утилита для с
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248798.jpgsave_picture_248798.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Hekasoft Backup & Restore – это небольшая утилита для с
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248808.jpgsave_picture_248808.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:B3FC6C0BDDC80B274DF0513A272F3676D0EB4E7C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248810.jpgsave_picture_248810.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Oiynsoft Alarm Clock 3.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248814.jpgsave_picture_248814.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ FireLake - The Temptation Journey (2005) [MP3|320 кб/с]<Progressive Melodic D
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248817.jpgsave_picture_248817.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - Maxi. Танцевальный расколбас Europa Plus (2012) [MP3|3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248820.jpgsave_picture_248820.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VA - Maxi. Танцевальный расколбас Europa Plus (2012) [MP3|3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248821.jpgsave_picture_248821.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:9EF5F872B5D4F5205CAE20FFD6E345185C8F1D1C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248825.jpgsave_picture_248825.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ MusicDevelopments - RapidComposer v.1.91 x86 by MESMERiZE[exe][английск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248830.jpgsave_picture_248830.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ RapidComposer – это универсальная программа для н
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248831.jpgsave_picture_248831.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ RapidComposer – это универсальная программа для н
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248832.jpgsave_picture_248832.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:130A835ABC52969617EA59E410403786ACD516E5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248837.jpgsave_picture_248837.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Новинки Авто Дискотек 50\50 (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248842.jpgsave_picture_248842.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:4AD9056138B1371726F5F954FAFE254278ABE897
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248847.jpgsave_picture_248847.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:477B86C6DE47A4D10F84F3D93857738B2E07810D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248848.jpgsave_picture_248848.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Foxit PhantomPDF Business v5.2.0.0502 Final / Portable / Lite Portable [2012,x86
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248850.jpgsave_picture_248850.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Foxit Phantom – быстрая программа, которая предна
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248853.jpgsave_picture_248853.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - Инструментальная музыка (2012) vol. № 30 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248856.jpgsave_picture_248856.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:75A128908F120725C080B87B710DDF2D90F8A1B1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248858.jpgsave_picture_248858.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:75A128908F120725C080B87B710DDF2D90F8A1B1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248859.jpgsave_picture_248859.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Инструментальная музыка (2012) vol. № 29 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248860.jpgsave_picture_248860.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:DD63D75D6F617B87ECAFBEBDF7FA9CD14BBAB40F
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248864.jpgsave_picture_248864.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ magnet:?xt=urn:btih:91A4FC68BB116D4685A18025D99E8B11C9E04397
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248869.jpgsave_picture_248869.jpg" />
 </div>
 
 

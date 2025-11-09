@@ -6,7 +6,7 @@ Christian Artmann - Our Story (2018) Sunnyside Records [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154611.jpgsave_picture_154611.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bandicam 6.0.6.2034 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154612.jpgsave_picture_154612.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:672D6A09D7A387AAFDBD2858BE9AE2DAC5CEF99B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154613.jpgsave_picture_154613.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ VA - Modern Rock Bangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154614.jpgsave_picture_154614.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:830796D73666C82A90F2A3D46EB6F2CDF651FFC6
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154615.jpgsave_picture_154615.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Claude Hopkins - 1934 - 1935 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154616.jpgsave_picture_154616.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:8DCA4F50E93A2BFE342ADED86E663EC40CFC7D23
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154617.jpgsave_picture_154617.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:2A6D21F440CEA4308182A46EDC3943A39AB23F18
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154618.jpgsave_picture_154618.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:860CEF9DED96FEE14E74A831B715D7A6815AE5BD
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154619.jpgsave_picture_154619.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ BitTorrent Classic 7.11 Build  46591 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154620.jpgsave_picture_154620.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Skillbox, Оксана Осадченко | Fashion-скетчинг (2021) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154622.jpgsave_picture_154622.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Advanced SystemCare Pro 16.1.0.106 RePack by OctaneS [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154623.jpgsave_picture_154623.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:804C2BF5D3CBFF8DCC830A673F73483342E4260F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154624.jpgsave_picture_154624.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:8A317F1F66646F6BA9C955065EAD2B94759EF90E
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154625.jpgsave_picture_154625.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:D0EEF82F87B0B8B64ACCB74A0B2F014D29699F60
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154626.jpgsave_picture_154626.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:CFA31593C1ED3FB9B2153540B81D114DADAA1C36
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154627.jpgsave_picture_154627.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:65F151A3929A2AD51327FF6689783056B66AEFDC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154628.jpgsave_picture_154628.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:7654199EE9760F4CD4B41D5A75B722592F36CA91
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154629.jpgsave_picture_154629.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ HTML Academy | Дизайн для фронтендеров (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154630.jpgsave_picture_154630.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:3BA907B0DA6101C4C8A94D2FE62A057024C03490
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154631.jpgsave_picture_154631.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:BA280926035E08F639A9648AFB497DAED4D2875D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154632.jpgsave_picture_154632.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Convert Monster | Тренды интернет-маркетинга 2018 (2017)
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154633.jpgsave_picture_154633.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.1415]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154634.jpgsave_picture_154634.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Kaspersky Free Antivirus 19.0.0.1088 (d) Repack by LcHNextGen (19.12.2018) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154635.jpgsave_picture_154635.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ L'Orange - Koala (2016) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154636.jpgsave_picture_154636.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:4D8FFA0F3FA571B4D80D8BE09833A6A1330E963C
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154638.jpgsave_picture_154638.jpg" />
 </div>
 
 

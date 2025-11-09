@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106577.jpgsave_picture_106577.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Jonas Johansen, Lennart Ginman, Thor Madsen - Adventure (2024) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106578.jpgsave_picture_106578.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Stan Getz - Four Classic Albums (1955 - 1961) 2CD, 2012, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106579.jpgsave_picture_106579.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sylvan - Back To Live (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Neo-Prog>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106580.jpgsave_picture_106580.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Sylvan - Back To Live (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Neo-Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106581.jpgsave_picture_106581.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Herbie Mann's Californians - Great Ideas Of Western Mann (1957) 2001, Original J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106582.jpgsave_picture_106582.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Hami Cho - My Season (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106583.jpgsave_picture_106583.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Donut Dodo (2022) [En] (1.3.9.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106584.jpgsave_picture_106584.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:E0D479C54AF79A50F2095B4CC94C9D40A08A33D9
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106585.jpgsave_picture_106585.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Stay Away - СССР 2078 (2024) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106586.jpgsave_picture_106586.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Bazaart: Photo Editor & Graphic Design v2.6.3 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106587.jpgsave_picture_106587.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:002ABE52344374F727D1AE210B6EFF4E9FC54FF7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106588.jpgsave_picture_106588.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Axxis - Coming Home (2024) [MP3|320 Kbps] <Melodic Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106589.jpgsave_picture_106589.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:455C8E40CF73F179C9ECD1FBF8A97B14C6B72813
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106590.jpgsave_picture_106590.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Kucka - Can You Hear Me Dreaming? (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106591.jpgsave_picture_106591.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:FA4A9749E869DEC2078E451C1B1ACA1EFFBF9526
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106592.jpgsave_picture_106592.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Visions Of Atlantis - Pirates II - Armada (2024) [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106593.jpgsave_picture_106593.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Bay City Rollers - 2 Albums (1974, 1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106594.jpgsave_picture_106594.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Eric Ladish - Songs from In Between (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106595.jpgsave_picture_106595.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:7E8FB45CCD1960F817A4047EE93B0A69D094831E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106596.jpgsave_picture_106596.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:969FD0E9D049546C580A970B89ECA5B4D438F88F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106597.jpgsave_picture_106597.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:5EB73116E2AEC65785A2B9055C469BA73C5C62C1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106598.jpgsave_picture_106598.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Status Quo - Official Archive Series Vol. 1: Live in Amsterdam 2010 (2023) New M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106599.jpgsave_picture_106599.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Status Quo - Official Archive Series Vol. 3: Live at Westonbirt Arboretum 2008 (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106600.jpgsave_picture_106600.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:B691CA49EA3CFB82FA7E645CB4F5E39CC3F6E27E
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106601.jpgsave_picture_106601.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ VA - Nothing But... Trancetopia Vol. 16 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106602.jpgsave_picture_106602.jpg" />
 </div>
 
 

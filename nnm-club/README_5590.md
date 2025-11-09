@@ -6,7 +6,7 @@ O&O DiskImage Professional 18.4 Build 330 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172330.jpgsave_picture_172330.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Living Weather & Wallpapers HD 5.3.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172331.jpgsave_picture_172331.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BF1E9526B37ACD3C4666EA2DECE6C16F5EC0ACC3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172332.jpgsave_picture_172332.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Suanda Amsterdam 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172333.jpgsave_picture_172333.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Zoner Photo Studio X 19.2309.2.499 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172334.jpgsave_picture_172334.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Affinity Photo 2 v.2.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172335.jpgsave_picture_172335.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ One Switch 1.32 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172336.jpgsave_picture_172336.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Ice Nine Kills - Welcome To Horrorwood: Under Fire (2023) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172337.jpgsave_picture_172337.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ The Who - Live At Leeds (1970) Deluxe Edition, 2014, Geffen [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172338.jpgsave_picture_172338.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:10A16B044B9793C3FBB953FEA4543557CA3A5645
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172339.jpgsave_picture_172339.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ AnyMP4 iOS Cleaner 1.0.28 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172340.jpgsave_picture_172340.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ George Mraz In Duet With Roland Hanna - Porgy & Bess (1976) 2020, Octave Lab [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172341.jpgsave_picture_172341.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Affinity Publisher 2 v.2.2.1  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172342.jpgsave_picture_172342.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ AirFoil+Airfoil Satellite 5.11.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172343.jpgsave_picture_172343.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:76951D0EEE6286C5C07DA4D850933DE5C1D814C3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172344.jpgsave_picture_172344.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:1B22431BC06A63F7A60478D43A3AE6405344ED36
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172345.jpgsave_picture_172345.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:945B1CB17E6F0EC3EE5FEF877DE1F0A7BF3C2BB3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172346.jpgsave_picture_172346.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:8BEE39C309CA95ED58F684DC74B36F8D5901CE18
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172347.jpgsave_picture_172347.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Raven Tide - Eleven (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic/Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172348.jpgsave_picture_172348.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:EB57D62418047174F83406C6082C8CDAF95915DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172349.jpgsave_picture_172349.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Clare Fischer - Alone Together (1975) 1997, Advance Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172350.jpgsave_picture_172350.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Eddie "Lockjaw" Davis - The Heavy Hitter (1979) 1998, 32 Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172351.jpgsave_picture_172351.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ TechSmith Camtasia 2023 Studio 2023.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172352.jpgsave_picture_172352.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:A8FF42A5D9345526CFB1253D652BA5ED18BA5BF8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172353.jpgsave_picture_172353.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:C171729F150F988C8CB31E235A09303D2358B19A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172354.jpgsave_picture_172354.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Durnev - В Мир Иной (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172355.jpgsave_picture_172355.jpg" />
 </div>
 
 

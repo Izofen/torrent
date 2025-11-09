@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97667.jpgsave_picture_97667.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Лучшие клубные хиты (2012) [MP3|192-256 кб/с]<Dance, Cl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97669.jpgsave_picture_97669.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:22A078E44FE3A5BC54AC76EBBC62595CE32E7FCD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97670.jpgsave_picture_97670.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ magnet:?xt=urn:btih:7591D3CF931527D987CD9663124AA2AE193766A7
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97671.jpgsave_picture_97671.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VA - Ayurveda Lounge. Relaxation & Meditation. Volume 2 (2012) [MP3|320 кб/с]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97675.jpgsave_picture_97675.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ VA - XXXL Продвинутый Русский Весна (2012) [MP3|256 kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97676.jpgsave_picture_97676.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:E602F64EF90E7615876BFACC525E86315BB9BAD2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97677.jpgsave_picture_97677.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - XXXL Максимальный Хит 50/50 (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97680.jpgsave_picture_97680.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Зажги танцпол 50/50 (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97681.jpgsave_picture_97681.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:8CF9A82495397E01D94151FE807908835FE286BF
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97682.jpgsave_picture_97682.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - Русское Радио. Фестиваль Хитов (2012) [MP3|128 kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97684.jpgsave_picture_97684.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - Deep Line. Best Of ChillOut & Lounge (2012) [MP3|320 кб/с]<Downtempo, Lo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97685.jpgsave_picture_97685.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:60F99F9EE824F28A401A74F120117407A90B590A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97691.jpgsave_picture_97691.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:3673751FDFD88AE0621585751DF0B88C6BFE9638
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97695.jpgsave_picture_97695.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - Гуляй братан! Песни шансона (2012) [MP3|256 кб/с]
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97698.jpgsave_picture_97698.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Gustav Lundgren - Plays Django Reinhardt (2012) [MP3|256 кб/с]<Gypsy Swing, J
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97701.jpgsave_picture_97701.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:B5069D622380B3105485F9171595D5AE02C6C682
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97702.jpgsave_picture_97702.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Georgia Gibbs - The Complete Original Hits Of Georgia Gibbs (2007  (1950-1958)) 
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97705.jpgsave_picture_97705.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ At The Ruins - Death Earth Empire (2012) [MP3|320 кб/с]<Post-Hardcore / Elect
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97711.jpgsave_picture_97711.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:52F969D87316FA16EE235C1C6116B9611D1D04A0
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97712.jpgsave_picture_97712.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:324EE763E5BF4F453D402C75FA9E1E1E24C78F94
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97714.jpgsave_picture_97714.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:E458773EC71BA97AD0B672CD73F2D537A9B34F49
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97720.jpgsave_picture_97720.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:FF00FC00A42E106BE4DC5ECB405CDA763E44FDE6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97721.jpgsave_picture_97721.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:F471DBD711598BFD01C0EF3FF7A5618309FBBE00
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97723.jpgsave_picture_97723.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Vespera - Desert Of The Real (2011) [MP3|320 кб/с]<Gothic / Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97724.jpgsave_picture_97724.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ Obsidian Gate - Colossal Christhunt (2001) [MP3|320 кб/с]<Symphonic Black Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97727.jpgsave_picture_97727.jpg" />
 </div>
 
 

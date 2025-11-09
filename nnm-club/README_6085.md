@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191559.jpgsave_picture_191559.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CD44D1E8395C21AEDC79827543DE9B3B2676A1E1
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191560.jpgsave_picture_191560.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ EF Commander 2023.09 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191561.jpgsave_picture_191561.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4709B4BE39CC6264BE3B9821C1CADD557D285103
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191562.jpgsave_picture_191562.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:B63B84A70CD80641B2F342130B669AAA31B0A13D
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191563.jpgsave_picture_191563.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:836AEC8C58975F6A8B65C65E6C6355F44DC85566
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191564.jpgsave_picture_191564.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ NIUBI Partition Editor 9.7.7 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191565.jpgsave_picture_191565.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Icecream Screen Recorder PRO 7.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191566.jpgsave_picture_191566.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:2A7F785D137AC2FFA0ADB417C28DBF26D381E896
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191567.jpgsave_picture_191567.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Free Hex Editor Neo 7.37.00.8578 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191568.jpgsave_picture_191568.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:987DA4C3D28A394C17BE2E7A681E83E2A4545E52
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191569.jpgsave_picture_191569.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Sumatra: Fate of Yandi (2019) [Multi] (1.2) License GOG [Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191570.jpgsave_picture_191570.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:D337000F742F5CEC8D2F6698C05FA52AE8AF8963
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191571.jpgsave_picture_191571.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ The Offering - Seeing The Elephant (2022)  [FLAC 2.0|96/24|tracks|WEB-DL] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191572.jpgsave_picture_191572.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ HiPER Calc Pro (Scientific Calculator) 10.3.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191573.jpgsave_picture_191573.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ jv16 PowerTools 7.7.0.1524 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191574.jpgsave_picture_191574.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:8FA63C01DD2DC08CC39AB2664263C0D079F1B93C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191575.jpgsave_picture_191575.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:A5A4D250816255EB4787E596F1BF6E35104CB19C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191576.jpgsave_picture_191576.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ RegCool 1.343 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191577.jpgsave_picture_191577.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:BE5441F94197C851488E65AB232F8F8E9A40AAFB
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191578.jpgsave_picture_191578.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:F66736B73CB8BBDF21504A33C19C86DBD024EC8E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191579.jpgsave_picture_191579.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Calibre 6.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191580.jpgsave_picture_191580.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:450C07A6107655A2A1A26E5BC1830CB4ACF43A53
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191581.jpgsave_picture_191581.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:CB06D9559EA0217C3975670399153D6C13F25185
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191582.jpgsave_picture_191582.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ FanControl V136 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191583.jpgsave_picture_191583.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:5A5A3BA36253A2FF10C359933ED28CC48D251373
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191584.jpgsave_picture_191584.jpg" />
 </div>
 
 

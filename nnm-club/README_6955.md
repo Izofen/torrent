@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238773.jpgsave_picture_238773.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dash 6.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238776.jpgsave_picture_238776.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6706AFC8216FE155E2C726A01B9B66AC9032310A
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238777.jpgsave_picture_238777.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6FCB0C0C18DF4FB455411C9C43C298070A0E4BE6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238778.jpgsave_picture_238778.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Stella Rose (Gahan) - Eye Of Glass (2023) [MP3|320 Kbps] <Alternative, Post Punk
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238779.jpgsave_picture_238779.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:F96AB523A0BFB606A7DC78C0153FA4DADA9A848E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238780.jpgsave_picture_238780.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:701E8042E3B19ED2C0E8086CF416408832B9B400
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238781.jpgsave_picture_238781.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lost Sacrament - Praesidio in Animo (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238783.jpgsave_picture_238783.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Jake Shears - Last Man Dancing (2023) [FLAC|Lossless|image + .cue] <Dance-pop, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238785.jpgsave_picture_238785.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:AC642524BD8222CEC45914135EFFCE20AC0159C4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238786.jpgsave_picture_238786.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Autorun Organizer 5.36 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238787.jpgsave_picture_238787.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Soratobu Yuureisen | The Flying Ghost Ship | Летающий корабль-п�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238789.jpgsave_picture_238789.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:FBEFF000EF210A80720EC4A23099AAC6288307C8
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238790.jpgsave_picture_238790.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Rafael Osmo - Allure (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238791.jpgsave_picture_238791.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Goatsmoker - E​.​O​.​T​.​A. (2022) [FLAC|Lossless|WEB-DL|tracks] <St
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238794.jpgsave_picture_238794.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Certified Love Songs (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238795.jpgsave_picture_238795.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Nova 11.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238797.jpgsave_picture_238797.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ A Better Finder Attributes 7 v7.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238798.jpgsave_picture_238798.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:56E28959458E611C433B6E632E2BAE1054AED60A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238799.jpgsave_picture_238799.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Myosotis - The Sky Between Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238801.jpgsave_picture_238801.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:604D5A13D38E8802D6E0B34B14220C8162873790
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238802.jpgsave_picture_238802.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:617AB576248A9A4F56C55C806DEA01D1CFCAF88D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238804.jpgsave_picture_238804.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:62528E6943409D2DA6C02D094CAF7AC6A9AA9808
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238805.jpgsave_picture_238805.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Blackgold - Blackgold (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu-Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238807.jpgsave_picture_238807.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ FSNotes 4 v4.10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238808.jpgsave_picture_238808.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Live Wallpaper & Themes 4K Pro 16.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238809.jpgsave_picture_238809.jpg" />
 </div>
 
 

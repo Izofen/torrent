@@ -6,7 +6,7 @@
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85606.jpgsave_picture_85606.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:8B32316EB3D84B2B305214440EBB5565ABEDAFA3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85607.jpgsave_picture_85607.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:FB3B2201C8281B73A8087057681EE05D09172E41
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85609.jpgsave_picture_85609.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:8C739B40FB8D106B4A823CDBC6DFB9F86F69D285
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85610.jpgsave_picture_85610.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:32D569CCF26C6BC4D16BD86D6937A13F582FBC93
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85611.jpgsave_picture_85611.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The KMPlayer 3.0.0.1440 (LAV) [Multi/Rus] [сборка 7sh3 от 30.03.2012]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85612.jpgsave_picture_85612.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ The KMPlayer - мощный бесплатный медиаплеер с под�
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85613.jpgsave_picture_85613.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:0BE44D5D0B5D206B06F7F3FEB9F02ABD45EB675A
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85614.jpgsave_picture_85614.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:FCDE3D9E20017DE6487A262522578E3991E95363
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85615.jpgsave_picture_85615.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:8380737EE34993F24F98D447B5344F9435EB8D29
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85616.jpgsave_picture_85616.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ ABViewer Enterprise 8.0.7.6 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85617.jpgsave_picture_85617.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ ABViewer – многофункциональное качественное и 
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85618.jpgsave_picture_85618.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:590B4100A9A14AB1EF11E36084E6B3F85DB0DF71
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85619.jpgsave_picture_85619.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:AB17C4760866F6AD6EDEBDF6F18DD78EFA0418C5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85623.jpgsave_picture_85623.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Modern Times4
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85624.jpgsave_picture_85624.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Lonely Shepherd (2001) [DTS 5.1 | image (Upmix)]<Instrumental, Classical>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85626.jpgsave_picture_85626.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:97720F86088B7AE4354429D2329E19A505F65DD9
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85628.jpgsave_picture_85628.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:D6AE5BC9D5AB1ADC183A9211362E23B7E6B4DC99
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85629.jpgsave_picture_85629.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:D1AF478EFED32A55C3E6204396A84D90F036A5BE
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85630.jpgsave_picture_85630.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:D1AF478EFED32A55C3E6204396A84D90F036A5BE
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85631.jpgsave_picture_85631.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:0FD173A0EF1CFA34C1085249172E929635FB7225
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85632.jpgsave_picture_85632.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:89B360E475C516E0A2E3E824F24D1DD7821D0D12
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85633.jpgsave_picture_85633.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:89B360E475C516E0A2E3E824F24D1DD7821D0D12
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85635.jpgsave_picture_85635.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:0D3E4E22FE722158FE79464C55625925E294DA3E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85636.jpgsave_picture_85636.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:FDB29BC57336530294347A39F127C4276C4CB4E6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85637.jpgsave_picture_85637.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Alkid Live CD/DVD/USB 30.03.12 [Русский]
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85640.jpgsave_picture_85640.jpg" />
 </div>
 
 

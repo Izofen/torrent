@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162344.jpgsave_picture_162344.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C0A477896CA204AFED700211F678DC099C3FA4E1
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162345.jpgsave_picture_162345.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C0B172C265120737A05846B00439E89384EAFF1D
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162346.jpgsave_picture_162346.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Stoneflower - Finally (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162347.jpgsave_picture_162347.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:5572404E2F644295FB838A9D4323E6528C8149F2
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162348.jpgsave_picture_162348.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C8C55CC7C2528A123443249403D31D4E46B2998C
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162349.jpgsave_picture_162349.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Super Photo Upscaler 2.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162350.jpgsave_picture_162350.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:DC8909BF6A3AD208C0E65EE61A0A2417F1351E3A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162352.jpgsave_picture_162352.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Atrise Lutcurve 4.0.5 [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162353.jpgsave_picture_162353.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Camel - The Snow Goose (1975) Remastered And Expanded Edition, 2023, UMC-Decca [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162354.jpgsave_picture_162354.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VA - Euphoric Techno Dec (2021) [MP3|320 Kbps] <Techno, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162355.jpgsave_picture_162355.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:381866430F659097FCAF782EFCFCA86E632562BB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162356.jpgsave_picture_162356.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:667CF6A188322D6B8692FA777FA96B97AFDD8160
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162357.jpgsave_picture_162357.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ The Monster - Extervolution (2020) [MP3|320 Kbps] <Heavy, Power-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162358.jpgsave_picture_162358.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Dropshare 5.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162359.jpgsave_picture_162359.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Pro Microphone: Audio Recorder 1.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162360.jpgsave_picture_162360.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:B1CBB6DD47F3CFACE6A3AB2D601C1BE0FA95A7E9
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162361.jpgsave_picture_162361.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Sainted Sinners - Unlocked & Reloaded (2020) [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162362.jpgsave_picture_162362.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Postico 1.5.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162363.jpgsave_picture_162363.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:18342A6C61EA22E8E3F6CCEAB152709973BBF864
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162364.jpgsave_picture_162364.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ SignFlow - eSign PDF Editor for Mac 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162365.jpgsave_picture_162365.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Magick Touch - Heads Have Got To Rock 'n' Roll (2020) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162366.jpgsave_picture_162366.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Typinator 8 v8.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162367.jpgsave_picture_162367.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:E05E3ADB42C98DB4229E3B500991E12E3DF4B377
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162368.jpgsave_picture_162368.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:FC84AAA97DF936E4D2C01F9645D6E674FF96DB9E
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162369.jpgsave_picture_162369.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - Mellow Cool Swedish Jazz (2021) [AAC|~257 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162370.jpgsave_picture_162370.jpg" />
 </div>
 
 

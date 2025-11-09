@@ -6,7 +6,7 @@
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130998.jpgsave_picture_130998.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5D3C596907C2C74342F49DDA2A0926D6BF933AE4
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131000.jpgsave_picture_131000.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WinISO Standard 6.3.0.4748 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131001.jpgsave_picture_131001.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WinISO Standard - программа для работы с образами CD 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131002.jpgsave_picture_131002.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:43A09F0B432B4129B94BACFB4E5C89E67FE4F617
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131004.jpgsave_picture_131004.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7F73AB57EFB8502E35A0CE12144504B614A78F9C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131005.jpgsave_picture_131005.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6808845E39DBB0B892B6B635269583190C617BB9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131006.jpgsave_picture_131006.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:3DDE0494AE5C8140743D632FDD82064573826E9B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131007.jpgsave_picture_131007.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - A State of Trance Year Mix 2023 - Mixed by Armin van Buuren (2023) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131008.jpgsave_picture_131008.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Уже Новый год на носу (2012) [MP3|256 кб/с]<Pop,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131009.jpgsave_picture_131009.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:F693F1D71D4A24E3080F6E797D16AA9A630F8D03
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131010.jpgsave_picture_131010.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ General Surgery - A Collection of Depravation (2012) [MP3|320 кб/с]<Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131011.jpgsave_picture_131011.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:8815F1E83C2F3096AAFBD73C11CB1D70AAA0B110
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131012.jpgsave_picture_131012.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Winter Wallpapers (30.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131013.jpgsave_picture_131013.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Powerful RAM Monitor Pro v10.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131014.jpgsave_picture_131014.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Guttural Engorgement - The Slow Decay Of Infested Flesh [Digi-Pack Limited Editi
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131018.jpgsave_picture_131018.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:62EB1A848B3A2CACF68FE8657D85AD2AA92D1FB5
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131020.jpgsave_picture_131020.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:F9898632DFEA8FE4B87263C1BC247D3DF0465D01
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131021.jpgsave_picture_131021.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Microsoft PowerToys 0.76.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131024.jpgsave_picture_131024.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:4DA353F68158EAE3654711AFFE514C0378C8E8E4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131026.jpgsave_picture_131026.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Best HD Wallpapers Pack (31.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131027.jpgsave_picture_131027.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:F9056A8D24E4A0C117D917009F8F3746CE60C97E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131028.jpgsave_picture_131028.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:72076A335180F1539C51DEEB7BC8FF50F968C494
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131029.jpgsave_picture_131029.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:F36CF0C7F437AECD3AF1B6658BF303707EBC86EF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131030.jpgsave_picture_131030.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Udemy, Vincent Noot | Drawing the Human Skull (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131031.jpgsave_picture_131031.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:B5466BCD4E3FAA70BC1EE98E615DA4DCBCB26386
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131032.jpgsave_picture_131032.jpg" />
 </div>
 
 

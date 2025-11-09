@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251625.jpgsave_picture_251625.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:8DCB4A881E7258514157A0D9C162DF754E28C5C6
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251627.jpgsave_picture_251627.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:5E4341E514AF19CCC4421B646F2FA6F75D857BF6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251628.jpgsave_picture_251628.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:5FB8FD2751D4D401DF824E769B4E5FB40981C007
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251629.jpgsave_picture_251629.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:73AA19BFBE26DD5304633DE8DDA369D33846ECC0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251631.jpgsave_picture_251631.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:E333A8C75FE13DD84B0A0886E73CF59BB94A1DA6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251633.jpgsave_picture_251633.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:97B29AE58D75D5447227E929480EC4C84F47A49B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251638.jpgsave_picture_251638.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Soul of Ibiza Volume 32 (2012) [MP3|320 кб/с]<Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251639.jpgsave_picture_251639.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - Hits Of The Moment (10.05.2012) (2CD)[MP3|320 кб/с]<House, Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251640.jpgsave_picture_251640.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - 5 Years Of Noir Music (2012) [MP3|320 кб/с]<Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251641.jpgsave_picture_251641.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:6E1543DC36791DC6E7CF97DA6DA872E1A59BAFD6
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251643.jpgsave_picture_251643.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Sherazade - La Loungerie (2006) [MP3|320 кб/с]<Ethno-Lounge, New age>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251644.jpgsave_picture_251644.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:A08ABE43B0185B9FDB225A17A9D899F54719B715
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251648.jpgsave_picture_251648.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Queendom - Still Rising (2012) [FLAC|Lossless]<Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251649.jpgsave_picture_251649.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Queendom - Still Rising (2012) [FLAC|Lossless]<Soul>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251653.jpgsave_picture_251653.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:F1CF9D2833EA7106DA8B7C2CED4FF963E4470BB5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251655.jpgsave_picture_251655.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:32FCDE5EC1D8D1531604C329F5B817D5716B6521
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251659.jpgsave_picture_251659.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:32FCDE5EC1D8D1531604C329F5B817D5716B6521
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251660.jpgsave_picture_251660.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:4406F07883BA0CCCF11738AA5C182359774E7ACB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251661.jpgsave_picture_251661.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Armin van Buuren - A State Of Trance 1250 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251662.jpgsave_picture_251662.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:EC36ECB5EFDA2ACDD19EE8274DD78CE6A0CBE7CE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251663.jpgsave_picture_251663.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:EEB0E7C84781B988C946E2D3286C8CD9F99FEB08
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251664.jpgsave_picture_251664.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Ori Uplift - Uplifting Only Episode 665 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251665.jpgsave_picture_251665.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:7685A29BFDA1EE0DB83C98049824EA93EBD24F81
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251666.jpgsave_picture_251666.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ magnet:?xt=urn:btih:196616460FC590AFC8D2328DD02541D06382098D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251667.jpgsave_picture_251667.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ VA - No name compilation part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251668.jpgsave_picture_251668.jpg" />
 </div>
 
 

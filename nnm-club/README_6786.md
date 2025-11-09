@@ -6,7 +6,7 @@ AIDA64 Extreme Edition 6.75.6128 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233538.jpgsave_picture_233538.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Outlanders (Tarja Turunen feat. Torsten Stenzel) - Outlanders (2023) [MP3|320 Kb
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233539.jpgsave_picture_233539.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ YT Downloader 9.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233540.jpgsave_picture_233540.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CD6FED14D389F6EAF52F7D1FA60B50554116A0F2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233541.jpgsave_picture_233541.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Export for iTunes 2.5.71 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233542.jpgsave_picture_233542.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Pixel Front, Wesley Versteeg | An introduction to vellum grains, RBD & colliders
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233543.jpgsave_picture_233543.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Free Video Editor 1.4.58.919 Premium [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233544.jpgsave_picture_233544.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:C8A7AF30A5FFE2D4DEA18AD23839A330A332B20B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233545.jpgsave_picture_233545.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:18EEFB4DEDB5D822E03442944330A1FEF8EDD73F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233546.jpgsave_picture_233546.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Opera Crypto Browser 100.0.4815.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233548.jpgsave_picture_233548.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ RAR for Android v6.22 build 115 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233550.jpgsave_picture_233550.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Things 3 v3.15.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233551.jpgsave_picture_233551.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ iTubeGo YouTube Downloader Pro for Mac 6.9.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233552.jpgsave_picture_233552.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:08863511935E042EEDC438E4663A430D24F7D91D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233553.jpgsave_picture_233553.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:068689FA74F073F7ED4546835157D91305C984F1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233554.jpgsave_picture_233554.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Projectivy Launcher 4.32 Mod by TryRoom [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233555.jpgsave_picture_233555.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Backgrounds 10.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233556.jpgsave_picture_233556.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:2BDA6427EA924D86B08174E9E1558F137DB0AB7B
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233557.jpgsave_picture_233557.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Within Temptation - Wireless (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233559.jpgsave_picture_233559.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:A840C998CB81A6994C169B2B2B3E02D3D80CD4A4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233560.jpgsave_picture_233560.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:B83C95134F624A28C2055A46DEE157B5F17924CB
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233561.jpgsave_picture_233561.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Rage And Fire - The Last Wolf (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233563.jpgsave_picture_233563.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Serif Affinity Photo 2.1.0.1799 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233564.jpgsave_picture_233564.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:4AE42DF8712227947325D7CB7C816D1B8FBB6613
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233565.jpgsave_picture_233565.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Recordia 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233566.jpgsave_picture_233566.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - 90s Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233567.jpgsave_picture_233567.jpg" />
 </div>
 
 

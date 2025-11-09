@@ -6,7 +6,7 @@ VA - Progressive Trance Awakening, Vol. 06 (2025) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64892.jpgsave_picture_64892.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4118EFC86BBA64330F811921CEAEF0DFF106913D
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64893.jpgsave_picture_64893.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:6538A9199157A33E89480FE384D7C2059A05712E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64894.jpgsave_picture_64894.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:11D8770503C0C53D8C22727597EFC2FF1E5BD0E9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64895.jpgsave_picture_64895.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:831548A3F9525F14C09B091EA4CFE65BE55C1F03
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64896.jpgsave_picture_64896.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:BCD6A88A68649863CFE5FCDB598C50614A966A3D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64897.jpgsave_picture_64897.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:DA02A9486DBDCF4F6555AC8A9A11E0264163532E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64898.jpgsave_picture_64898.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:E07047754AC09A30D8384D2B9872DDB4723DCD8E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64899.jpgsave_picture_64899.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Kdenlive 25.04.3 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64900.jpgsave_picture_64900.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:E0DA58BC725223500477A8A7DE710FD1C6156174
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64901.jpgsave_picture_64901.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:0E19E375B7D5F9FB80DC03CD17AE684122C56AEF
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64902.jpgsave_picture_64902.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.9 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64903.jpgsave_picture_64903.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:3EAA8E5F99A6E06A18FFCF6EBBB385E87A42A7C4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64904.jpgsave_picture_64904.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:9691805A3F3801743C925AD01663B413D29198A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64905.jpgsave_picture_64905.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - Trance In Motion Vol.389 (2025) [MP3|320 Kbps] [MP3|320 Kbps|image + .cue] 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64906.jpgsave_picture_64906.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:AB282D5EFC87413E16DF3CF2395B751364D62548
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64907.jpgsave_picture_64907.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - Music News For Forum vol.119 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64908.jpgsave_picture_64908.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:F4A566B8F35011CFEB87FB4244CFFE99178C6432
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64909.jpgsave_picture_64909.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Live @ Mainstage, Ultra Europe, Croatia (2025) [MP3|320 Kbps] <Trance, Tech
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64910.jpgsave_picture_64910.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64911.jpgsave_picture_64911.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:D26667E9E4F3D9614BE944386792951523AA21F6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64912.jpgsave_picture_64912.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ FireAlpaca 2.13.22 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64913.jpgsave_picture_64913.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:CA004D21BC2DE76D793DA841207F544FFB85E889
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64914.jpgsave_picture_64914.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:A9776A95A0A0821D21F142087271FA205B4CF2A8
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64915.jpgsave_picture_64915.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Roulette - Go! (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64916.jpgsave_picture_64916.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Cineastre - Hymnen an die Nacht (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheri
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64917.jpgsave_picture_64917.jpg" />
 </div>
 
 

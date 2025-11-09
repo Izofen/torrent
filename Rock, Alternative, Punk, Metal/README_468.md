@@ -6,7 +6,7 @@ Paul Young - Behind The Lens (2023) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Rock, Pop 
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244001.jpgsave_picture_244001.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Drug Mother - Rise Witch (2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Doom, Grunge
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244018.jpgsave_picture_244018.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Radio Sun - Wrong Things Right (2014) [FLAC|Lossless|image + .cue] <Melodic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244023.jpgsave_picture_244023.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pierce The Veil - The Jaws of Life (2023) [MP3|320 Kbps] <Post-Hardcore, Pop-Pun
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244025.jpgsave_picture_244025.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Bent Muffbanger - Kush (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244031.jpgsave_picture_244031.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ New Horizon - Gate of the Gods (2022) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Power Me
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244032.jpgsave_picture_244032.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Cosmos - 4 Albums (1994 - 2012) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244037.jpgsave_picture_244037.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Rust n' Rage - One For The Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244040.jpgsave_picture_244040.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lords Of Dust - Kickin Dust Up (2023) EP [MP3|320 Kbps] <Heavy Rock, Stoner, 70'
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244042.jpgsave_picture_244042.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ L.A. Guns - Black Diamonds (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244046.jpgsave_picture_244046.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Right Stripped - Daylight Into Darkness (2021) [MP3|320 Kbps] <Progressive Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244047.jpgsave_picture_244047.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Rust N' Rage - One for the Road (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244051.jpgsave_picture_244051.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Rock Hymnen (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244056.jpgsave_picture_244056.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Dispyria - 3 Albums (2012-2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244057.jpgsave_picture_244057.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ T3nors - Naked Soul (2023) [MP3|320 Kbps] <AOR, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244065.jpgsave_picture_244065.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Die Apokalyptischen Reiter - Der Rote Reiter (2017) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244066.jpgsave_picture_244066.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Epic - Starlight (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Female
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244069.jpgsave_picture_244069.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Radio Sun - Unstoppable (2017) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244074.jpgsave_picture_244074.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ad Infinitum - Chapter III: Downfall (2023) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244075.jpgsave_picture_244075.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Bort - Valhalla (2021) [MP3|320 Kbps] <Stoner, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244081.jpgsave_picture_244081.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Stargazer - Life Will Never Be The Same (2023) [FLAC|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244087.jpgsave_picture_244087.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Radio Sun - Heaven Or Heartbreak (2015) [FLAC|Lossless|image + .cue] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244089.jpgsave_picture_244089.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Die Apokalyptischen Reiter - Tief.Tiefer (2014) 2xCD [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244096.jpgsave_picture_244096.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Cattle Decapitation - Terrasite (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244101.jpgsave_picture_244101.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Goblin Hovel - The Comedy of Forms, The Tragedy of Function (2021) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244106.jpgsave_picture_244106.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Crippled Black Phoenix - Banefyre (2022) 2xCD [FLAC|Lossless|image + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244110.jpgsave_picture_244110.jpg" />
 </div>
 
 

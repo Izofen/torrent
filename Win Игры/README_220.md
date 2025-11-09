@@ -6,7 +6,7 @@ Bandle Tale: A League of Legends Story (2024) [Ru/Multi] (1.068p/dlc) License GO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116107.jpgsave_picture_116107.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Plane Mechanic Simulator (2019) [Ru/Multi] (15.02.2024) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116110.jpgsave_picture_116110.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Forgiveness (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116116.jpgsave_picture_116116.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Killer Instinct (2017) [Ru/Multi] (3.11.3111.1.294202/dlc) Repack dixen18 [Anniv
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116125.jpgsave_picture_116125.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ RC Revolution (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116135.jpgsave_picture_116135.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0.20230706_1126/dlc) Repack Dece
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116156.jpgsave_picture_116156.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Don't Starve (2013) [Ru/Multi] (12527201/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116267.jpgsave_picture_116267.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Combat Mission: Final Blitzkrieg (2024) [Multi] (2.11/dlc) Repack FitGirl [Compl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116277.jpgsave_picture_116277.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ultros (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116441.jpgsave_picture_116441.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ PARANOID (2023) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116450.jpgsave_picture_116450.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ ELEX II (2022) [Ru/Multi] (1.05c) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116460.jpgsave_picture_116460.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.3.1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116464.jpgsave_picture_116464.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Trinity Fusion (2023) [Multi] (1.1) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116621.jpgsave_picture_116621.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Carrier and Crows (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116623.jpgsave_picture_116623.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Turok 3: Shadow of Oblivion Remastered (2023) [Ru/Multi] (1.1.2381.1623) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116631.jpgsave_picture_116631.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (2.2.3.92.6008/dlc) Repack Decepti
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116636.jpgsave_picture_116636.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Neon Tail (2024) [Multi] (1.0.0.100) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116743.jpgsave_picture_116743.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ RC Revolution (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116769.jpgsave_picture_116769.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ CLeM (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116776.jpgsave_picture_116776.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Spirit Hunter: Death Mark II (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116779.jpgsave_picture_116779.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Skibidi Toilets: Invasion (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116793.jpgsave_picture_116793.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Clash II (2022) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116799.jpgsave_picture_116799.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Risen 3: Titan Lords (2015) [Ru] (3.0.30.0/dlc) Repack xatab [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116808.jpgsave_picture_116808.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.07) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116819.jpgsave_picture_116819.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (13371529) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116934.jpgsave_picture_116934.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Touhou Danmaku Kagura: Phantasia Lost (2024) [Multi] (1.0.1/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116943.jpgsave_picture_116943.jpg" />
 </div>
 
 

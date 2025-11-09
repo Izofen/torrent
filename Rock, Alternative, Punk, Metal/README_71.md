@@ -6,7 +6,7 @@ Tito & Tarantula - !Brincamos! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69277.jpgsave_picture_69277.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wombbath - Beyond the Abyss (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69294.jpgsave_picture_69294.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Coheed and Cambria - The Father of Make Believe (2025) [MP3|320 Kbps] <Alternati
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69329.jpgsave_picture_69329.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Death Angel - The Enigma Years (1987 - 1990) (2020) Box Set, Compilation, Reissu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69349.jpgsave_picture_69349.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Opeth - Pale Communion (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69352.jpgsave_picture_69352.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Tierra Santa - Todos Somos Uno (2023) 2 x CD [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69397.jpgsave_picture_69397.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Darghl - Satan Obscure. Reborn (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69405.jpgsave_picture_69405.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Athiel - Maw of the Curse (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69408.jpgsave_picture_69408.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Impurity - The Eternal Sleep (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69409.jpgsave_picture_69409.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:1934563A352A071D38F79B9BD82F8990A7E921E5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69415.jpgsave_picture_69415.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:7463351DEC58BF6844298C8B91095BA8216FA376
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69416.jpgsave_picture_69416.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:2FF67F3DB5A59BF79FA5076514EE582178F295A9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69427.jpgsave_picture_69427.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:21DF9D906DB380F72A577ADCD36E20E6A0101CAE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69431.jpgsave_picture_69431.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Eisbrecher - Kaltfront°! (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Goth R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69444.jpgsave_picture_69444.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:AEF088C2C08D7E6ECB7037224C8B1C2441C15B8A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69445.jpgsave_picture_69445.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dark Horizon - 9 Ways To Salvation (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69452.jpgsave_picture_69452.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Guns N' Roses - The Lost Acoustic Album (Unplugged & Unphased) (2025) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69461.jpgsave_picture_69461.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Warbringer - Wrath And Ruin (2025) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69492.jpgsave_picture_69492.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Hamer - Бивни (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69501.jpgsave_picture_69501.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Narrow Cold - Burning Tears (2025) [MP3|320 Kbps] <Melodic Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69523.jpgsave_picture_69523.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ All Empires Fall - Chronicles of the Unseen (2025) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69524.jpgsave_picture_69524.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Rainbows Are Free - Silver And Gold (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69526.jpgsave_picture_69526.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ HolyName - Rock Against Traffic (Live In Pomona) (2025) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69528.jpgsave_picture_69528.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Saor - Origins (2022) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69555.jpgsave_picture_69555.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Jinjer - Duel (2025) [FLAC|Lossless|tracks + .cue] <Metalcore, Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69560.jpgsave_picture_69560.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Irony Of Fate - Equinox (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69573.jpgsave_picture_69573.jpg" />
 </div>
 
 

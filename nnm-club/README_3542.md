@@ -6,7 +6,7 @@ Texas & Spooner Oldham - The Muscle Shoals Sessions (Parce que - La Collection) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112467.jpgsave_picture_112467.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ivory Tower - Heavy Rain (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112468.jpgsave_picture_112468.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Prog Collective - Dark Encounters (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112469.jpgsave_picture_112469.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fall Of Serenity - Open Wide, O Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112470.jpgsave_picture_112470.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:B46D4BDA5A7F4DC4725A8FCD34393811135BFC7F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112471.jpgsave_picture_112471.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ MarsEdit 5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112472.jpgsave_picture_112472.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Spiritual Seasons - Medieval Time (2019) [FLAC|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112473.jpgsave_picture_112473.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:B176D60114CF901E5781B7A995CE97A20AFD27F3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112474.jpgsave_picture_112474.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Spiritual Seasons - Villeman (2022) [FLAC|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112475.jpgsave_picture_112475.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Rotting Christ - The Apocryphal Spells (2023) 2 x CD, Compilation [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112476.jpgsave_picture_112476.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Piezo 1.9.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112477.jpgsave_picture_112477.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ SiteSucker 5.3.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112478.jpgsave_picture_112478.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Restaurant Lounge Ambient Background Music (2024) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112479.jpgsave_picture_112479.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:C5985867FFE56DB9D33580BFB0AF5D1EAB8A588B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112480.jpgsave_picture_112480.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - Miami Sessions 2024 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112481.jpgsave_picture_112481.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:1C5ECE052407C41EA30E0C624D85DF08BBA69747
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112482.jpgsave_picture_112482.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:DBB11349E259BCDD656127E61E33544780166167
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112483.jpgsave_picture_112483.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Spiritual Seasons - Metal Age (2017) [FLAC|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112484.jpgsave_picture_112484.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Frankie Goes To Hollywood - Liverpool (1986) 1989 [FLAC 24/192|Lossless|tracks] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112485.jpgsave_picture_112485.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:F3E2905F0472D5C36274771D489234F968772EF5
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112486.jpgsave_picture_112486.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ ANA - The Art of Letting Go (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112487.jpgsave_picture_112487.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:622FBA03DA6D9273A549E9C2B95E9EC01E3A7849
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112488.jpgsave_picture_112488.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Dynamic (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112489.jpgsave_picture_112489.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Crystayler - Never Seen Again (2022) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112490.jpgsave_picture_112490.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:9EB4537305C39E6A28F2936419DCF4CF1DCD9AD1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112491.jpgsave_picture_112491.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ magnet:?xt=urn:btih:38F23307E6E0340F19947BF36F807517E4FB6214
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112492.jpgsave_picture_112492.jpg" />
 </div>
 
 

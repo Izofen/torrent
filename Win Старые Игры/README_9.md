@@ -6,7 +6,7 @@ Need For Speed: Porsche Unleashed (2000) [Ru/En] (3.5) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127730.jpgsave_picture_127730.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Need for Speed: Underground 2 (2004) [Ru/En] (1.2) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127750.jpgsave_picture_127750.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Need for Speed: Most Wanted (2005) [Ru/Multi] (1.3) Repack Decepticon [Black Edi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128507.jpgsave_picture_128507.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Need for Speed: Carbon (2006) [Ru/En] (1.4) Repack Decepticon [Collector's Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128514.jpgsave_picture_128514.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Combat Mission: Beyond Overlord / Линия фронта. Нормандия (2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130488.jpgsave_picture_130488.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Star Trek: Starfleet Command III (2002) [Ru/En] (1.00) Unofficial
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130490.jpgsave_picture_130490.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Transarctica (RePack) 1993 [En] | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130545.jpgsave_picture_130545.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Enclave [Ru/En] (RePack) 2003 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130588.jpgsave_picture_130588.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Devastation / Опустошение [En/Ru] (Rip) 2003 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130631.jpgsave_picture_130631.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы [Ru/En] (L/1.5) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131787.jpgsave_picture_131787.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ STAR WARS Empire at War (2006) [Ru/En] (1.120/1.121/dlc) Repack dixen18 [Gold Pa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134407.jpgsave_picture_134407.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Anvil of Dawn (1995) [En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134473.jpgsave_picture_134473.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Operation Steel Tide (2002) [Ru] (1.0) Unofficial
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134668.jpgsave_picture_134668.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bioshock [En] (Steam-Rip/1.1) 2007 | R.G. GameWorks
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135110.jpgsave_picture_135110.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Crysis (2007) [Ru] (1.1.1.6156) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136739.jpgsave_picture_136739.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ STAR FLEET II: Krellan Commander (1989) [En] (2.0.17) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136781.jpgsave_picture_136781.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136819.jpgsave_picture_136819.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Nexus - The Jupiter Incident (2004) [Ru/Multi] (1.03) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136919.jpgsave_picture_136919.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Faces of War / В тылу врага 2 (2006) [Ru/En] (1.04.1) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137186.jpgsave_picture_137186.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Titan Quest: Immortal Throne (2007) [Ru] (1.1) License [Expansion Pack]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137261.jpgsave_picture_137261.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Hunting Unlimited 2 (2003) [En] (1.0) License Fairlight
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137791.jpgsave_picture_137791.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Of Light and Darkness: The Prophecy (1998) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137875.jpgsave_picture_137875.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ RollerCoaster Tycoon (1999) [Multi] (1.20.015/dlc) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138133.jpgsave_picture_138133.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Red Faction (2001) [En/Ge] (1.21) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138422.jpgsave_picture_138422.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ DethKarz (1998) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139261.jpgsave_picture_139261.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Hunting Unlimited 4 (2006) [En] (1.0) License Razor1911
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140049.jpgsave_picture_140049.jpg" />
 </div>
 
 

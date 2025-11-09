@@ -6,7 +6,7 @@ The Last Farmer (2024) [Ru/Multi] (1.0.11) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26707.jpgsave_picture_26707.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Amanita Design Collection (2003-2021) [Ru/Multi] (1.12/2.34/Build 4041/1.2.0/1.4
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26712.jpgsave_picture_26712.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.2.0-cs57553/dlc) Repack Wanterlude
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26721.jpgsave_picture_26721.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ A Game About Digging A Hole (2025) [Ru/Multi] (build 17291810) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26725.jpgsave_picture_26725.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Fallout 3 (2009) [Ru/En] (1.7.0.3/dlc) Repack Wanterlude [Game of the Year Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26726.jpgsave_picture_26726.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Smushi Come Home (2023) [Multi] (1.1.0.4.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26727.jpgsave_picture_26727.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Crisis Core Final Fantasy VII Reunion (2022) [Ru/Multi] (1.03) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26733.jpgsave_picture_26733.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Last Farmer (2024) [Ru/Multi] (1.0.11) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26734.jpgsave_picture_26734.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ WARRIORS: Abyss (2025) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26735.jpgsave_picture_26735.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26736.jpgsave_picture_26736.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Master of Orion: Conquer the Stars (2016) [Ru/Multi] (55.1.1/dlc) Repack Pioneer
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26737.jpgsave_picture_26737.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Victoria 3 (2022) [Ru/Multi] (1.8.6/dlc) Repack dixen18 [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26744.jpgsave_picture_26744.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ X4: Foundations (2018) [Ru/En] (7.50/dlc) Repack Decepticon [Community of Planet
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26746.jpgsave_picture_26746.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Living Legends 12: Frozen Destiny / Живые легенды 12: Замёрзш
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26781.jpgsave_picture_26781.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Dead of Darkness (2025) [Ru/Multi] (1.0 Update 4) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26785.jpgsave_picture_26785.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Feudal Baron: King's Land (2024) [Ru/Multi] (1.0.20241220.698) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26807.jpgsave_picture_26807.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Geminism (2025) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26811.jpgsave_picture_26811.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Slender Threads (2025) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26816.jpgsave_picture_26816.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26818.jpgsave_picture_26818.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Fight School Simulator (2024) [Ru/Multi] (build 17408091) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26821.jpgsave_picture_26821.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ While Waiting (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26826.jpgsave_picture_26826.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11c) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26828.jpgsave_picture_26828.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Turbo Overkill (2023) [Ru/Multi] (1.512) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26832.jpgsave_picture_26832.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Discolored 2 (2025) [Ru/Multi] (1.3.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26838.jpgsave_picture_26838.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ MiSide (2024) [Ru/Multi] (0.93) Repack EXROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26844.jpgsave_picture_26844.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (2.2.6.32935/dlc) Repack Let'sРlay [The Ixia
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26853.jpgsave_picture_26853.jpg" />
 </div>
 
 

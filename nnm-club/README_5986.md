@@ -6,7 +6,7 @@ SamDrivers 23.9 Expert [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188407.jpgsave_picture_188407.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:229BDE1EBE12D4EBDAF8CE97CD20CF4DC2953D17
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188408.jpgsave_picture_188408.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4DE9B7F7E8692F4DCDE4C0FA84A59B980C7CD622
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188409.jpgsave_picture_188409.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Unheard - Voices of Crime (2023) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188410.jpgsave_picture_188410.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AOMEI Partition Assistant Technician Edition 10.2.0 (15.09.2023) RePack by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188412.jpgsave_picture_188412.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Tor Browser Bundle 12.5.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188414.jpgsave_picture_188414.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Infix PDF Editor Pro 7.7.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188415.jpgsave_picture_188415.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ AVG Clear (AVG Remover) 22.11.7716 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188417.jpgsave_picture_188417.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:36077FACCE3B9B8CE8F77328238318050389C580
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188418.jpgsave_picture_188418.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ SIV (System Information Viewer) 5.67 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188419.jpgsave_picture_188419.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:1CE21B03CA80E40027C8DEC4A41F1F3DA14DCC56
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188421.jpgsave_picture_188421.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:A647E8C21C3F81A4D03AEFA58099286944881401
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188422.jpgsave_picture_188422.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ AIMP 5.10 Build 2414 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188423.jpgsave_picture_188423.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:BD908B1D0A278996BFA52980A869E66FFE9BC1FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188424.jpgsave_picture_188424.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:BD908B1D0A278996BFA52980A869E66FFE9BC1FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188425.jpgsave_picture_188425.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:6552385C22AA799CC7D84909C9DC2636D4DCEFF8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188426.jpgsave_picture_188426.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:6552385C22AA799CC7D84909C9DC2636D4DCEFF8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188427.jpgsave_picture_188427.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Pixelmator Pro 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188428.jpgsave_picture_188428.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:C05BB9447012246BABC3D4E12F8A57C5D6FD5764
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188429.jpgsave_picture_188429.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Auslogics BoostSpeed 13.0.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188430.jpgsave_picture_188430.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:F5F1F41B3FAECFAFA8C77FFE440395EA0081CAB5
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188431.jpgsave_picture_188431.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ O&O Defrag Professional 27.0 Build 8038 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188432.jpgsave_picture_188432.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:4A67A60F713CC76CB6B98491D2AE1224256D46CC
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188433.jpgsave_picture_188433.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Wise Care 365 Pro 6.6.1.631 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188434.jpgsave_picture_188434.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:8996A0EC0A0C0AC5C1944E5508FEFEED25596E87
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188435.jpgsave_picture_188435.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:CC0180643F40B99E83CC1274EEC4EAB8E6F7D9DE
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188436.jpgsave_picture_188436.jpg" />
 </div>
 
 

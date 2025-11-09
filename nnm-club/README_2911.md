@@ -6,7 +6,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85734.jpgsave_picture_85734.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A8BBF4268D879D5F456BF4A5EC97710CB29C365D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85735.jpgsave_picture_85735.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A8BBF4268D879D5F456BF4A5EC97710CB29C365D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85736.jpgsave_picture_85736.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2F38B45F7F9D8F409B3ACDB11EF722F05F371D3E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85738.jpgsave_picture_85738.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Toontrack - Number 1 Hits EZX®[английский]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85739.jpgsave_picture_85739.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ AIDA64 Extreme Engineer v.2.30.1900 (x32/x64/ML/RUS) - Тихая установ
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85741.jpgsave_picture_85741.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ AIDA64 является мощным средством для идентифи�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85743.jpgsave_picture_85743.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ AIDA64 является мощным средством для идентифи�
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85744.jpgsave_picture_85744.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ AIDA64 является мощным средством для идентифи�
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85745.jpgsave_picture_85745.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:099A1F507C62311C966FA09BE926A4E70ACDEF31
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85746.jpgsave_picture_85746.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:099A1F507C62311C966FA09BE926A4E70ACDEF31
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85747.jpgsave_picture_85747.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Comice OS 4 KDE [i386] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85748.jpgsave_picture_85748.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Red-Black-Roketdock v1.3.5 by kubines v1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85749.jpgsave_picture_85749.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Red-Black-Roketdock v1.3.5 by kubines v1.3.5 [Русский]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85750.jpgsave_picture_85750.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ ABBA - In Concert 1979 / ABBA in Concert (29 Mar 2004) DVD5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85751.jpgsave_picture_85751.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ DVD "ABBA In Concert" был сделан в 1980 году и включает �
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85752.jpgsave_picture_85752.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:308B6A76FEB2C578831193D2598865C581F9C58C
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85753.jpgsave_picture_85753.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:308B6A76FEB2C578831193D2598865C581F9C58C
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85754.jpgsave_picture_85754.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:DBF06804C31B70E3409E1C55EBAA99433862F5B7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85755.jpgsave_picture_85755.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Rammstein - LIFAD Demos Edition (2008) [MP3|128-320 kbps]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85757.jpgsave_picture_85757.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Rammstein - Live Aus Moskau 2012-02-11 (2012) HDCamRip[1080p] (Ver. 2)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85761.jpgsave_picture_85761.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ True Sword 5.4 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85762.jpgsave_picture_85762.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Chemical Brothers - Don't Think (2012) [MP3|320 кб/с]<Electronic, Breakbe
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85763.jpgsave_picture_85763.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:EBFC33C87AC7FF3A618614CAE899FA37E17A3D1B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85764.jpgsave_picture_85764.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Armin van Buuren / Ultra Music Festival (2012)[1080p] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85765.jpgsave_picture_85765.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Creedence Clearwater Revival - Creedence Clearwater Revival. 10 CD Collection (1
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85766.jpgsave_picture_85766.jpg" />
 </div>
 
 

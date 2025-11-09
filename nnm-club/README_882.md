@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23271.jpgsave_picture_23271.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ MOOD (2024) [Ru/En] (Build 17818395) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23272.jpgsave_picture_23272.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:9C30F8A480F891CB8BF5CF40A45C4083D149948F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23273.jpgsave_picture_23273.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:515D52253F8389E2873517122B2C667B99EAF5BA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23274.jpgsave_picture_23274.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23275.jpgsave_picture_23275.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:B76CB151148D23A369561A8BE74DC8A5B6BF9A1D
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23276.jpgsave_picture_23276.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:0692ECEAEC81470357A7420F8397DF65841A4F69
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23277.jpgsave_picture_23277.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:BB6E17A3094920D78D10833079BAD41A9278E870
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23278.jpgsave_picture_23278.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.40.14/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23279.jpgsave_picture_23279.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:E734B0654F09CD45A087E7000BE1D2144C3E366F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23280.jpgsave_picture_23280.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:F0C97F1F3E1F6DCBBBE3E73DCAD0A6E5DEE5ED0C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23281.jpgsave_picture_23281.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:A002264896967039AFF92F7660317D0E30D7D42A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23282.jpgsave_picture_23282.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Guild no Uketsukejou Desu ga, Zangyou wa Iya nano de Boss o Solo Toubatsu Shiyou
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23283.jpgsave_picture_23283.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:FDBBC2AE870F61D3E4FF2E4435D0AB9CE42F9033
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23284.jpgsave_picture_23284.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:F8E87CF1E0725FA83B11E238649F9D9154BB4EE1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23285.jpgsave_picture_23285.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:505FD3A43603B268EFE5B40569D890096BD46E2E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23286.jpgsave_picture_23286.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:C53E71F7BB1A0CE33E263E99964943D82A4061A1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23287.jpgsave_picture_23287.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Spirit City: Lofi Sessions (2024) [Multi] (1.8.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23288.jpgsave_picture_23288.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Fuguu-shoku Kanteishi ga Jitsu wa Saikyou Datta / Убогий класс «Оц
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23289.jpgsave_picture_23289.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:CBA98C70B546CBDAEAEB1DB91E20F7444BDABB76
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23290.jpgsave_picture_23290.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Trillion Game | Игра на триллион [2024, TV, 26 из 26 эп.] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23291.jpgsave_picture_23291.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:2E35A6E5D773046F663B7DCE494359CFE9BBABE2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23292.jpgsave_picture_23292.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:6522CE85AE8B98E290808F0AA4AC2BB360D4C60F
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23293.jpgsave_picture_23293.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:CDAFEB8CE0634CA6C56A80DBDB4027CAC6821F7E
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23294.jpgsave_picture_23294.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:E4DAC132D4C5723EC03D4FEB51BAE9254396C166
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23295.jpgsave_picture_23295.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:C56D08D1839C7CE7F5C9606A0EC8A9154FBC842E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23296.jpgsave_picture_23296.jpg" />
 </div>
 
 

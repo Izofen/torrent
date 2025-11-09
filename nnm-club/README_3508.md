@@ -6,7 +6,7 @@ VA - Electronic compilation part 69 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111569.jpgsave_picture_111569.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:269E82F1FF5423CE62825C69C4F756F80315B9D3
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111570.jpgsave_picture_111570.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:24240E90F79B8D1A314748A36D0A5C2AEABD06DC
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111571.jpgsave_picture_111571.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:EB8F3FF8ADD2AD91D4717F88E4A6379E545A2D4B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111572.jpgsave_picture_111572.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:3A2B398F70779A5D446D7597F63E661D5C99DBB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111573.jpgsave_picture_111573.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Blue Oyster Cult - Ghost Stories (2024) [FLAC 16/24|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111574.jpgsave_picture_111574.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:0BC94A5DCB3CD9CB216F792C7AF656ABEF6C256E
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111575.jpgsave_picture_111575.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:9EC78EB17105227B29559BCEFAD1FE774C046FEC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111576.jpgsave_picture_111576.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:9EC78EB17105227B29559BCEFAD1FE774C046FEC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111577.jpgsave_picture_111577.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:7DBBF19CC9FED15C2AD785F41A310CED91833802
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111578.jpgsave_picture_111578.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:6DCA2DBFFF8C3C5FC4BFE810F327EC2DF1CA1D0D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111579.jpgsave_picture_111579.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:CD65FC85B3F305ACFA60D67298036338CEB23BE5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111580.jpgsave_picture_111580.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Catfish John Tisdell - Don't Look Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111581.jpgsave_picture_111581.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Jimi Fiano - Sweat and Pray (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111582.jpgsave_picture_111582.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:3D55F59581408BEF3B0B1F1DBD8160ECBDB578E2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111583.jpgsave_picture_111583.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Leif De Leeuw Band - Mighty Fine (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111584.jpgsave_picture_111584.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Snakebite - Cobra Crew (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111585.jpgsave_picture_111585.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Monastery Dead - Ego Sum Dolor (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111586.jpgsave_picture_111586.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Copenhagen Blues Band - I'm Not in a Hurry - Copenhagen Blues Band - I'm Not in 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111587.jpgsave_picture_111587.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Keely Smith - The Essential Capitol Collection (1950-e - 1960-e) 2007, Capitol R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111588.jpgsave_picture_111588.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ The Palace Of Tears - Veiled Screen, Woven Dream (2024) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111589.jpgsave_picture_111589.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Leviathan Project - The Final War (2022) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111590.jpgsave_picture_111590.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Dorothy Donegan - Sophisticated Lady (1980) 1991, Ornament [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111591.jpgsave_picture_111591.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Leviathan Project - Sound of Galaxies (2021) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111592.jpgsave_picture_111592.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Storm Seeker - Live in Stuttgart (2023) (Live) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111593.jpgsave_picture_111593.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:5E5A73609717B156CB9C8E44D181C3BAF393C248
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111594.jpgsave_picture_111594.jpg" />
 </div>
 
 

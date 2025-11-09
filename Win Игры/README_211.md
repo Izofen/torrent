@@ -6,7 +6,7 @@ Azkend 2: The World Beneath (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86938.jpgsave_picture_86938.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Happy Chef / Веселый повар (L) [Ru] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87004.jpgsave_picture_87004.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Necronomicon / Книга Мертвых: Потерянные души (P) [Ru]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87196.jpgsave_picture_87196.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Treasures of the Deep / Сокровища глубин (P) [Ru] 2009 | Fyrrion
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87201.jpgsave_picture_87201.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Deadly 30 (P) [En] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87277.jpgsave_picture_87277.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Brick of Consciousness: Dorian Gray Syndrome. Collector's Edition / Край с�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87394.jpgsave_picture_87394.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Aaron Crane: Paintings Come Alive / Аарон Крэйн. Картины ожи
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87421.jpgsave_picture_87421.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Stray Souls: Dollhouse Story. Collector Edition / Заблудшие души. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87431.jpgsave_picture_87431.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Bomber-Mario (P) [En] 2010
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87445.jpgsave_picture_87445.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dark Strokes: Sins of the Fathers. Collector's Edition / Сердце тьмы. 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87460.jpgsave_picture_87460.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (RePack) 2012 | Fenixx
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87497.jpgsave_picture_87497.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Cannon Fodder 3 [Ru] (RePack) 2012 l Fenixx
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87501.jpgsave_picture_87501.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Tumble Jumble (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87548.jpgsave_picture_87548.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Haunted Hotel II: Believe the Lies / Проклятый отель 2. Паути
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87628.jpgsave_picture_87628.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:6BAE181F95D1853A397B17132BD74433EA36A2F9
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87675.jpgsave_picture_87675.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:1DD7D3EDFBB0B4CD7D1CCD53745C26ADD1240AC2
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87858.jpgsave_picture_87858.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:9DB5F1C34024129F62B359196C318261988E902B
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87910.jpgsave_picture_87910.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:0547F9925D45FD1762A003D82E1446FF422DBF9F
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87914.jpgsave_picture_87914.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ JoJo's Fashion Show 3: World Tour Express / Модный показ 3. Миро�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88078.jpgsave_picture_88078.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Rise and Fall: Civilizations at War / Rise & Fall: Война цивилизац
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88112.jpgsave_picture_88112.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Secrets of the Titanic - 1912 - 2012 (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88160.jpgsave_picture_88160.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Big Kahuna Reef 3 (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88251.jpgsave_picture_88251.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Officers / Офицеры Специальное издание [Ru] (RePack/1.1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88288.jpgsave_picture_88288.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Avernum: Escape from the Pit (P) [En] 2012
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88315.jpgsave_picture_88315.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Spirits of Mystery 2: Song of the Phoenix Collector's Edition / Тайны ду�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88483.jpgsave_picture_88483.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Police Force (RePack) [Ru] 2012 | Fenixx
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88529.jpgsave_picture_88529.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153717.jpgsave_picture_153717.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:96450AEFE10F74937DE3897E9638E55D8055E5A7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153718.jpgsave_picture_153718.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:96450AEFE10F74937DE3897E9638E55D8055E5A7
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153719.jpgsave_picture_153719.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (2.08/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153720.jpgsave_picture_153720.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E3DE4E90BF0510F0520FD04E9BE18C520A553C77
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153721.jpgsave_picture_153721.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153722.jpgsave_picture_153722.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ WiFi Explorer 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153723.jpgsave_picture_153723.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Adobe Premiere Pro 24.0.3.2 (x64) Lite Portable by 7997 [MultiRu]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153724.jpgsave_picture_153724.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:90C3A11282D1A9BC6AE9F74B0004DDA2454A2A73
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153725.jpgsave_picture_153725.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:90C3A11282D1A9BC6AE9F74B0004DDA2454A2A73
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153726.jpgsave_picture_153726.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:8DFD6319F6CD20239E40C9852C5828AF0FEE36D0
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153727.jpgsave_picture_153727.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:075374DD8C67EF775B7BFF2E3DBB8522C5D42168
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153728.jpgsave_picture_153728.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:075374DD8C67EF775B7BFF2E3DBB8522C5D42168
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153729.jpgsave_picture_153729.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:8DF8F217F0A0E239D0989278D150E94A1AC66F19
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153730.jpgsave_picture_153730.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:04AFBED233E8377B88CD200180640577C3A3D402
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153731.jpgsave_picture_153731.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:90250D5E991D45DF57DF6A5EB3682C95902D2319
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153732.jpgsave_picture_153732.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Microsoft .NET 6.0.12 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153733.jpgsave_picture_153733.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:F4D501D210B62711E97062CBDF2A6496E373774A
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153734.jpgsave_picture_153734.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Reface v3.54.0 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153735.jpgsave_picture_153735.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Stepik, Александр Бондарев | Revit 2024: Создание се�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153736.jpgsave_picture_153736.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:4B52E103D887F1AC8B92BFB2E14EE4B06B8BB3AE
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153737.jpgsave_picture_153737.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Offboard Diagnostic Information System Service 6.2.0 (ODIS Service 6.2.0)
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153738.jpgsave_picture_153738.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:6101F5CEFA8966F101D34CEDAC4BCC70862FDBE1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153739.jpgsave_picture_153739.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:09203B8CA2F3339452745D63A762B30474983AD3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153740.jpgsave_picture_153740.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ PDF-XChange Editor Plus 8.0.335.0 + Portable RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153741.jpgsave_picture_153741.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:0DC93B960B45336C4208ADDF9E5767B9CFC0CBBF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153742.jpgsave_picture_153742.jpg" />
 </div>
 
 

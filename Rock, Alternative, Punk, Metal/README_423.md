@@ -6,7 +6,7 @@ A is A - The Complete Recordings (2023) 2 x CD [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236179.jpgsave_picture_236179.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cybervoid - Order Through Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236183.jpgsave_picture_236183.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lilies of Megiddo - No Fear of Hell (2018) 2023, 893378 Records DK [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236188.jpgsave_picture_236188.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nazty Habit - Alcopocalypse (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236193.jpgsave_picture_236193.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ DeVicious - Code Red (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236195.jpgsave_picture_236195.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Kinks - Soap Opera Tour 1975 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236199.jpgsave_picture_236199.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Lilies of Megiddo - The Barrier of Loneliness (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236203.jpgsave_picture_236203.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Lilies of Megiddo - Leeches (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236209.jpgsave_picture_236209.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nick Sax - KPSS PUNK (2023) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236217.jpgsave_picture_236217.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ caleb chronic - Neurodeviant (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Mo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236222.jpgsave_picture_236222.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Degrees Of Truth - Alchemists (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236226.jpgsave_picture_236226.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:3988C4D644171B93C0209E2B42A9C7A06FC17730
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236229.jpgsave_picture_236229.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Distillery - I'm Your Nightmare (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236250.jpgsave_picture_236250.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Wings Of Destiny - Time (2015) [FLAC|Lossless|image + .cue] <Melodic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236255.jpgsave_picture_236255.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Helsreach - Helsreach (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Hardco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236262.jpgsave_picture_236262.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:BB0EBB9621B02EFC22AE013B38AD232365D50869
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236301.jpgsave_picture_236301.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Autumn Nostalgie - Ataraxia (2021) [FLAC|Lossless|image + .cue] < Post-Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236314.jpgsave_picture_236314.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Dark Sarah - Attack Of Orym (2023) [FLAC|Lossless|image + .cue] <Symphonic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236315.jpgsave_picture_236315.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ozzy Osbourne - Patient Number 9 (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236328.jpgsave_picture_236328.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Sorcerer - 4 Albums (2015-2020) [FLAC|Lossless|image + .cue] <Epic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236329.jpgsave_picture_236329.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Depressive Witches - Bad Flask (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236343.jpgsave_picture_236343.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Whoopie Cat - 3 Albums (2016-2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236349.jpgsave_picture_236349.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Fugitive - Nobody Gets out Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236379.jpgsave_picture_236379.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Queens Of The Stone Age - In Times New Roman... (2023) [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236386.jpgsave_picture_236386.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Disillusive Play - Songs for the Non-Existent (2023) [MP3|320 Kbps] <Symphonic, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236400.jpgsave_picture_236400.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Distance of Thought - Edge of Forever (2023) [MP3|320 Kbps] <Progressive Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236407.jpgsave_picture_236407.jpg" />
 </div>
 
 

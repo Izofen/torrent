@@ -6,7 +6,7 @@ Seven Nights Ghost (2023) [Multi] (1.03) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188720.jpgsave_picture_188720.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3FF165B4CFF3DFE632387FC76F4F73E65736C9F4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188721.jpgsave_picture_188721.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9E77335D299212A143834D05FE3B8060616E229A
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188722.jpgsave_picture_188722.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Max Richter, Vivaldi - The New Four Seasons Vivaldi Recomposed (2022) [FLAC|Loss
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188723.jpgsave_picture_188723.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:87C31736CB71C4F595854FE692DDE071C8464D07
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188724.jpgsave_picture_188724.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:3B3260310294A258C416246F8CE31D25C45256CD
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188725.jpgsave_picture_188725.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:E7DDA930A41D8EE2A7BE9A9DF756BDE5AD84DE9F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188726.jpgsave_picture_188726.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:62AB3E06696F3F280FF9B9289EFCE3881E5284FF
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188727.jpgsave_picture_188727.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Apeaksoft Video Converter Ultimate 2.3.20 RePack (& Portable) by TryRooM [Multi/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188728.jpgsave_picture_188728.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ IObit Driver Booster Pro 11.0.0.21 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188729.jpgsave_picture_188729.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:7EE4755A64BAA96DD3A77F978D552AE3CFEA8D0B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188730.jpgsave_picture_188730.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:50049D1E42E646D5709BAA0E45EE44DE519891CC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188731.jpgsave_picture_188731.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:2B3243C5EB3D028F1E2DCE4274B10FDEAA3A4BA9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188732.jpgsave_picture_188732.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:222633C60A1A94C5F2C00A6A7F954657CAA91034
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188734.jpgsave_picture_188734.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:87EBFDABADF9DF190C000DF4782C0B8B1D4C7497
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188735.jpgsave_picture_188735.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Psiphon 3 build 179 (13.09.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188736.jpgsave_picture_188736.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:D345B26C61C6597E51B5C5B62511BF5F692AEC01
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188737.jpgsave_picture_188737.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Q-Dir 11.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188738.jpgsave_picture_188738.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:8B73E61E52FC369EC9A5B3EB78D4EA0967EDD8AF
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188739.jpgsave_picture_188739.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:0081959D21B9556D573AEF002DD343633B07B220
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188740.jpgsave_picture_188740.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:7D3AB2ACBB8DD449F2B1B21BDF4EC48A8F65747A
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188741.jpgsave_picture_188741.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Adult Smooth Jazz: Sax for Sex, Erotic Music, Ultra Sensual Mind (2023) [FL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188742.jpgsave_picture_188742.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Steven Charles Cecil - Teens Know Best (Story and Clark, Vol 2) (2022) [FLAC|Los
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188743.jpgsave_picture_188743.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Change MAC Address 23.04 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188744.jpgsave_picture_188744.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Imazee - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188745.jpgsave_picture_188745.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Nomad Factory - Integral Studio Pack 3 5.13.5 VST, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188746.jpgsave_picture_188746.jpg" />
 </div>
 
 

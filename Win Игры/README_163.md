@@ -6,7 +6,7 @@ Back (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47988.jpgsave_picture_47988.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Great Houses of Calderia (2023) [En] (1.0.1.1337) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47998.jpgsave_picture_47998.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48008.jpgsave_picture_48008.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48012.jpgsave_picture_48012.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48016.jpgsave_picture_48016.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ BioGun (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48024.jpgsave_picture_48024.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Oblivion Override (2024) [Multi] (1.1.2.1574) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48038.jpgsave_picture_48038.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Ogu and the Secret Forest / Огу и Таинственный Лес (2024) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48079.jpgsave_picture_48079.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Backrooms: Survival (2022) [En] (1.28) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48087.jpgsave_picture_48087.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Darkside Detective: A Fumble in the Dark (2021) [Multi] (2.32.2089.160d) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48093.jpgsave_picture_48093.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Gym Simulator 24 (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48099.jpgsave_picture_48099.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Relic Space (2023) [En] (1.03) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48107.jpgsave_picture_48107.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ ELDEN RING (2022) [Ru/Multi] (1.13/dlc) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48116.jpgsave_picture_48116.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dead Space 2 (2011) [Ru/En] (1.1/dlc) Repack FitGirl [Collector's Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48117.jpgsave_picture_48117.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ EARTH DEFENSE FORCE 6 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48118.jpgsave_picture_48118.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48120.jpgsave_picture_48120.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Dread Delusion (2024) [En] (1.1.0.13) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48123.jpgsave_picture_48123.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Darkside Detective (2017) [Multi] (2.127.4.167d) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48141.jpgsave_picture_48141.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Fabledom (2024) [Ru/Multi] (1.06) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48143.jpgsave_picture_48143.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48145.jpgsave_picture_48145.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/dlc) Repack FitGirl [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48149.jpgsave_picture_48149.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Fabledom (2024) [Ru/Multi] (1.06) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48151.jpgsave_picture_48151.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Cursed Fables 5: A Gilded Rose (2024) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48156.jpgsave_picture_48156.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Spirit Island (2020) [En] (1.0/dlc) Scene TiNYiSO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48184.jpgsave_picture_48184.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Tales from the Borderlands (2014) [Ru/En] (1.0.1) Repack FitGirl [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48199.jpgsave_picture_48199.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Space Prison (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl [Supporter Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48201.jpgsave_picture_48201.jpg" />
 </div>
 
 

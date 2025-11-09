@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60999.jpgsave_picture_60999.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E58F936A64EF8B3EB13FDDDB8D063F7D1510BFFC
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61000.jpgsave_picture_61000.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Knowledge, or know Lady / Ladies School Prince (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61001.jpgsave_picture_61001.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3E0E4B1D2E7784543A93A952EB7FBF2A9A06920A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61002.jpgsave_picture_61002.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:07023E0F631B1D72CC2C941402360D7B93F6D716
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61003.jpgsave_picture_61003.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:339B04AEB6AFAB8F846C58DEF4885375F46B515B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61004.jpgsave_picture_61004.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C450DD66DC39450A33AFCD5BE254550025BA1046
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61005.jpgsave_picture_61005.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:09E99ED2073DE36FDF5D4D7B03A1667668E0E96E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61006.jpgsave_picture_61006.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:A177F606B9682284F5488ADDE83ACAEF62815B9C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61007.jpgsave_picture_61007.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Downie 4 v.4.7.8 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61008.jpgsave_picture_61008.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ BBC. Турки-османы. Мусульманские властители Е
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61009.jpgsave_picture_61009.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Adobe Media Encoder for Mac 2024 v.24.3.0 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61010.jpgsave_picture_61010.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Wondershare Recoverit for Mac 12.5.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61011.jpgsave_picture_61011.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Dire Straits - On Every Street (1991) SACD, Remastered, 2024, Mobile Fidelity So
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61012.jpgsave_picture_61012.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:D631088071F9B4D3B555516DC6F3A65A7B3D1237
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61013.jpgsave_picture_61013.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:598F6DDDCDECC40DC569CE776A7F026A5CA17031
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61014.jpgsave_picture_61014.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Wondershare UniConverter for Mac 15.5.5 Intel/ARM [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61015.jpgsave_picture_61015.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:3DBFE4AB5AC42424E25725ACCD0DD1E74EC472F4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61016.jpgsave_picture_61016.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:DF473F98327C5E65EB7C888D4B302DDAB7AAAB78
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61017.jpgsave_picture_61017.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:931D88DD768A84603DBF296C978423BA5C25A290
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61018.jpgsave_picture_61018.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:37053AE721ACF162607F28489F4CADCE80F7FD49
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61019.jpgsave_picture_61019.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ ADB AppControl 1.8.3 hotfix 1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61020.jpgsave_picture_61020.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:A53DC626F4A72B2A08CDFBA8922AF046D8B538DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61021.jpgsave_picture_61021.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:78273430AB5D8B07687AAAD3C6952707D6DFB6B1
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61022.jpgsave_picture_61022.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:08DB49843534DA02689D58B4730EB0A85419C967
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61023.jpgsave_picture_61023.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Adobe InDesign 2024 v.19.3.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61024.jpgsave_picture_61024.jpg" />
 </div>
 
 

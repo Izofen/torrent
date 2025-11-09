@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51765.jpgsave_picture_51765.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51766.jpgsave_picture_51766.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:D5CAA3AD0E75FB4785FAEBC5424EE4A0EFFA1C01
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51767.jpgsave_picture_51767.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D5CAA3AD0E75FB4785FAEBC5424EE4A0EFFA1C01
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51768.jpgsave_picture_51768.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Mahouka Koukou no Rettousei (2024) | Непутевый ученик в школ
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51769.jpgsave_picture_51769.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Wind Breaker | Ветролом [2024, TV, 13 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51770.jpgsave_picture_51770.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:D6A22AF536EB1D19118717481EE26BF014539428
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51771.jpgsave_picture_51771.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:AD01129F14E6B1D2FFFC0A4868BE0240BD6290B6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51772.jpgsave_picture_51772.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Redshift 3.5.24 [Unlocked GPU, Offline] for Cinema 4D, Maya, Houdini, 3DS Max [E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51775.jpgsave_picture_51775.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:8321F25297147AC4653A8F88229FA75D9E53F664
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51776.jpgsave_picture_51776.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:F7BF829DBAF6E349D46D89C77357F98B45D72D14
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51777.jpgsave_picture_51777.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:EA3C22E90C342B6FEA822BDE5EC6795FC2A357AD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51778.jpgsave_picture_51778.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:84FA3CABC06C921AD1531240692017CAAF39617A
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51779.jpgsave_picture_51779.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:17CAE72B53651518EE7B0BDF4347553DC8CD9422
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51780.jpgsave_picture_51780.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:4CE2467C2C98AD10500BF1AE9D00BCE031FAE751
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51781.jpgsave_picture_51781.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:F0BCA25007F70AEDF6F0E0D99D86EB8FE658C0FC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51782.jpgsave_picture_51782.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:CCB3212DA4BA9C34052DA87BA770807F9FB6B012
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51783.jpgsave_picture_51783.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Damian Marley - 4 Albums + Single + Compilation (1996-2010) [FLAC|Lossless]<Regg
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51784.jpgsave_picture_51784.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:F18E4846DAC6AE3246E312ED523EE52A65726772
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51785.jpgsave_picture_51785.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ KMS Tools Portable by Ratiborus 25.06.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51787.jpgsave_picture_51787.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:493AA2E31D46ACEB0F19DC5BC76FF1284DF58AF2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51788.jpgsave_picture_51788.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ System software for Windows v.3.6.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51789.jpgsave_picture_51789.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:6E54513F01F62C56D2642B6893CB1D9BC732D7CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51790.jpgsave_picture_51790.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Windows 11 (v23h2) x64 HSL/PRO by KulHunter v5 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51791.jpgsave_picture_51791.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:80F649747964FCDFD110AE76E66D1026D4D6CE7F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51792.jpgsave_picture_51792.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - 80er - 100 Hits (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51793.jpgsave_picture_51793.jpg" />
 </div>
 
 

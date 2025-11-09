@@ -6,7 +6,7 @@ Turbo Overkill (2023) [Ru/Multi] (1.00) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213527.jpgsave_picture_213527.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wreckreation (2025) [Ru/Multi] (1.0.144924) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213550.jpgsave_picture_213550.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Legendary Tales 4: Map of Hope (2025) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213554.jpgsave_picture_213554.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bleak Sword DX (2023) [Ru/Multi] (0.3072001) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216573.jpgsave_picture_216573.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dark Moon (2025) [Ru/Multi] (Build version 2025-10-29) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220442.jpgsave_picture_220442.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Silly Polly Beast (2025) [Ru/Multi] (1.01) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220632.jpgsave_picture_220632.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228210.jpgsave_picture_228210.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Bloodhound (2023) [Ru/Multi] (1.0) Scene Skidrow
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228228.jpgsave_picture_228228.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ The Game of Life 2 (2020) [Multi] (567387/dlc) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228593.jpgsave_picture_228593.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Enchanted Kingdom 6: Arcadian Backwoods / Зачарованное Короле�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228609.jpgsave_picture_228609.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ My Memory of Us (2018) [Ru/Multi] (1.3057) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228910.jpgsave_picture_228910.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Time Mysteries: Inheritance / Тайны времени: Наследие (2010)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228934.jpgsave_picture_228934.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Fran Bow (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228999.jpgsave_picture_228999.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Omerta: City of Gangsters (2013) [Ru/En] (1.07/dlc) Repack R.G. Origami [Gold Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229032.jpgsave_picture_229032.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ SuperPower 3 (2022) [Ru/Multi] (1.0b) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229292.jpgsave_picture_229292.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ CULTIC (2022) [En] (9714547) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229328.jpgsave_picture_229328.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Mutant Year Zero: Road to Eden (2018) [Ru/Multi] (23289/dlc) License GOG [Deluxe
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229463.jpgsave_picture_229463.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229641.jpgsave_picture_229641.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Gloomy Tales: Horrific Show (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229734.jpgsave_picture_229734.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Mortal Kombat: Legacy Kollection (2025) [Multi] (1.0.0.1) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230013.jpgsave_picture_230013.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Factorio (2020) [Ru/Multi] (2.0.72/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230234.jpgsave_picture_230234.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Escape Simulator 2 (2025) [Ru/Multi] (16494r) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230304.jpgsave_picture_230304.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.3) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230531.jpgsave_picture_230531.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Don't Starve Together (2016) [Ru] (Build 696980/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230562.jpgsave_picture_230562.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230568.jpgsave_picture_230568.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230578.jpgsave_picture_230578.jpg" />
 </div>
 
 

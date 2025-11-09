@@ -6,7 +6,7 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230804.jpgsave_picture_230804.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3DD39CB55D80FC48CAB51B3386D66BADB29C93EA
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230805.jpgsave_picture_230805.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Telegram Desktop 4.8.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230807.jpgsave_picture_230807.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ ExamDiff Pro Master Edition 14.0.1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230809.jpgsave_picture_230809.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Noltem - Illusions In The Wake (2021) [FLAC|Lossless|WEB-DL|tracks] <Atmospherci
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230810.jpgsave_picture_230810.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:8B96640F01A87CB4F357CBA8E5EADF30307C4FE6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230811.jpgsave_picture_230811.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Wondershare PDFelement 9.5.14.2360 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230813.jpgsave_picture_230813.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ BlackSun Horizon - Who Will Live to Tell the Tale (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230814.jpgsave_picture_230814.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Icecream Video Editor Pro 3.04 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230815.jpgsave_picture_230815.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:6680B8F494BC24F29077FF9173D804D7D9D43950
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230816.jpgsave_picture_230816.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Stahlnebel & Black Selket - Time Between Passion & Despair (2019) Limited Editio
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230817.jpgsave_picture_230817.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ ibis Paint X 10.1.5 Mod by AppModz [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230819.jpgsave_picture_230819.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:6C1AEEC4C30464EB6CF12729A63B7C214C03D3F2
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230820.jpgsave_picture_230820.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:9CBD03B0A0001D6980694E8D1CC8BC38B553CB2D
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230822.jpgsave_picture_230822.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ NOAA Weather by RainViewer (RainViewer: Метеорадары, ДМРЛ) 3.0.3 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230824.jpgsave_picture_230824.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:7C8BC5633B903381E0D81EC4BA1503487FF75A64
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230825.jpgsave_picture_230825.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Dynamic Island 1.3.0 Mod by youarefinished [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230826.jpgsave_picture_230826.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ XnViewMP for Mac 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230827.jpgsave_picture_230827.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Birds of Prey - Sulfur & Semen (2008) [FLAC|Lossless|image + .cue] <Death, Sludg
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230829.jpgsave_picture_230829.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:FDF8EC99386C725BCD61F1B10EB90F0A85D0F25C
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230831.jpgsave_picture_230831.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Revolution Saints - Eagle Flight (2023) Japanese Edition [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230832.jpgsave_picture_230832.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Cerebral Invasion - A Story Of Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230834.jpgsave_picture_230834.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Matteo Mancuso - The Journey (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230835.jpgsave_picture_230835.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VIP Notes 9.9.72 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230837.jpgsave_picture_230837.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Nocturna - Daughters Of The Night (2022) Japanese Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230839.jpgsave_picture_230839.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:8EDC23DCC2088DB042B4412C5642174966365D63
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230840.jpgsave_picture_230840.jpg" />
 </div>
 
 

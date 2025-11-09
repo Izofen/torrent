@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7970.jpgsave_picture_7970.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BBFD35B7DAE6FA783B96B8ECD4C41111D24592EB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7971.jpgsave_picture_7971.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BBFD35B7DAE6FA783B96B8ECD4C41111D24592EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7972.jpgsave_picture_7972.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A168B8F194CF8331A7B9EAC4D53A4F7383D7B8A7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7973.jpgsave_picture_7973.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bad Debts - Under Kalimna Skies (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7974.jpgsave_picture_7974.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D57D16711D1890F7764221B91DC5132FB55D88AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7975.jpgsave_picture_7975.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Beguiled - Rise of the Winged Demons (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7976.jpgsave_picture_7976.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Eminent Steed - The Joy of June (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7977.jpgsave_picture_7977.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Brice Harwin - Melancholy Meeting (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7978.jpgsave_picture_7978.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:99271C1271230A9001EBBBE322CF871F00873578
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7979.jpgsave_picture_7979.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:0740E1A07D30E06131E87255B3452F8A8B95139F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7980.jpgsave_picture_7980.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:B84F76AB9239B3701193ED0E1F94A4FCCA66503F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7981.jpgsave_picture_7981.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:C7203BCA652C8D19D235C2299BCE2FE36EB95C4A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7982.jpgsave_picture_7982.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Greg James Ortbach - Somewhere Slow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7983.jpgsave_picture_7983.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:CF407F5CC1B726F7F6E86ED8D81EB3F10359064A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7984.jpgsave_picture_7984.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Ember Tavistock - Grindin' Hustle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7985.jpgsave_picture_7985.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:79C4347823185395ACA44EFD44D8EE2BBEB40A0E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7986.jpgsave_picture_7986.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Bob Forte - Nureci Blues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7987.jpgsave_picture_7987.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:0354E9F46DC9DA4462A436DD7824B0FEBE077673
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7988.jpgsave_picture_7988.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Daylight Ghostfist - Fleeing Fast (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7989.jpgsave_picture_7989.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Chapel Blues - Searchin' for the Sound (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7990.jpgsave_picture_7990.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:B12D285B9D8A0B1867AA70AFFDA41D81A733E9B3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7991.jpgsave_picture_7991.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:9332DF63F78053FDB998FD84CF9943C0D9827A49
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7992.jpgsave_picture_7992.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:6A48AA69D4F9DE30CA2638B23C0854D58FCD40DB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7993.jpgsave_picture_7993.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:A3935C5A4B081C23C211704F1DEFC84A2D40D554
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7994.jpgsave_picture_7994.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Bobby Messano - Still~Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7995.jpgsave_picture_7995.jpg" />
 </div>
 
 

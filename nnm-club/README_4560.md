@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142707.jpgsave_picture_142707.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lindi Ortega (Линди Ортега) - Little Red Boots (2011) Last Gang Recor
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142708.jpgsave_picture_142708.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3A4A246E1526B49438E3F9714390CD559E956C2A
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142709.jpgsave_picture_142709.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ magnet:?xt=urn:btih:01178BD63CA9D3A3E75EF682ECB579B355024A44
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142710.jpgsave_picture_142710.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Veil of Mist - Another End Is Possible (2023) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142711.jpgsave_picture_142711.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:FF53E2B453A46682AFECB4C746444AB8B481CFD3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142712.jpgsave_picture_142712.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Chaos Control Premium 1.11 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142714.jpgsave_picture_142714.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:B9101A27FD4218771BFFEF83BDE2EAA2C2D7F0A4
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142715.jpgsave_picture_142715.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:93F03AFDE5C8C6510639177DC656AD6F617DE24B
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142716.jpgsave_picture_142716.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:F4285B2B48A0D8B833382EB5014CE345AD55B1BA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142717.jpgsave_picture_142717.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:17DC27FC840341BF0424A70A0BCC13FBBB3AD35C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142720.jpgsave_picture_142720.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:EB96D67CCE5D4B01006CF0B659EEB66818CE1F62
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142721.jpgsave_picture_142721.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Zee Timer 7.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142722.jpgsave_picture_142722.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ The Giant Void - Abyssal (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Heavy, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142724.jpgsave_picture_142724.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:F6AA40255B8E5A1C562957DB2D92098795B02519
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142725.jpgsave_picture_142725.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:3533BB0F04855509F140C412FF16F1300A6234A0
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142726.jpgsave_picture_142726.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:AC33D0EB7AA744F183A65E004E1C0FCBB7770D49
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142727.jpgsave_picture_142727.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:655187FFD290109364FAC5B16D5EAB62107E6BD8
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142729.jpgsave_picture_142729.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:86CDB8821FC890341D58CC903C6207E82C6BF059
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142732.jpgsave_picture_142732.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Empire Records - Classic Disco 3 (2017) [MP3|320 Kbps] <Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142733.jpgsave_picture_142733.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:99B7BE58EC1B8679B33E4FB0A74D58933123DF6A
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142734.jpgsave_picture_142734.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Nevercenter CameraBag Photo 2020.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142735.jpgsave_picture_142735.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Donna Summer - Crayons (2016) Reissue Deluxe Edition [MP3|320 Kbps] <Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142737.jpgsave_picture_142737.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:0F31CCF6C1464D4EC7C74EE22619D40BB9E5418A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142739.jpgsave_picture_142739.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Lee Morgan - Volume 3 (1957) 2007, Blue Note [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142740.jpgsave_picture_142740.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:B4AED70A8FCBDA5955918F6BCB23345451D306A0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142741.jpgsave_picture_142741.jpg" />
 </div>
 
 

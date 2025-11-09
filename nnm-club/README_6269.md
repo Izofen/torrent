@@ -6,7 +6,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196558.jpgsave_picture_196558.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BBD71F8AB1191578B8084C27999C533BA07FBD78
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196559.jpgsave_picture_196559.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B7C048828E4837F49A11C8E62BE8781DFF81B739
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196560.jpgsave_picture_196560.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9A1F9CDBCCB7E2744A7A8EC5A359A5549CB035D0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196561.jpgsave_picture_196561.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:E1DAEBF464BD54D2BF6257DA2CC47ADCDBDF0594
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196562.jpgsave_picture_196562.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:D1A39EAD4B723AAF48E61154AE96F2EE3C889B1E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196563.jpgsave_picture_196563.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cx Проводник/ Cx File Explorer 2.0.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196564.jpgsave_picture_196564.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Unwording (2023) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196565.jpgsave_picture_196565.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:669D81347DD9BCA8325B29D25E01CF31206C44C8
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196566.jpgsave_picture_196566.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Otonari ni Ginga / A Galaxy Next Door / Галактика по соседств
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196567.jpgsave_picture_196567.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Yamada-kun to Lv999 no Koi o Suru | Loving Yamada at Lv999! | Моя любов�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196568.jpgsave_picture_196568.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:7F0E6048269103EA3E1B2C8C2F15F7C4F81A86AE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196569.jpgsave_picture_196569.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Aiseesoft Video Enhancer 9.2.56 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196570.jpgsave_picture_196570.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:783C91BC04705A756A7BCD5483723BE922B97DBD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196571.jpgsave_picture_196571.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:6E60E509A3AEB9038AB3055BF6882C047BC9674E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196572.jpgsave_picture_196572.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ SmartDriver: АнтиРадар ГИБДД v1.15.0.36616 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196573.jpgsave_picture_196573.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Ashampoo Driver Updater 1.6.0.0 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196574.jpgsave_picture_196574.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v9 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196576.jpgsave_picture_196576.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Yakuza 5 Remastered (2021) [Multi] (1.006a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196577.jpgsave_picture_196577.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Adobe Acrobat Reader для PDF 23.6.0.28101.Beta Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196578.jpgsave_picture_196578.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:491E70B057DE2B3932C3B41620AAD240C164852C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196579.jpgsave_picture_196579.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:EE7937C21853B1F28ED5A461D246C776C4D96869
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196580.jpgsave_picture_196580.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Kubo-san wa Mob o Yurusanai | Kubo Won't Let Me Be Invisible | Кубо-сан �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196581.jpgsave_picture_196581.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:51D3D47A9D23186C1919892BD9451896292E01A6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196582.jpgsave_picture_196582.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ PhotoDiva Pro 5.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196584.jpgsave_picture_196584.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:BA9CDA49E0C47AC4B7B4D33E56208C23CD90D318
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196585.jpgsave_picture_196585.jpg" />
 </div>
 
 

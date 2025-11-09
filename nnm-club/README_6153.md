@@ -6,7 +6,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (0.1.26.2.46023.12/dlc)
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193362.jpgsave_picture_193362.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Forgotten Seas (2024) [Ru/Multi] (1.0) Repack Pioneer
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193363.jpgsave_picture_193363.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Forgotten Seas (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193364.jpgsave_picture_193364.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Repack Wanterlude [Digital Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193365.jpgsave_picture_193365.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Castle Crashers (2012) [Ru/En] (3.0/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193366.jpgsave_picture_193366.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Knightica (2025) [Ru/Multi] (1.1.1a) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193367.jpgsave_picture_193367.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Warcraft II: Remastered (2024) [Ru/Multi] (1.0.0.2157) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193368.jpgsave_picture_193368.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:B809DCF41679B955474790ABAC225499576570A2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193369.jpgsave_picture_193369.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:F0F25D0376A8036E1F3930B95887445F198B1CB2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193370.jpgsave_picture_193370.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ YT Downloader 9.17.11 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193371.jpgsave_picture_193371.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ MediaHuman YouTube Downloader 3.9.17 (2210) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193372.jpgsave_picture_193372.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:BBBB078828E8E8D094874B7730D3E01BB46E86AF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193373.jpgsave_picture_193373.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:2C4E1FC649C50833D346D108D94FCF43CD606DB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193374.jpgsave_picture_193374.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:C6D57868583FD69B4615FE96BADED5D01678BD6F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193375.jpgsave_picture_193375.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:4E9EEB2D81B7F4CC2C096171D72BEBD610551FE5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193376.jpgsave_picture_193376.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:75918D0ECB08E792E011AB547E7B96F3C91C22D0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193378.jpgsave_picture_193378.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ KLS Backup 2025 Professional 14.0.2.7 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193379.jpgsave_picture_193379.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ DiskSorter 17.4.16 All Editions [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193380.jpgsave_picture_193380.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Eclipse Community - r3dfox 142.0.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193381.jpgsave_picture_193381.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Chris Rea - The Christmas Album (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193382.jpgsave_picture_193382.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Patrick Cowley - Hard Ware (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi NRG>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193383.jpgsave_picture_193383.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ AliveColors 10.0.4853 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193384.jpgsave_picture_193384.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Vampire The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Wante
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193385.jpgsave_picture_193385.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193386.jpgsave_picture_193386.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193387.jpgsave_picture_193387.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack sele
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193388.jpgsave_picture_193388.jpg" />
 </div>
 
 

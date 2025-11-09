@@ -6,7 +6,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142413.jpgsave_picture_142413.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SiteSucker 4.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142414.jpgsave_picture_142414.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:BCF97920790CD2BFEFB0213FF867F1C6DC63E963
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142415.jpgsave_picture_142415.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Burning Witches - Burning Witches (2017) Japanese Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142416.jpgsave_picture_142416.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ The Crypt (Байки из склепа) 1.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142417.jpgsave_picture_142417.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Chimeras 3: Cursed and Forgotten / Химеры 3: Проклятые и заб�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142418.jpgsave_picture_142418.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - Empire Records - Classic Disco 2 (2017) [MP3|320 Kbps] <Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142421.jpgsave_picture_142421.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:B81C316F1E744346F9380F689D0BDEE8D283B049
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142422.jpgsave_picture_142422.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:88C241DFD878BDC3634C5C0DD54523E5AA4958D0
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142423.jpgsave_picture_142423.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Silent Night Chill-Out (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142424.jpgsave_picture_142424.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:A46663EC3BCC9503116B44CD59FF4B2232A6D047
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142425.jpgsave_picture_142425.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Artstudio Pro 3.2.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142426.jpgsave_picture_142426.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:B79E4FB2B34103D4AB2C3D9BDA259E87E8EE05CA
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142428.jpgsave_picture_142428.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:F5B39C48526B10C926221007F900D85B5BD20367
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142429.jpgsave_picture_142429.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:BF123C952D614536BEF825B8F07CB8B7F7BA5237
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142430.jpgsave_picture_142430.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:9F69E020844255C4BAC239CB49229F00A6017507
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142431.jpgsave_picture_142431.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - Music Lovers Club #002 (2020) [AAC|~300 Kbps] <Deep House, Downtempo, Trip 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142433.jpgsave_picture_142433.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142434.jpgsave_picture_142434.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Sensual Winter Chill, Vol. 1 (2019) [AAC|~335 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142436.jpgsave_picture_142436.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:0593144AA475770311D6E69F367925CAA2A9757D
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142438.jpgsave_picture_142438.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:A5EAB95AA021DE5D703564D1867787074362C2AE
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142439.jpgsave_picture_142439.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ GeoGebra 6.0.518 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142440.jpgsave_picture_142440.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:3865C00CC83E4C8D046CC3DC72CFD86343118A47
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142441.jpgsave_picture_142441.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Muffler - Glitch In The System (2021) [AAC|~309 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142442.jpgsave_picture_142442.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - German Top 100 Single Charts 29.12.2017 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142443.jpgsave_picture_142443.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:4C85ED72959ED28B98AC7CCFE6DC815B5BDFD22B
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142445.jpgsave_picture_142445.jpg" />
 </div>
 
 

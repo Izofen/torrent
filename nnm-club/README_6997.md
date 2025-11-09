@@ -6,7 +6,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240083.jpgsave_picture_240083.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DE19F1AFE025174C5B1D30B9B36D263B89534A1F
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240084.jpgsave_picture_240084.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Monkey's Audio 10.07 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240085.jpgsave_picture_240085.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ RTG. Санкт-Петербургская Академия Художеств (
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240086.jpgsave_picture_240086.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - Ibiza Deep House Megamix (2023) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240087.jpgsave_picture_240087.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Debookee v8.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240088.jpgsave_picture_240088.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ ReVanced YouTube Music 5.17.51 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240089.jpgsave_picture_240089.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Blue Öyster Cult - The Symbol Remains (2020) [AAC|~337 Kbps]<Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240090.jpgsave_picture_240090.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Icecream PDF Editor 2.71 Pro Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240091.jpgsave_picture_240091.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:C7031B2B9ACDCA59AE6DC259744FCBB7719752B9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240092.jpgsave_picture_240092.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Adobe Photoshop 2022 23.3.1.426 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240093.jpgsave_picture_240093.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Dash 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240094.jpgsave_picture_240094.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:9FC8DB6B4C339344AF644270B5486BDC4D3659DD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240095.jpgsave_picture_240095.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:09124F1FB47FAB0E57B6C2F8E883A8AE4D14DA6E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240096.jpgsave_picture_240096.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Sufjan Stevens • Timo Andres • Conor Hanick - Reflections (2023) [FLAC 24/96
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240097.jpgsave_picture_240097.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Paul Williams - Colours of Joy (2020) [AAC|~310 Kbps]<Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240098.jpgsave_picture_240098.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:B1FD630B59E72C12C90A73F6BEFD50CA0F59D19F
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240099.jpgsave_picture_240099.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ NF - Hope (2023) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240100.jpgsave_picture_240100.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Sirup Miami 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240101.jpgsave_picture_240101.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Reflect Studio 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240102.jpgsave_picture_240102.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:EE71FA94C5FF742A5202027CB8F853489D5419B3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240103.jpgsave_picture_240103.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:64C08D7FEA9B56A2DF3B5B4F360EF4ACE2241450
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240104.jpgsave_picture_240104.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ iShowU Studio 2 v2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240105.jpgsave_picture_240105.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Dizzy Gillespie Big Band - Complete 1956 South American Tour Recordings (2015) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240106.jpgsave_picture_240106.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Galen & Paul, Galen Ayers, Paul Simonon - Can We Do Tomorrow Another Day? (2023)
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240107.jpgsave_picture_240107.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:8A4FFABED77D1E52093BFFBB66CCE200278E645A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240108.jpgsave_picture_240108.jpg" />
 </div>
 
 

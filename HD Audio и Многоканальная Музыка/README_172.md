@@ -6,7 +6,7 @@ Myrkur - Folkesange (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Bla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118898.jpgsave_picture_118898.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tyrants - Warlord (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Speed, Thrash Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118901.jpgsave_picture_118901.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Myrkur - Mausoleum (2016) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118903.jpgsave_picture_118903.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Myrkur - M (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118905.jpgsave_picture_118905.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Last Dinner Party - Prelude to Ecstasy (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118915.jpgsave_picture_118915.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Brutus (Norway) - Studio Albums (3 releases) (2010-2016) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118921.jpgsave_picture_118921.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Myrkur - Mareridt (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118923.jpgsave_picture_118923.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:9828534FC90C6994C3D4D55A35E1C2D993E508E7
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118941.jpgsave_picture_118941.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Kmfdm - Hyëna (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, I
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119075.jpgsave_picture_119075.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ South Of Sundays - Honey Tongue (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119078.jpgsave_picture_119078.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Urne - Studio Albums (3 releases) (2018-2023) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119079.jpgsave_picture_119079.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Myrkur - Myrkur (2014) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Blac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119082.jpgsave_picture_119082.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Modern Witchcraft - Modern Witchcraft (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119085.jpgsave_picture_119085.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Code Elektro - Metal Heart (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthwave
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119098.jpgsave_picture_119098.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Background Music Masters, Smooth Jazz Family Collective - Bellissimo Jazz Italia
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119103.jpgsave_picture_119103.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Ghost Atlas - Dust of the Human Shape (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119105.jpgsave_picture_119105.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Acolyte - Studio Albums (2 releases) (2016-2021) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119107.jpgsave_picture_119107.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Shujaat Khan - Maestro's Voice (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <World
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119108.jpgsave_picture_119108.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Jazzy - Constellations (Expanded) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119118.jpgsave_picture_119118.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Arcane Tales - Until Where The Northern Lights Reign (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119132.jpgsave_picture_119132.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Graywitch - Children Of Gods (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119292.jpgsave_picture_119292.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Shadow - Studio Albums (2 releases) (2001-2008) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119305.jpgsave_picture_119305.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ The Great Alone - Perception (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alter
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119306.jpgsave_picture_119306.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Plantoid - Terrapath (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <progressive roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119308.jpgsave_picture_119308.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ James Blake - Playing Robots Into Heaven (Endel Focus Soundscape) (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119341.jpgsave_picture_119341.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Bubble Bones - Go Back to the Mojo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119422.jpgsave_picture_119422.jpg" />
 </div>
 
 

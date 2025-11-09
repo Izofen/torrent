@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119969.jpgsave_picture_119969.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D5DE02FBD6F14D6DF3762EB3F9DCB49CA036C139
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119970.jpgsave_picture_119970.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:16999F3AD589A622D6F370488127A5415AAC6D91
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119971.jpgsave_picture_119971.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2D3EA9105C5340E9FB804F05989E0D2664EE9C83
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119972.jpgsave_picture_119972.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ JetBrains GoLand for Mac 2023.2.3 Intel/ARM  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119973.jpgsave_picture_119973.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:16FDED619F034DFBE554CB258B944ED0140EC89B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119974.jpgsave_picture_119974.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:EDE74CD19BFAF536F14A442C96F1AC0A495155B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119975.jpgsave_picture_119975.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ PrivaZer 4.0.82 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119976.jpgsave_picture_119976.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:AA9CF378AE84402C62B063D1CF23B4576509CDB4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119977.jpgsave_picture_119977.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Invasion - Invasion (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119978.jpgsave_picture_119978.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:F195552AF841675CA0C27AC52FB4A288A00F5042
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119979.jpgsave_picture_119979.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:C084358D72DAC1722E003F0C60C984BD4D5F6E14
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119980.jpgsave_picture_119980.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A8416206E100B36CC5BF38FE953AE3A01A8BB327
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119981.jpgsave_picture_119981.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Sonic Academy Plugins Bundle 2023.12 VST/VSTi, VST 3/VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119982.jpgsave_picture_119982.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Free Hex Editor Neo 7.41.00.8634 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119983.jpgsave_picture_119983.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Microsoft PowerToys 0.78.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119984.jpgsave_picture_119984.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:F648A8C4F4D550E4763321298E2089E25E95084B
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119986.jpgsave_picture_119986.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:4E93273001A55C7D3BAB9BB35734F0A771FDBBD5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119987.jpgsave_picture_119987.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ coconutBattery 3 Plus for Mac 3.9.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119988.jpgsave_picture_119988.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:779D18812E654A7F3BE64DE592610E239425BAA8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119989.jpgsave_picture_119989.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:86EEB357FFCF5CAB5477DCA3C00702C61D88A33D
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119990.jpgsave_picture_119990.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:A2A5C0EDE28825CDFEC8092D0FDDD47CCDDDD249
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119991.jpgsave_picture_119991.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:51C676B2F2EA35FCE3ABF63F97527928223ECED3
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119992.jpgsave_picture_119992.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ PIDKey Lite 1.64.4 b38 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119993.jpgsave_picture_119993.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Hidden Object Chronicles: Poisoned Truth (2024) [En] (1.0) Unofficial [Collector
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119994.jpgsave_picture_119994.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:9FD4B562F908F4F2E131A8A27983C14048363E29
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119995.jpgsave_picture_119995.jpg" />
 </div>
 
 

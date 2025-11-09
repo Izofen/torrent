@@ -6,7 +6,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39824.jpgsave_picture_39824.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0C0968962B69AFFBC726F65B8D2B3278A1E2D2FC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39825.jpgsave_picture_39825.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16069251/dlc) Repack FitGirl [Delu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39826.jpgsave_picture_39826.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:07E388ED994A436523B3B7701E1A22EA72692125
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39827.jpgsave_picture_39827.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:07E388ED994A436523B3B7701E1A22EA72692125
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39828.jpgsave_picture_39828.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:DE2AD8E36900F3B50A909EE6D49399A81903CB48
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39829.jpgsave_picture_39829.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:EB80BE5EFBF61FE7E792DAA4E109B37BD72A61CF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39830.jpgsave_picture_39830.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:5985A01FCBA60D7CA2FF24C197E8A0947DF6AC77
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39831.jpgsave_picture_39831.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:B5B274654CEF32BE5695EB7C32DD248F4647F59E
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39832.jpgsave_picture_39832.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ GTA: San Andreas — Definitive Edition 1.86.44544238 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39833.jpgsave_picture_39833.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Launcher for zapret 1.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39834.jpgsave_picture_39834.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:1FA621477DDF83377DB461F8663DE7CE7D2A6504
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39835.jpgsave_picture_39835.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:3E1E1629D49333C66516CCD93AD2E39887599A29
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39836.jpgsave_picture_39836.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ GTA: San Andreas – NETFLIX 1.86.44544238 Mod by Apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39837.jpgsave_picture_39837.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Looney Tunes: Wacky World of Sports (2024) [Multi] (1.0/dlc) Repack FitGirl [Del
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39838.jpgsave_picture_39838.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:131E745EFCD9E1C11CEF337475D125F42DFEAD80
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39839.jpgsave_picture_39839.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:DDCE9227EA0DC2E973CA77BA8F50325A6310DFED
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39840.jpgsave_picture_39840.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:C02202692C2DE264C937BF9FDBC32F8AE5EF996C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39841.jpgsave_picture_39841.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:305044D5839DA46FD82C253C0F4729E496C97D7B
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39842.jpgsave_picture_39842.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:825B241FE7B09749F5458D3B08DDFDFBCB3490E7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39843.jpgsave_picture_39843.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:7C77AC4CE139AC4AFE4E63A57BFD71DFFB4FE7FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39844.jpgsave_picture_39844.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39845.jpgsave_picture_39845.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Shinigami Bocchan to Kuro Maid | The Duke of Death and His Maid | Смертон
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39846.jpgsave_picture_39846.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:D74C02A7FD9ED1D80A7A9A7D337C0BDCAD43A692
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39847.jpgsave_picture_39847.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Musical Kaleidoscope Part 7  relax  and  chill (2024) [MP3|320 Kbps] <Elect
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39848.jpgsave_picture_39848.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:2053DD6023E8D4D232506D5959EDD758EC9D5578
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39849.jpgsave_picture_39849.jpg" />
 </div>
 
 

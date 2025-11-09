@@ -6,7 +6,7 @@ Apple запустила в США сервис самостоятельного
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238509.jpgsave_picture_238509.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Apple объявила о запуске в США сервиса самосто
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238510.jpgsave_picture_238510.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Def Leppard - Retromania (2010) (2CD) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238512.jpgsave_picture_238512.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ GoodNotes 5.6.34 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238514.jpgsave_picture_238514.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Gumroad, Lance Wilkinson | Keyshot Passes and Photoshop Composite (2017) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238515.jpgsave_picture_238515.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ AOMEI Partition Assistant Technician Edition 9.7.0 RePack (& Portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238516.jpgsave_picture_238516.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:A5AB784A411FCB8E291A24609B80DCEF8F1764B4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238517.jpgsave_picture_238517.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ The Wonder Years - The Hum Goes on Forever (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238518.jpgsave_picture_238518.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:C995CDB19332CFF9E874B1E539A25958FCC57595
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238521.jpgsave_picture_238521.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:B3B42ED01CC53BFD6E9E7CDCA6812AFF17F1EE51
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238522.jpgsave_picture_238522.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Clone Fighter 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238523.jpgsave_picture_238523.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:1DAA2285D8DFD24B7DD9E5CDF7E5F16B0D5F698C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238525.jpgsave_picture_238525.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Drowning Pool - Strike A Nerve (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238527.jpgsave_picture_238527.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:72C5F5D2BC22C775067CE483BE2039FBFB567239
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238528.jpgsave_picture_238528.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:E426F9476B3CA168E35703CB16EE6B169E332080
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238529.jpgsave_picture_238529.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Dato 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238530.jpgsave_picture_238530.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:9BDFA786A263EF33E367799C372E0F9C3F42307C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238532.jpgsave_picture_238532.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Counterparts - A Eulogy For Those Still Here (2022) [MP3|320 Kbps] <Metalcore, H
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238533.jpgsave_picture_238533.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:591EED794D1705F5EC51305BBBFCB53D67A29214
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238534.jpgsave_picture_238534.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Yate 6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238537.jpgsave_picture_238537.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ CudaText 1.195.0.5 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238538.jpgsave_picture_238538.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:0E84BA0C383F8A2D33468620B6B156859871DC80
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238539.jpgsave_picture_238539.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ ScreenSaverNow 1.70 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238540.jpgsave_picture_238540.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:65E072F6D126CB0A1C49BAB31E2ECECA81FC6555
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238541.jpgsave_picture_238541.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:5DF527177E96B9C422A777618D9ED451A0556EF0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238543.jpgsave_picture_238543.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:1695EA6EF3155BE0827AC6EC7103530A0BAD6331
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238545.jpgsave_picture_238545.jpg" />
 </div>
 
 

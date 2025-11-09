@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160743.jpgsave_picture_160743.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:606050AC99CD1CAA09DD26FC98B5C99686E06786
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160744.jpgsave_picture_160744.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:C2C0DFD6D2459570650E6888EAB93D8B18812041
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160745.jpgsave_picture_160745.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Proglib.Academy, Наталья Кайда, Александр Пупышев | 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160746.jpgsave_picture_160746.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:CA20CE33CD25BD65A63E3B30A5E63C25B25E38E3
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160747.jpgsave_picture_160747.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ The Expanse: A Telltale Series (2023) [Multi] (1.0.902523.2310241203) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160748.jpgsave_picture_160748.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:82490826DDD17BCD5176CF40E319DD03179202F2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160749.jpgsave_picture_160749.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:B91E4D4FE86DC0D11B3D2D06A045C1B93CEF302F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160750.jpgsave_picture_160750.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:D3195FAAAF8C878D4B4046D981F03ED9AD54AFA7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160751.jpgsave_picture_160751.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:6F27F093F7C6E7B6A5D280304957243CF333BC2E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160752.jpgsave_picture_160752.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Everyone Must Die: A Western Standoff (2023) [En] (1.0.1) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160754.jpgsave_picture_160754.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Render.Camp, Daniel Nagaets, Irena Poliakova and etc. | Professional Visualizati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160755.jpgsave_picture_160755.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Raghav Kandarpa, Shivangi Saxena | Data Wrangling with SQL (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160756.jpgsave_picture_160756.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Format Factory 5.16.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160757.jpgsave_picture_160757.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:8A07BCB98CC8425E2BFF7AFB848396A8174488C3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160758.jpgsave_picture_160758.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - Крутые пушки Осень 2023 [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160759.jpgsave_picture_160759.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:F67161FDB14F8FA3F17E0D7B69E0D603D5E5E928
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160760.jpgsave_picture_160760.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Windows 11 (v23h2) x64 PRO by KulHunter v1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160761.jpgsave_picture_160761.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:67F42D448E54A044183446013ACEDEA680AFE80E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160762.jpgsave_picture_160762.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:7A5C7725183891984846AFAA998A1F27C8BF8E97
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160763.jpgsave_picture_160763.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:AF90CED1031311E5DA64CA7331F2F3D914C39D79
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160764.jpgsave_picture_160764.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:81C940C854AF254C5BC657BF107DE5E9B5F1B519
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160765.jpgsave_picture_160765.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Level One, Анна Петрова | Грамотность без зубреж�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160766.jpgsave_picture_160766.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:8839F860CAF65606FD3FE040A02F7A95FBB16A2A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160767.jpgsave_picture_160767.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ StartAllBack 3.6.16 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160768.jpgsave_picture_160768.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:0684206520CE7D8BAC961D53AF224237755CE11B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160769.jpgsave_picture_160769.jpg" />
 </div>
 
 

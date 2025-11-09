@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204739.jpgsave_picture_204739.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Uplifting Only Top 15: August 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204740.jpgsave_picture_204740.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Wolfenstein: Enemy Territory (2003) [En] (1.0RC1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204741.jpgsave_picture_204741.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:0C718F7CF8DC5B0109289861B047C4E12651BC27
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204742.jpgsave_picture_204742.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Mega Bog - End of Everything (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204744.jpgsave_picture_204744.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ YouTube ReVanced 17.41.37 Mod by CaM/7oCe6e [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204745.jpgsave_picture_204745.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F85DCF3B73C5053FF894ACF77AC3BEFB0B09158D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204746.jpgsave_picture_204746.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Topaz Gigapixel AI 6.2.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204747.jpgsave_picture_204747.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:4E0BE017CDC8B19E1568A680A2BE2EE27CCB0ECF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204748.jpgsave_picture_204748.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:05C767430447217D9BBD98B40379EF000BDB4A39
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204749.jpgsave_picture_204749.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:BBFB26B3784FA7AE7D63DB8F54B7800508C24F66
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204750.jpgsave_picture_204750.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:73DAD882F79058A17892DEE2D62FE36F675AD874
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204751.jpgsave_picture_204751.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:CD1A4928F028ABC02563831754BE2EB3AB9E333D
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204752.jpgsave_picture_204752.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:6DB103B2C0097DFEB03E4C8D0BF298513A5417DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204753.jpgsave_picture_204753.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:2DB3A8E93DBED0DF234C7E3CA2828CEEC76317B0
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204754.jpgsave_picture_204754.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:187E066169B436B43CD4AF8DF83031D3B85A5EE8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204755.jpgsave_picture_204755.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Phil Vincent - Divine Intervention (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204757.jpgsave_picture_204757.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Seal 1.10.0-beta.5 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204758.jpgsave_picture_204758.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:917665654E6F9F7263886C60A4787ED017AA41C1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204759.jpgsave_picture_204759.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Edu Falaschi - Eldorado (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204760.jpgsave_picture_204760.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Lost in Play (2022) [Ru/Multi] (1.0.45) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204761.jpgsave_picture_204761.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ WinRAR 6.20 Beta 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204762.jpgsave_picture_204762.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ FireAlpaca 2.11.7 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204763.jpgsave_picture_204763.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Adrian Cantrill | AWS Certified Solutions Architect - Professional (2022) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204764.jpgsave_picture_204764.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ ZEDGE 8.15.8-beta Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204765.jpgsave_picture_204765.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:4EA646E251879C29AD57ED0EBC611632F1984A27
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204766.jpgsave_picture_204766.jpg" />
 </div>
 
 

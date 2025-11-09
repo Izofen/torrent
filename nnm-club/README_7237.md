@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247413.jpgsave_picture_247413.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita / Др
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247414.jpgsave_picture_247414.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ ZoneAlarm Extreme Security NextGen 3.3.407.0 (Web installer) (акция Comss) 
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247415.jpgsave_picture_247415.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Yuusha ga Shinda! | The Legendary Hero Is Dead! | Герой сдох! [2023, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247416.jpgsave_picture_247416.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Cyberpunk 2077 (2020) [Ru/En] (1.63/dlc) Repack Other s
 >>33
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247417.jpgsave_picture_247417.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:3394032382B57E63198743E6CDB76C2F7A766B72
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247418.jpgsave_picture_247418.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:3EC1F7442D806392F585E07C26E3B9A11FB9B556
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247419.jpgsave_picture_247419.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Adobe Photoshop 2023 24.6.0.573 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247420.jpgsave_picture_247420.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Windows 10 22H2 + LTSC 21H2 (x64) 20in1 +/- Office 2021 by Eagle123 (06.2023) [R
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247421.jpgsave_picture_247421.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:5E80D4F7C1876A5A9DF12490BFA564E6155E38A5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247422.jpgsave_picture_247422.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Maxon Cinema 4D Studio 2023.2.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247423.jpgsave_picture_247423.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Windows 10 Professional 20H2 x64 Game OS 1.4 by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247424.jpgsave_picture_247424.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:44663B2B59401421B950BB2EFA8058D64D10D7A6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247425.jpgsave_picture_247425.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Microsoft Windows 11 [10.0.22621.1848], Version 22H2 (Updated June 2023) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247426.jpgsave_picture_247426.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Adobe Premiere Pro 2023 23.5.0.56 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247427.jpgsave_picture_247427.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Microsoft Windows 10.0.19045.3086, Version 22H2 (Updated June 2023) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247428.jpgsave_picture_247428.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:AD34883EBEC7A748A2CCDB982E0BB0E3B311CCED
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247429.jpgsave_picture_247429.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:8C559D6FE9506F99B0284BFE581AD17F29874C5A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247430.jpgsave_picture_247430.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Udemy, Jonas Schmedtmann | The Ultimate React Course 2023: React, Redux & More  
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247431.jpgsave_picture_247431.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:14189FC9E9270A0A96EEE2A00BF783A948C34EBF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247432.jpgsave_picture_247432.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Adobe After Effects 2023 23.5.0.52 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247433.jpgsave_picture_247433.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247434.jpgsave_picture_247434.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Isekai wa Smartphone to Tomo ni. 2 | In Another World With My Smartphone 2 | В 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247436.jpgsave_picture_247436.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:6F6F8A2EB658AF76E710D94A39F8A845D6915EDB
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247437.jpgsave_picture_247437.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:20D9538919BED883ABAC14772740DEF450FFDB2A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247438.jpgsave_picture_247438.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:664B8E29E175BB2F86D5B5B9C9E8B36BF60B6855
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247439.jpgsave_picture_247439.jpg" />
 </div>
 
 

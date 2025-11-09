@@ -6,7 +6,7 @@ Lennie Tristano - 1947 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107227.jpgsave_picture_107227.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:637625CA2E89644102A4AACEA9DAC6EF8D022A9E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107228.jpgsave_picture_107228.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Image Uploader 1.4.1 Build 5175 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107229.jpgsave_picture_107229.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ PrivaZer 4.0.88 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107230.jpgsave_picture_107230.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Acid Jazz & Funky Grooves 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz & Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107231.jpgsave_picture_107231.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:CAF6A5682F8758728B61003B4D1FAEB1FD57E8EF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107232.jpgsave_picture_107232.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Rory Block - Positively 4th Street (A Tribute To Bob Dylan) (2024) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107233.jpgsave_picture_107233.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Serene Blissful Relaxation Luxury Travel Tunes for Relaxation and Enjoyment
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107234.jpgsave_picture_107234.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:CA85229C06D5899B9E38F5E870BCD7120216076C
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107235.jpgsave_picture_107235.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Ibiza Meets Beauty Chill, Vol. 10 (Balearic Lounge & Chill House Grooves) (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107236.jpgsave_picture_107236.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:92E60993F3CEB7747FF889B7418C65C06BBB749F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107237.jpgsave_picture_107237.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:D8771EB4F2A3266EB20C4BB5AB0983C486C76217
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107238.jpgsave_picture_107238.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Billie Piper - Day & Night (2020) Mix, 2024, Virgin Records [FLAC|Lossless|WEB-D
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107239.jpgsave_picture_107239.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ VA - Relaxing Escape to Paradise Vacation Playlist (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107240.jpgsave_picture_107240.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:54AB60425725E19C56FAAD0BD40AF3480715014E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107241.jpgsave_picture_107241.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - Chillhop Summer Vibes (Chillhop Music for Relaxing Days) (2024) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107242.jpgsave_picture_107242.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ VA - Blissful Luxury Travel Lounge Tunes for Relaxation and Enjoyment (2024) [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107243.jpgsave_picture_107243.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VA - Relaxing Soothing Sounds Enjoying a Quiet Moment While Vacation (2024) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107244.jpgsave_picture_107244.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:08E876554CF43F5A11C832E9C412BCAA40012080
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107245.jpgsave_picture_107245.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Pleasant Relaxing Escape to Paradise Lounge Vacation Playlist (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107246.jpgsave_picture_107246.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Relaxing Soothing Lounge Chill Sounds Enjoying a Quiet Moment While Vacatio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107247.jpgsave_picture_107247.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:E092B1C1C25D412BA99B5A7DD6D7733A93045FC5
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107248.jpgsave_picture_107248.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:8CC05113276AB6F7A93D8955FA14C44202CFF566
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107249.jpgsave_picture_107249.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:E1855F0831F3B89431724C5BE10D505AA6183149
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107250.jpgsave_picture_107250.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - 100 Hits - The 70s (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107251.jpgsave_picture_107251.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:4CEC6CC862588AB56C6F6CEC29B74D210543F040
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107252.jpgsave_picture_107252.jpg" />
 </div>
 
 

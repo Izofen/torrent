@@ -6,7 +6,7 @@ Telegram Desktop 4.7.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245451.jpgsave_picture_245451.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ QOwnNotes 23.5.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245452.jpgsave_picture_245452.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:467C59619779D6DE77FE9534221CCFC718BDDB74
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245453.jpgsave_picture_245453.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ OmniPlayer Pro - Media Player 1.4.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245454.jpgsave_picture_245454.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Type Fu 4.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245455.jpgsave_picture_245455.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ AOMEI Partition Assistant Professional, Server, Technician, Unlimited Edition 9.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245456.jpgsave_picture_245456.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Dato 4.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245457.jpgsave_picture_245457.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Microsoft Windows 10.0.19044.2728, Version 21H2 (Updated March 2023) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245458.jpgsave_picture_245458.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:1B80F9756DC802D7658130BCB61ED726B87B5342
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245459.jpgsave_picture_245459.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ MDaemon mail server 21.5.2 x64 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245460.jpgsave_picture_245460.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Gerard Joling - No More Boleros (1989) [FLAC|Lossless|tracks + .cue]<Рор>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245461.jpgsave_picture_245461.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Permute 3 v3.7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245462.jpgsave_picture_245462.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:69FF8C3755D4FBDBD6247A686709A650B90031FE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245463.jpgsave_picture_245463.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Den Saakaldte - Kapittel II: Faen I Helvete (2014) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245464.jpgsave_picture_245464.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:E56172CE34308C8B10205E516C938A03F60B3490
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245465.jpgsave_picture_245465.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:633D860724AE2607C47374F21525152D0FA7A72B
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245466.jpgsave_picture_245466.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:670E35F1A3FA1E3C18168773604D889FF856B9E7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245467.jpgsave_picture_245467.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ HomeBank 5.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245468.jpgsave_picture_245468.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:A253073A96C80CA14C426C631C2C1AB97E893F3D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245469.jpgsave_picture_245469.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Spiritfarer v35321a (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245470.jpgsave_picture_245470.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Jimmy Raney - Wisteria (1985) 1991, Criss Cross Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245471.jpgsave_picture_245471.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Roxanne - Radio Silence (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245472.jpgsave_picture_245472.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:C5CDC70D6D64398C338CA25412B5DCC5061EF5B2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245473.jpgsave_picture_245473.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Carnivored - Revival (2012) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245474.jpgsave_picture_245474.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:472B5EFCE038141BA1841ABE88059A8CC657DFA6
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245475.jpgsave_picture_245475.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Rhinoceros 7 v7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245476.jpgsave_picture_245476.jpg" />
 </div>
 
 

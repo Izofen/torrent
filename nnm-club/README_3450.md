@@ -6,7 +6,7 @@ Blaze of Perdition - 418 - ATh IAV (2013) Split [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110061.jpgsave_picture_110061.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ UniverMag - Дети дождя (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110062.jpgsave_picture_110062.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - Autumn Flight, Vol. 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Melodic 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110063.jpgsave_picture_110063.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Trippelganger - Possessor (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psyc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110064.jpgsave_picture_110064.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ English Teacher - This Could Be Texas (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110065.jpgsave_picture_110065.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ The Riotous Brothers - The Riotous Brothers (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110066.jpgsave_picture_110066.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:3E29CA0F7EF9B426305B70137FA23DBF10DA5ED3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110067.jpgsave_picture_110067.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Autumn Flight (2020) [FLAC|Lossless|WEB-DL|tracks] <House, Melodic House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110068.jpgsave_picture_110068.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Art Davis - Every Day I Have the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110069.jpgsave_picture_110069.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Cold Years - A Different Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Punk, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110070.jpgsave_picture_110070.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ John Haydock - Steal This Too (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110071.jpgsave_picture_110071.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Autumn Flight, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Melodic 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110072.jpgsave_picture_110072.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Brad Puckett - Blue Sky Morning (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110073.jpgsave_picture_110073.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Scavenger - Beyond The Bells (2024) [FLAC|Lossless|WEB-DL|tracks] <Oldschool Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110074.jpgsave_picture_110074.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Blake Aaron - Love and Rhythm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smoo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110075.jpgsave_picture_110075.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Black Jack 21 Blues Band - Devil's Face So Close (2024) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110076.jpgsave_picture_110076.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Intoxigation Blues Band - Boogie Motel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110077.jpgsave_picture_110077.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Eddie Cotton - The Mirror (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110078.jpgsave_picture_110078.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Christian Kallias' Steel Eternal - Battlecry Of The Galaxy (2024) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110079.jpgsave_picture_110079.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ The Watchers - Nyctophillia (2024) [MP3|320 Kbps] <Doom Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110080.jpgsave_picture_110080.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Bert Hillesheim - 12 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110081.jpgsave_picture_110081.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Horizons (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110082.jpgsave_picture_110082.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Bob Marley & The Wailers - Uprising (1980) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110083.jpgsave_picture_110083.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Futurenow 3.0 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, C
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110084.jpgsave_picture_110084.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Travelers (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110085.jpgsave_picture_110085.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:A477D34603BCBC17E2DC4B5FBE46D5D870974CD1
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110086.jpgsave_picture_110086.jpg" />
 </div>
 
 

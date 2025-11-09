@@ -6,7 +6,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25095.jpgsave_picture_25095.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ LESCUYER (изд.) | Базилика Сакре кёр на Монмартре 
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25096.jpgsave_picture_25096.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B792C570BEE4DD01BF9EA40E0A4521B6CD6E2960
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25097.jpgsave_picture_25097.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Texas - Compilation (1989-2021) [MP3|320 Kbps] <Pop rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25098.jpgsave_picture_25098.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:22AFD170266F917E863F47824AB1C4603C5524AF
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25099.jpgsave_picture_25099.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:A229A5372830DDAE9BA7DFDDF28D7B7BCFC75350
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25100.jpgsave_picture_25100.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:C4D7306907CE7CB5A09C421B68482B1D1EAD393D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25101.jpgsave_picture_25101.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:FBCDB4B5788CCE593B4C205C0EC653052F5929B7
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25102.jpgsave_picture_25102.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Lumen - Три пути. 20 лет (Live) (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25103.jpgsave_picture_25103.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:2013DFB3A158CBDB1A50041E0DCB7972BA7578A0
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25104.jpgsave_picture_25104.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Dean Zucchero - Song For The Sinners (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25105.jpgsave_picture_25105.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Disturbed - The Sickness (2000) 25th Anniversary Deluxe Edition, 2025, Reprise [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25106.jpgsave_picture_25106.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:A0171613494746B9C40CC17F71317118974FD99B
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25107.jpgsave_picture_25107.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:0D71E3F8E0FBB84EFB05DA9564E4927C8F902F1E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25108.jpgsave_picture_25108.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:A5EF90F5441CC5725AADA7540D0077CF9850182F
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25109.jpgsave_picture_25109.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ TweakPower 2.070 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25110.jpgsave_picture_25110.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:ACD0BF2B5C63594AFF6F3EF899EBE0BFE2FF9713
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25111.jpgsave_picture_25111.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ TikTok 39.0.3 Mod by Dmitry Nechiporenko + Plugin 1.72 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25112.jpgsave_picture_25112.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:6A13FC2F4A4DADE50D5D21D8166ABB591C34E705
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25113.jpgsave_picture_25113.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:6A13FC2F4A4DADE50D5D21D8166ABB591C34E705
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25114.jpgsave_picture_25114.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Telegram Desktop 5.12.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25115.jpgsave_picture_25115.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - Assorted remixes compilation part 4 (2025) [MP3|320 Kbps] <Progressive Rock
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25116.jpgsave_picture_25116.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Overloud - TH-U Slate Edition 2.0.1 STANDALONE, VST, VST 3, AAX (x64) RePack by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25117.jpgsave_picture_25117.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:22F898BDA30C47A69624FA713C7A2C91DB052C1D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25118.jpgsave_picture_25118.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:22F898BDA30C47A69624FA713C7A2C91DB052C1D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25119.jpgsave_picture_25119.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Audacity 3.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25120.jpgsave_picture_25120.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Gloom: System Breach (2025) [Multi] (1.0.7) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14101.jpgsave_picture_14101.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Labyrinth of the Demon King (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14108.jpgsave_picture_14108.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Victoria 3 (2022) [Ru/Multi] (1.9.0/dlc) Repack FitGirl [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14111.jpgsave_picture_14111.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Mini Racer Car Shop Simulator (2025) [Ru/Mjulti] (1.0-2025.19.5.1) Repack FitGir
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14118.jpgsave_picture_14118.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Chill Town (2024) [Ru/Multi] (1.0.0 Build 63) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14122.jpgsave_picture_14122.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ At Dead Of Night (2020) [Ru/Multi] (Build 14844637) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14130.jpgsave_picture_14130.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14144.jpgsave_picture_14144.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.6.0/dlc) Repack FitGirl [Complete Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14149.jpgsave_picture_14149.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Repack FitGirl [Vanguard Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14153.jpgsave_picture_14153.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ WARNO (2024) [Ru/Multi] (157953/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14173.jpgsave_picture_14173.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5-34484/dlc) Repack FitGirl [The Compl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14176.jpgsave_picture_14176.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14179.jpgsave_picture_14179.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.11.7) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14187.jpgsave_picture_14187.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14213.jpgsave_picture_14213.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Five Nights at Freddy's Anthology (2014-2016) [Ru/En] (1.132/1.033/1.032/1.1/1.1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14227.jpgsave_picture_14227.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.7.1104/dlc) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14249.jpgsave_picture_14249.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Call of Duty: WWII (WW2) (2017) [Ru/En] (1.25.2244937.32767.0/dlc) Repack Decept
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14253.jpgsave_picture_14253.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.12.0/dlc) Repack Other s [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14257.jpgsave_picture_14257.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ SCUM (2018) [Ru/Multi] (1.0.0.0.94918/dlc) Repack seleZen [Complete Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14260.jpgsave_picture_14260.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.2/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14261.jpgsave_picture_14261.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ SCUM (2018) [Ru/Multi] (1.0.0.0.94918/dlc) Repack FitGirl [Complete Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14268.jpgsave_picture_14268.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Bard's Tale IV (4): Barrows Deep (2018) [Ru/Multi] (4.18.3-109511/dlc) Licen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14276.jpgsave_picture_14276.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Tavern Manager Simulator (2024) [Ru/Multi] (1.4.7/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14282.jpgsave_picture_14282.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Parkitect (2018) [Ru/Multi] (1.11e/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14295.jpgsave_picture_14295.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Prison Simulator (2021) [Ru/Multi] (1.4.3.18/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14322.jpgsave_picture_14322.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Rain World (2017) [Ru/Multi] (1.10.4/dlc) Repack Other s [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14329.jpgsave_picture_14329.jpg" />
 </div>
 
 

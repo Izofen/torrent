@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106156.jpgsave_picture_106156.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Imperia - Dark Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106159.jpgsave_picture_106159.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Rock Klassiker (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106162.jpgsave_picture_106162.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Don't Stop the Rock! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106164.jpgsave_picture_106164.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Schwarzer Engel - Höhere Gewalt (2024) [FLAC|Lossless|WEB-DL|tracks] <Industria
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106167.jpgsave_picture_106167.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Status Quo - Official Archive Series Vol. 3: Live at Westonbirt Arboretum 2008  
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106168.jpgsave_picture_106168.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Golf Cart Mixtape: Classic Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106171.jpgsave_picture_106171.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:CF7A663019E81E7AA7D67BE48DBFBF699354086D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106172.jpgsave_picture_106172.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Soulbound - obsYdian (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106174.jpgsave_picture_106174.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Green Grey - Greatest Hits (2014) [WavPack|Lossless|image + .cue] <Alternative R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106183.jpgsave_picture_106183.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A86B1AB2BA8129D970267F1016858A190CCE1A87
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106185.jpgsave_picture_106185.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Category 7 - Category 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106206.jpgsave_picture_106206.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jethro Tull - Live - Bursting Out (1978) 3 x CD, Reissue, 2024, Chrysalis [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106208.jpgsave_picture_106208.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Powerwolf - Wake Up The Wicked (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106210.jpgsave_picture_106210.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sonata Arctica - Clear Cold Beyond (2024) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106225.jpgsave_picture_106225.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dream Evil - Metal Gods (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106234.jpgsave_picture_106234.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Inner Strength - Daydreaming In Moonlight (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106244.jpgsave_picture_106244.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Incantation - Sect Of Vile Divinities (2020) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106255.jpgsave_picture_106255.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Voidlung - Maledictus Rex (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106256.jpgsave_picture_106256.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Chris Boudreaux - Beside Myself (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106266.jpgsave_picture_106266.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Mine Road - Tomorrow's Sky (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106272.jpgsave_picture_106272.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ John Lennon - Mind Games (1973) 2xCD, Reissue, 2024, Lenono Music, Universal Mus
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106285.jpgsave_picture_106285.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Historia - Echoes Of The Will (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106295.jpgsave_picture_106295.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Angel Sword - World Fighter (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106322.jpgsave_picture_106322.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ New Years Day - Half Black Heart (2024) [FLAC|Lossless|tracks + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106326.jpgsave_picture_106326.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Hard Power - Hard Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106327.jpgsave_picture_106327.jpg" />
 </div>
 
 

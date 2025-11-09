@@ -6,7 +6,7 @@ Leah - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8441.jpgsave_picture_8441.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Блатной Шансон на отдыхе (2025) [FLAC|Lossless|WEB-DL|
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8442.jpgsave_picture_8442.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - The Orient Collective: Mystic Sands (2024) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8443.jpgsave_picture_8443.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:B8B2309D6A749D959C6F4B9F3B1B19192D544D6B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8444.jpgsave_picture_8444.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:4D3960FAE99BBA8A5E0CAE248978111248A75963
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8445.jpgsave_picture_8445.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:6D73E39AC6D36130081DEE837C45D1D8C23A0F00
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8446.jpgsave_picture_8446.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Venomode - Phrasebox 2 2.0.2 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8447.jpgsave_picture_8447.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:718779CBAD4B1EEABCA4FF9A18562112F285EF28
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8448.jpgsave_picture_8448.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:6AF246D35F2840976C18D3045DB26AE533C4A80B
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8449.jpgsave_picture_8449.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Bandicam 8.2.0.2523  RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8450.jpgsave_picture_8450.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:D7C99E35FF4891720B2AC3ACC98F09C05C07C52C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8451.jpgsave_picture_8451.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Aiseesoft Blu-ray Player 6.7.82 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8452.jpgsave_picture_8452.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Allavsoft Video Downloader Converter 3.28.2.9340 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8453.jpgsave_picture_8453.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Bandicam 8.2.0.2523 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8454.jpgsave_picture_8454.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:9F84DF5890E3E4FCB6090E7843404FA8B178A285
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8455.jpgsave_picture_8455.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:8451A87C5485BA30E18B0586D23A4961DA8E2E5D
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8456.jpgsave_picture_8456.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - 90s Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8457.jpgsave_picture_8457.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:B1F7BFEFA75665DCC6EB2E877F582308262FFA40
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8458.jpgsave_picture_8458.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VA - Rock Klassiker: 80er & 90er (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8459.jpgsave_picture_8459.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8460.jpgsave_picture_8460.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:FDD9FC32FB5B630ADE2746AD341E375F6AC2E33A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8461.jpgsave_picture_8461.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ StaxRip 2.48.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8462.jpgsave_picture_8462.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:5A264E1F8D7EC054C5B64F6AED7B6A9A35F176C4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8463.jpgsave_picture_8463.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:4507EE375D6BE4D9F95FCAF581B7D98DDEE97D13
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8464.jpgsave_picture_8464.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:6E3534B9A0DEB988A93B7595FB970CC2CC7F17FC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8465.jpgsave_picture_8465.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Native Instruments - Kontakt 8.6.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8466.jpgsave_picture_8466.jpg" />
 </div>
 
 

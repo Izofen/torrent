@@ -6,7 +6,7 @@ HiBit Uninstaller 3.1.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233246.jpgsave_picture_233246.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:C90F6A7DC44B06C8780DC57271FE33D8DBB2B681
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233247.jpgsave_picture_233247.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - Lounge Tribute, Vol. 4 (2010) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233248.jpgsave_picture_233248.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:705A35A59FA1E4EF1AA0870F5FB24ABDCFAECD71
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233249.jpgsave_picture_233249.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ WinUtilities Professional Edition 15.87 RePack (& Portable) by Dodakaedr [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233250.jpgsave_picture_233250.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Circus Of Rock - Lost Behind The Mask (2023) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233251.jpgsave_picture_233251.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:83BCD8545573472991D765BBEC0C7A865B36DAB4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233252.jpgsave_picture_233252.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VSDC Video Editor Pro 7.1.13.433 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233253.jpgsave_picture_233253.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:28B365BA5696E18775DB8CA324B3A4A8CA7E4A1F
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233254.jpgsave_picture_233254.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:E0E92D343C1F49F44BB763B653B7C1B968901E71
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233255.jpgsave_picture_233255.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VA - Lounge Tribute, Vol. 3 (2010) [AAC|~341 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233257.jpgsave_picture_233257.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Nova Era - The Curse (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233258.jpgsave_picture_233258.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:8EB28B4D3BB682FA19F74F56F8B1B20F336F69A7
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233259.jpgsave_picture_233259.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:72CF811A3951F848E42ACA6A2E482BE6F9179B88
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233260.jpgsave_picture_233260.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Wolfheart - King Of The North (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233261.jpgsave_picture_233261.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Fish - 13th Star (2007) Deluxe Digital 2023 Remix, 7Hz Productions [FLAC|24/44.1
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233262.jpgsave_picture_233262.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:F5F8668831ECD86D901B4019A589BE655B18489F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233263.jpgsave_picture_233263.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Otaku ni Koi wa Muzukashii | Wotakoi: Love is Hard for Otaku | Любовь - п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233265.jpgsave_picture_233265.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:DFB67AB99A8858AA202380E76900CC9AFAF6774D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233266.jpgsave_picture_233266.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:1D1463D5FC8CEF328E7CD5621AD348077E279D07
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233267.jpgsave_picture_233267.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ VA - Lounge Tribute, Vol. 2 (2010) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233268.jpgsave_picture_233268.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Photomath Plus 8.26.0 (b70000912) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233269.jpgsave_picture_233269.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ AnyDroid 7 v.7.5.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233271.jpgsave_picture_233271.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ The London Suede - Autofiction (2022) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233272.jpgsave_picture_233272.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:74D6846817749104E853DB9931201264D9626C0A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233273.jpgsave_picture_233273.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Waterfox Current G5.1.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233274.jpgsave_picture_233274.jpg" />
 </div>
 
 

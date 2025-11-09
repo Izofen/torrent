@@ -6,7 +6,7 @@ From Fall to Spring - RISE (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126601.jpgsave_picture_126601.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kalmah - Studio Albums (9 releases) (2000-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126734.jpgsave_picture_126734.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Atomkraft - Queen of Death (1986) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBH
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126751.jpgsave_picture_126751.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:A600B9E64E2C32BB536B9F258DB90918870998AE
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126770.jpgsave_picture_126770.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Warpath - Uprising Of The Oppressed (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126853.jpgsave_picture_126853.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Stoned Statues - Guardian (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126857.jpgsave_picture_126857.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dusk - My Infinite Nature Alone (1999) Remaster, 2021, rearts records [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126860.jpgsave_picture_126860.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Atomkraft - Future Warriors (1985) [FLAC|24/96|tracks|Vinyl-Rip]<NWOBHM, Heavy M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126863.jpgsave_picture_126863.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Atomkraft - Atomkraft (1987) Compilation [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126869.jpgsave_picture_126869.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Stilz - Vision (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126880.jpgsave_picture_126880.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Electus - Episode IV (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126881.jpgsave_picture_126881.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Serj Tankian - Invocations (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classical
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126908.jpgsave_picture_126908.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Lunacy - Disconnection (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove, Death
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127033.jpgsave_picture_127033.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:BC333DCE0AA7439A504415F9E7F0583D5F9B8E21
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127260.jpgsave_picture_127260.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Phantasm - Keeper of Death (1993) [WavPack|32/176,4|image + .cue|Vinyl-Rip] <Thr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127351.jpgsave_picture_127351.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Rosie Darling - Lanterns (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127364.jpgsave_picture_127364.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Troll - Trolldom (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Black Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127542.jpgsave_picture_127542.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Black Crowes - The Southern Harmony And Musical Companion (1992) Super Delux
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127586.jpgsave_picture_127586.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Placebo - Collapse Into Never - Live In Europe (2023) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127595.jpgsave_picture_127595.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Rolling Stones - Hackney Diamonds (2023) Live Edition, Explicit, 2023, Polyd
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127607.jpgsave_picture_127607.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Ayreon - The Source (2017) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127764.jpgsave_picture_127764.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Saverio Maccne - Southern Light (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127769.jpgsave_picture_127769.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Jorgen (Jørgen) Sandvik - The Overview (2023) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127770.jpgsave_picture_127770.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Wellington Heads - World Keep On Turning (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127772.jpgsave_picture_127772.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sinisa Petric - Please Come Home (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127786.jpgsave_picture_127786.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Stam1na - Studio Albums (12 releases) (2005-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127793.jpgsave_picture_127793.jpg" />
 </div>
 
 

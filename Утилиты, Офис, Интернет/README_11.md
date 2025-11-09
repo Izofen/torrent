@@ -6,7 +6,7 @@ Ashampoo WinOptimizer 28.00.13 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8909.jpgsave_picture_8909.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Soft Organizer Pro 10.20 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8924.jpgsave_picture_8924.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Soft Organizer Pro 10.20 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8926.jpgsave_picture_8926.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Reg Organizer 9.80 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8943.jpgsave_picture_8943.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Reg Organizer 9.80 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8955.jpgsave_picture_8955.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ IObit Smart Defrag Pro 11.0.0.454 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9146.jpgsave_picture_9146.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Revo Registry Cleaner Pro 1.5.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9148.jpgsave_picture_9148.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Youtube Downloader HD 5.9.8.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9156.jpgsave_picture_9156.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ WinCatalog 2024.14.1.728 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9366.jpgsave_picture_9366.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:051F416D820137355585B2AB8689F71DD0DC32FF
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9372.jpgsave_picture_9372.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ TeraByte Image for Windows 3.64 + BootCD [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9377.jpgsave_picture_9377.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ MediaInfo 25.07 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9414.jpgsave_picture_9414.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:6471F7144617A2E53F7EF7E38BE2E6B0C268E461
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9421.jpgsave_picture_9421.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Auslogics File Recovery 12.0.1.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9520.jpgsave_picture_9520.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Auslogics Registry Cleaner Pro 11.0.1.2 RePack (& Portable) by elchupacabra [Mul
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9521.jpgsave_picture_9521.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ DriverMax 16.19.0.23 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9567.jpgsave_picture_9567.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ WinRAR 7.13 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9584.jpgsave_picture_9584.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ PrivaZer Pro 4.0.109 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9635.jpgsave_picture_9635.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Emurasoft EmEditor Professional 25.2.3 RePack (& Portable) by elchupacabra [Mult
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9645.jpgsave_picture_9645.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:C5A8AFA9230CA20B8E93EA595EFA5C9CCC14CD8F
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9668.jpgsave_picture_9668.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ NFOPad 1.81 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9671.jpgsave_picture_9671.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ SplitCam 10.8.55 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9782.jpgsave_picture_9782.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ FreeFileSync 14.4 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9858.jpgsave_picture_9858.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ WinRAR 7.13 Final [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9896.jpgsave_picture_9896.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ WinRAR 7.13 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9920.jpgsave_picture_9920.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Auslogics File Recovery 12.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10253.jpgsave_picture_10253.jpg" />
 </div>
 
 

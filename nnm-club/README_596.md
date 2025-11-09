@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15807.jpgsave_picture_15807.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:644AE12661200A86272917C61CA0E7F87BC93684
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15808.jpgsave_picture_15808.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:644AE12661200A86272917C61CA0E7F87BC93684
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15809.jpgsave_picture_15809.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CE21EA87A9F08016B5B892D1739905298FA0A0FB
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15810.jpgsave_picture_15810.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:676C2B4CACA0935A31682269DCB6F5964BDFE9CA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15811.jpgsave_picture_15811.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Keb' Mo' - 19 Albums, 1 EP (1980 - 2025) 22 CD [FLAC|Lossless|image + .cue|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15812.jpgsave_picture_15812.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A11965E17B648916F19A3AF4F8BC4C78AF91289A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15813.jpgsave_picture_15813.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:0C19CD5047DB1598A7EF9419FABC68B72FE8C3B8
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15814.jpgsave_picture_15814.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:ADEB4B01D73CE002CE3C8EFDD4BF22E3A6C984A4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15815.jpgsave_picture_15815.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:77065D8FD180780734446395AE48C5F010D02EEB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15817.jpgsave_picture_15817.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:A1B93A56464650AFDB60C9F321E3B50F8D76DBC5
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15818.jpgsave_picture_15818.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:93B501E4D1B78E5E5C0E1E3269B4BE5B0535E354
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15819.jpgsave_picture_15819.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:D998C558BCC1898EE232FB225D92AE6DBCE7A173
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15820.jpgsave_picture_15820.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:D0ACC58914545D3EBCDDD75E516BE02730F6294F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15821.jpgsave_picture_15821.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15822.jpgsave_picture_15822.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:A6DF27A62E334BFDB93BDBC2CE5DC9C46316D4A7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15823.jpgsave_picture_15823.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:DAF05AA0E8554014ABCAC3EF4AAB4C6A22CC9FD5
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15824.jpgsave_picture_15824.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:7FDA5B52CD7C8B52F4227AB9625B4F6BF57655E6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15825.jpgsave_picture_15825.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ A Year Of Springs (2021) [Multi] (1.07) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15826.jpgsave_picture_15826.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - Chill Out Paradise, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15827.jpgsave_picture_15827.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:88CC1E7C6741EE2B5FD511B3F139AD01DC1A5B68
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15828.jpgsave_picture_15828.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ SUM★41 - Compilation (2000-2024) [MP3|320 Kbps] <Punk rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15829.jpgsave_picture_15829.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15830.jpgsave_picture_15830.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15831.jpgsave_picture_15831.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ State Azure + Data Rebel - Core (2025) EP [FLAC|Lossless|Web-DL|tracks] <Techno,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15832.jpgsave_picture_15832.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:D1388AF2A19F6D47F8A7AB33935FA484CA170CF9
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15833.jpgsave_picture_15833.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Pyrograph - Pyrograph (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106971.jpgsave_picture_106971.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kung Fu Overdrive - Kung Fu Overdrive (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106972.jpgsave_picture_106972.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Black Tiger - Alive (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106978.jpgsave_picture_106978.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Alan Parsons Project - Vulture Culture (Sessions) (1985) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106983.jpgsave_picture_106983.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dean Wingerter - Crazy Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106987.jpgsave_picture_106987.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Metal De Facto - Land Of The Rising Sun, Pt. 1 (2024) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106994.jpgsave_picture_106994.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Crystal Viper - The Silver Key (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106996.jpgsave_picture_106996.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cloven Hoof - Heathen Cross (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106997.jpgsave_picture_106997.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Orden Ogan - The Order Of Fear (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107045.jpgsave_picture_107045.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Visions Of Atlantis - Pirates II - Armada (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107051.jpgsave_picture_107051.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Axty - Hannya (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore, Post-Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107055.jpgsave_picture_107055.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Kissin' Dynamite - Back With A Bang (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107056.jpgsave_picture_107056.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Kryptos - Decimator (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107058.jpgsave_picture_107058.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Lacey Sturm (ex-Flyleaf) - Kenotic Metanoia (2023) Deluxe Edition, 2024, Indepen
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107111.jpgsave_picture_107111.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Algorithmic Melody - Love & War (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alt Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107184.jpgsave_picture_107184.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Pallas - Arrive Alive (1981) Remaster, 2024, Esoteric [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107192.jpgsave_picture_107192.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Various Artists - Fußball - Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107201.jpgsave_picture_107201.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Strolling - Rock & Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107211.jpgsave_picture_107211.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Father's Day 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107212.jpgsave_picture_107212.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Muna - Live at The Greek Theatre in Los Angeles (2024) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107283.jpgsave_picture_107283.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Slam 420 - Bloated Exploded OG Gluttony (2020) [FLAC|Lossless|image + .cue] <Sla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107290.jpgsave_picture_107290.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Pryne - Gargantuan (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107291.jpgsave_picture_107291.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Matador - Сквозь тень времен (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107296.jpgsave_picture_107296.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Madness - Theatre Of The Absurd presents C'Est La Vie (2023) Enhanced Edition, 2
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107301.jpgsave_picture_107301.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Pryne - Gargantuan (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107306.jpgsave_picture_107306.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Anims - Good 'n' Evil (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107315.jpgsave_picture_107315.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114859.jpgsave_picture_114859.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CCF35D6FFF9694FCBFA680E0FE5538A0508FD942
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114860.jpgsave_picture_114860.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Topaz Video AI 4.2.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114861.jpgsave_picture_114861.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Joplin 2.14.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114862.jpgsave_picture_114862.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ DiskDigger 2.0.1.3877 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114863.jpgsave_picture_114863.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:F6A5AF63F62D306C8CC545C1E183BA70373F2829
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114864.jpgsave_picture_114864.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:30094831D05BA0149CA7E87A8645EB4102EEDEF0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114865.jpgsave_picture_114865.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:F6118BAB4711ADDF5DD520378725A823F40B7F39
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114866.jpgsave_picture_114866.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ EssentialPIM Pro 11.8.3 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114867.jpgsave_picture_114867.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:21FF78F03387DAC545117B550EDB2EF7854B0C83
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114868.jpgsave_picture_114868.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:9B865DCA73D35DC3EC14BE7580FE51C68F44BBE8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114869.jpgsave_picture_114869.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Spotify 1.2.31.1205 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114870.jpgsave_picture_114870.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:23926D11BD8C79225425503416B8177ABB6ADA94
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114871.jpgsave_picture_114871.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:23926D11BD8C79225425503416B8177ABB6ADA94
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114872.jpgsave_picture_114872.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:49FDE3CDCE7F616D8814998C5CABD8CC2763980F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114873.jpgsave_picture_114873.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:9E282DAB88BF9903B2DD8BC6DFC61CFC23F62148
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114874.jpgsave_picture_114874.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VueScan Pro 9.8.28 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114875.jpgsave_picture_114875.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Topaz Photo AI 2.4.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114876.jpgsave_picture_114876.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:9D5883C30455C1DC3BF0CA416AA5FE17B51B39C6
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114877.jpgsave_picture_114877.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ DesktopClock3D 1.93 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114878.jpgsave_picture_114878.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:468392C10DC548968B4AC644AE44A72D85BC3045
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114879.jpgsave_picture_114879.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:467B0C56A9006487C2ADE7559A08E5F5D8F99A61
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114880.jpgsave_picture_114880.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:D3040FEDA79E069D6CF5208C884F3FCE33A9493E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114881.jpgsave_picture_114881.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:A6C0DA7694C65FF955F215ECFBA34E7A2C164EEB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114882.jpgsave_picture_114882.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ LDPlayer 9.0.67 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114883.jpgsave_picture_114883.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Stand Up (2024.03.01) SATRip (сезон 11, выпуск 16)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114884.jpgsave_picture_114884.jpg" />
 </div>
 
 

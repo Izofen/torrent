@@ -6,7 +6,7 @@
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14689.jpgsave_picture_14689.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:121D5B7E1A87955DA00E1C98E9A00850A3724BCF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14690.jpgsave_picture_14690.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:121D5B7E1A87955DA00E1C98E9A00850A3724BCF
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14691.jpgsave_picture_14691.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7C5D01BC118FEAC52686E4260C19A5EB6C197D0E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14692.jpgsave_picture_14692.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:DBD36A8465042074D2BE78DDAA69560AA7547A25
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14693.jpgsave_picture_14693.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5214CEF4AEE7F537A5831EABF1BDD987B209309D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14694.jpgsave_picture_14694.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:5214CEF4AEE7F537A5831EABF1BDD987B209309D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14695.jpgsave_picture_14695.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:5214CEF4AEE7F537A5831EABF1BDD987B209309D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14696.jpgsave_picture_14696.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:9F572AA6AEE63C1A526A285AABF2F7558A9E1971
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14697.jpgsave_picture_14697.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:9F572AA6AEE63C1A526A285AABF2F7558A9E1971
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14698.jpgsave_picture_14698.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:6054F24994C373EFF5CAD7BACCB9778C61EB6B61
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14699.jpgsave_picture_14699.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:D00BDF84FD940AC080BD03D536152E64927DE1F1
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14700.jpgsave_picture_14700.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:AAC85CA26D25D31ADA0D9EAEA9E299B7CEE7CF20
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14701.jpgsave_picture_14701.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:4B7323890460B42BA189806EF9BB07703D746144
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14702.jpgsave_picture_14702.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:3498E9B609D56A97E5215E9135E3B7A070DD33CB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14703.jpgsave_picture_14703.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:EA8E80384B301A75926E38C286925C9B3A6D30EF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14704.jpgsave_picture_14704.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:274E60339786ACBB0C0A56D9107BFFA34CD3D591
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14705.jpgsave_picture_14705.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.4.110480/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14706.jpgsave_picture_14706.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Van Morrison - Remembering Now (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14707.jpgsave_picture_14707.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:849FB23991D8B431D5B7E646A4C861C7BB1D0F6F
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14708.jpgsave_picture_14708.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:5F97954E6A7EC35C1D3C5AE7A5EAFD95A4AAD303
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14709.jpgsave_picture_14709.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Li
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14710.jpgsave_picture_14710.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Del
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14711.jpgsave_picture_14711.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14712.jpgsave_picture_14712.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Li
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14713.jpgsave_picture_14713.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ The Knocks & Dragonette - Revelation (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14714.jpgsave_picture_14714.jpg" />
 </div>
 
 

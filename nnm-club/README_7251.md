@@ -6,7 +6,7 @@ Morrok (2023) [Ru/Multi] (Build 11369620) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247798.jpgsave_picture_247798.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:321525062EBF52EE307A91225DEBA6CD80178367
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247799.jpgsave_picture_247799.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3A11564B1544040830995543F81EBFA3640126EA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247800.jpgsave_picture_247800.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7323F9F29CF9CD22AAF747168B6FEA7B5709F120
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247801.jpgsave_picture_247801.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:12A70199E66D9D643DE28A5C61F50E3B8B60602B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247802.jpgsave_picture_247802.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:25531D2B06A3638659D1721727C2D6AE718A8844
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247803.jpgsave_picture_247803.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:7CF14308F3D1CB51A144798FA71BE09C4E81C18B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247804.jpgsave_picture_247804.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:81E727526255D57633094667AA222C7BE55F7875
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247806.jpgsave_picture_247806.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:3581FA16039CBFC411D5F026472E4F6A48C8846A
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247807.jpgsave_picture_247807.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Ken Hensley - 20 Albums + 2 Box Set (1973 - 2023) 35 CD [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247808.jpgsave_picture_247808.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:A82612BBADC771C8E7A52C378C5A48531E50EBD4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247809.jpgsave_picture_247809.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:906A7B7E264645AEC85D47C051A1E93546BA9D48
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247810.jpgsave_picture_247810.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/dlc) Repack Decepticon [Gold E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247811.jpgsave_picture_247811.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:F4FA6B3689AE241785C454D783D6130398A74BE7
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247812.jpgsave_picture_247812.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ AI Photo Editor Pro - Polish v1.685.235 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247813.jpgsave_picture_247813.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:319B31A1053866BAA5CB02E8F67FBF53D055C07D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247814.jpgsave_picture_247814.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ The Vazeline - Кризис Кроссоверов (2025) [MP3|320 Kbps] <Punk r
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247815.jpgsave_picture_247815.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:D0BFF6FC7343245C388B7454CCCFF9F559503946
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247816.jpgsave_picture_247816.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:AEDEA6B2DDAC7F5A8F7A5A9570EB288C546228EA
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247817.jpgsave_picture_247817.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:24E5362E8C7EAC27309E862DC85992F7143B1624
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247818.jpgsave_picture_247818.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:263F0652773B05C2D96ED4563EC2B9DF85D75162
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247819.jpgsave_picture_247819.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ WeNote: заметки блокнот планер v6.50 Mod by PieMods [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247820.jpgsave_picture_247820.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VRadio - Online Radio App v2.8.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247821.jpgsave_picture_247821.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:C4A725D0CD08C370BD57E0A122B42FEF58B2CFC3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247822.jpgsave_picture_247822.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Bad Rain - Louder Than Words (2025) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247823.jpgsave_picture_247823.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:711C198C5FF09D0FBAB6B8588054CB38FCA87EE2
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247824.jpgsave_picture_247824.jpg" />
 </div>
 
 

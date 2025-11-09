@@ -6,7 +6,7 @@ Herman Brood & His Wild Romance - Yada Yada (1988) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245189.jpgsave_picture_245189.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:41822281671367D97534D1993C08A757BD7B97BC
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245190.jpgsave_picture_245190.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:DE3431A5AD38713B779D31676F10A64E197A559C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245191.jpgsave_picture_245191.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E9C71205876C5894B1C85A8F68485F0EF6067F7F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245192.jpgsave_picture_245192.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ SyncBird Pro 3.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245193.jpgsave_picture_245193.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Topaz Video AI 3.2.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245194.jpgsave_picture_245194.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Heavy Blanket - Moon Is (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245195.jpgsave_picture_245195.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ WinPaletter 1.0.7.5 Standalone [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245196.jpgsave_picture_245196.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Classic Trance Anthems (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245197.jpgsave_picture_245197.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:3BE51C85C42402B0F1AA913E339C7D0274B8752E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245198.jpgsave_picture_245198.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:CAF73ACF91A52AF5E5A4ADF3EA52798E553CAE56
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245199.jpgsave_picture_245199.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Pixelmator Pro 3.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245200.jpgsave_picture_245200.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Angel Cop | Ангел-полицейский [1989, OVA, 6 из 6] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245201.jpgsave_picture_245201.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Iridient Developer 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245202.jpgsave_picture_245202.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Warehouse Anthems Trance Vol 15 (2016) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245203.jpgsave_picture_245203.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Dust Prophet - One Last Look Upon The Sky (2023) [MP3|320 Kbps] <Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245204.jpgsave_picture_245204.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ RTG. Сибирские пимы (2012) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245205.jpgsave_picture_245205.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:4F23EAEFDDF0C58FDE15BEFE4E48B4365CCF8219
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245206.jpgsave_picture_245206.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Piezo 1.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245207.jpgsave_picture_245207.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Reader for Mac 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245208.jpgsave_picture_245208.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ SplitCam 10.6.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245210.jpgsave_picture_245210.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Peggy Lee - Miss Wonderful (1959) 1992, MCA Victor[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245211.jpgsave_picture_245211.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Artist Focus 82 (Miikka Leinonen) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245212.jpgsave_picture_245212.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Clipboard Manager 2.3.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245213.jpgsave_picture_245213.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Downie 4 v4.1.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245214.jpgsave_picture_245214.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:4B9B4A229735F8777E2770BCDF4F231049638115
 >>Латиноамериканские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245215.jpgsave_picture_245215.jpg" />
 </div>
 
 

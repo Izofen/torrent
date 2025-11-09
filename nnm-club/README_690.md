@@ -6,7 +6,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.7.0/dlc) Repack Decept
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18266.jpgsave_picture_18266.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FD22EDB58F7B1850685E6E6CE9603339EC5E0553
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18267.jpgsave_picture_18267.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E7576AAA5419E59C08A200F08506E011E0A92324
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18268.jpgsave_picture_18268.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Magicraft (2024) [Ru/Multi] (1.1.16) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18269.jpgsave_picture_18269.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Battle Shapers (2024) [Ru/Multi] (1.1.2.10449) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18270.jpgsave_picture_18270.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:90BC75D35498AB976B2D438FCCDD0240E6245A04
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18271.jpgsave_picture_18271.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.3.0/dlc) Repack Wanterlude
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18272.jpgsave_picture_18272.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Autodesk 3ds Max 2026 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18273.jpgsave_picture_18273.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5854 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18274.jpgsave_picture_18274.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:0BB6C44B1DF2A524ACB949ED24856074F2C1D46C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18275.jpgsave_picture_18275.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:0BB6C44B1DF2A524ACB949ED24856074F2C1D46C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18276.jpgsave_picture_18276.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:4D49C8212C2941340F6F4FD107FF8276726209BC
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18277.jpgsave_picture_18277.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Snappy Driver Installer Origin R815 | Драйверпаки 25.04.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18278.jpgsave_picture_18278.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:7BD47A434A0AAA712C7D732BE0E5C9E567FDD193
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18279.jpgsave_picture_18279.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:306CF33893571741CDBB310A26296496AA9C2C96
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18280.jpgsave_picture_18280.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:306CF33893571741CDBB310A26296496AA9C2C96
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18281.jpgsave_picture_18281.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18282.jpgsave_picture_18282.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Brenda K.B. Anderson | Вязаные носки (2023) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18283.jpgsave_picture_18283.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ OCCT 14.0.11 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18284.jpgsave_picture_18284.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:5D9B48B07BE1F4ADD894991433C0C8E8D97D05C1
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18285.jpgsave_picture_18285.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18286.jpgsave_picture_18286.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - Best Outdoor Chillout Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Downtempo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18287.jpgsave_picture_18287.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:A59E55A561174F581E53245814B22B734AEA99EA
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18288.jpgsave_picture_18288.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Magic Eraser / Магический ластик v2.21.19 Mod by Maximoff⁠ [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18289.jpgsave_picture_18289.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:9D15231B57B747DCAF73BED96070FDF23AD24F4A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18290.jpgsave_picture_18290.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Daily Yoga (Ежедневная йога) v8.68.00 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18291.jpgsave_picture_18291.jpg" />
 </div>
 
 

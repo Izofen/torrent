@@ -6,7 +6,7 @@ PhoneRescue for iOS 4.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204661.jpgsave_picture_204661.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ B.I.O.T.A. (2022) [Ru/Multi] (59744/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204662.jpgsave_picture_204662.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sky Cries Mary - Everything Goes Somewhere (2023) [MP3|320 Kbps] <Crossover Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204663.jpgsave_picture_204663.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:647C984AEBEC4310D4C221789705E4531B112ED4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204664.jpgsave_picture_204664.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:B4E8151F40F43A5E4B901D05C3BD567F53934340
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204665.jpgsave_picture_204665.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ The Darkhorse Collective - Polyanthroponomia (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204666.jpgsave_picture_204666.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F92A23FA9DD4987128011E6F0AB181EA3DB4B568
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204667.jpgsave_picture_204667.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:A7C3CB60BCEA8422782BBA1417FEEEC867D2C13B
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204668.jpgsave_picture_204668.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:164BE6190F934A23A770C9452522E222C2EE3FE6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204669.jpgsave_picture_204669.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:443464F0C7E962732807B7F3A71044F5AB1958C3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204670.jpgsave_picture_204670.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:6DDBCA4074332516DB0DB49F5D1B79DB0C86FBCA
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204671.jpgsave_picture_204671.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:05D45C4132FF367DB6573E32CE808CCB2DFA5153
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204672.jpgsave_picture_204672.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Kerish Doctor 2022 4.90 (Update 28.10.2022) (Repack & Portable) by 9649 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204673.jpgsave_picture_204673.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:194883B5820A2FB66CCBBD5A5A84EA3EE9B8F4D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204674.jpgsave_picture_204674.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:37F0FA147755093F282C759C40E6FBCBF28C2F50
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204675.jpgsave_picture_204675.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:3387CB441DF329D7FBC13BD4B548BE54E9BEE4F7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204676.jpgsave_picture_204676.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:023F364FC03E3091AB4746A82B97FBE92E7139E3
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204677.jpgsave_picture_204677.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ AnyTrans for iOS 8.9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204678.jpgsave_picture_204678.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:5BE493C7F589619CFA315DAD7F1A760E3680C84B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204679.jpgsave_picture_204679.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:458F7E1979D950E426AC5D33FC86D79244718AE1
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204680.jpgsave_picture_204680.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:7197051D5C3C2D3DFCCBC6E09C836E731270F419
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204681.jpgsave_picture_204681.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ RSS Guard 4.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204682.jpgsave_picture_204682.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:F6F4D0A3F3A992160182C108FFEEB87562692C5E
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204683.jpgsave_picture_204683.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ AOMEI Partition Assistant Professional, Server, Technician, Unlimited Edition 9.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204684.jpgsave_picture_204684.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:F6D3EF60C094417AB9BD828C63626F5D93520AB8
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204685.jpgsave_picture_204685.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204686.jpgsave_picture_204686.jpg" />
 </div>
 
 

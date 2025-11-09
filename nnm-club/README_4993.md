@@ -6,7 +6,7 @@ South of Reality - 4 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Southern 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155999.jpgsave_picture_155999.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:ED32C5DF50912B5F83BE83D12D8C344A59A2A157
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156001.jpgsave_picture_156001.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Live Home 3D Standart 3.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156002.jpgsave_picture_156002.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ VA - The Sound of Emotional Content Recordings 2021 (2021) [AAC|~339 Kbps] <Prog
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156004.jpgsave_picture_156004.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:BA3D4841D3D2E51727D15A778FD67DA7550537AD
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156005.jpgsave_picture_156005.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Cacheman 10.0.3.0 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156006.jpgsave_picture_156006.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Claudio Roditi - Slow Fire (1989) Milestone Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156007.jpgsave_picture_156007.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:ECC3F89C3BBF53BCE7B585B56929629FF3AA7E90
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156008.jpgsave_picture_156008.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Reptant - Freq Accident (2018) Planet Euphorique [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156010.jpgsave_picture_156010.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:00DDAAB5F5570B82FCD14407067527556AE993C6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156011.jpgsave_picture_156011.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:7C015E81E0CA536CF863CBEF3C0D31C47A491EF2
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156012.jpgsave_picture_156012.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:417ECE20A4EF9A29280B5EFCE8CDBF4CB872AC91
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156013.jpgsave_picture_156013.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Act of Denial - Negative (2021) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156015.jpgsave_picture_156015.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ LibreOffice 5.2.4 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156016.jpgsave_picture_156016.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:E2A14A3B83135A40BF3FCF40787842288E06D073
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156017.jpgsave_picture_156017.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - Planeta Mix Hits 2022: Winter Edition (2021) [AAC|~324 Kbps] <House, Dance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156018.jpgsave_picture_156018.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:5840BB998B392C3945CDCE11383CE867437ECB0C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156019.jpgsave_picture_156019.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:13A85E8F2A8F8C7582BA227770E346FFA14EB027
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156020.jpgsave_picture_156020.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:D87304D90E9A5A9A1385FCC718E533A67AB6D7E4
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156021.jpgsave_picture_156021.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Jaki Byard Quartet With Joe Farrell - The Last From Lennie's (1965) 2003, Pr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156022.jpgsave_picture_156022.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Vitreous Humor - The Vitreous Humor Self-Titled E.P. (1995) EP [FLAC|Lossless|tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156024.jpgsave_picture_156024.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:6CB0ED3CF69235701976C250B0C04EE015107A5C
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156026.jpgsave_picture_156026.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:B25149D5731A74CC44A89437C683EF18586F21B3
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156027.jpgsave_picture_156027.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:6509E347D0AA4CCEC8A53DB20FF8B6DF44FFF9B8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156029.jpgsave_picture_156029.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:4691382BB5762166BED496407437784D04F493E5
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156030.jpgsave_picture_156030.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:2C513AAD97969F2D6E7789175A6C8784C6654DD2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156032.jpgsave_picture_156032.jpg" />
 </div>
 
 

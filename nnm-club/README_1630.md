@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42737.jpgsave_picture_42737.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PictureThis - Plant Identification v4.4.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42738.jpgsave_picture_42738.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BC42E9D547632B598F600B334F018DB008F23E00
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42739.jpgsave_picture_42739.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4A4A41B4E7472DEB9EC67C85256EE1124E5D25CC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42740.jpgsave_picture_42740.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:DDA00FFFFCE538AE02A9A3C9A3477617511B49BA
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42741.jpgsave_picture_42741.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Nightwish - Yesterwynde (2024) Limited edition earbook, 2024, Napalm Eagles [MP3
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42742.jpgsave_picture_42742.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:7483D5C1F286D79D7C1EF3321B4016708C659266
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42743.jpgsave_picture_42743.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:7483D5C1F286D79D7C1EF3321B4016708C659266
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42744.jpgsave_picture_42744.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Picture Mushroom - Mushroom ID v2.9.24 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42745.jpgsave_picture_42745.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:4BA9B8013DE886F6F57C30DD731109B5FB33BBEB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42746.jpgsave_picture_42746.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:D0882968FFE69C1810A3DA7BC1364F365496A794
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42747.jpgsave_picture_42747.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - 70s Best of by uDiscover (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42748.jpgsave_picture_42748.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ V.A. - Cafe del Mar XXX (Volumen Treinta) (2024) 2CD [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42749.jpgsave_picture_42749.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:A9E6757A6704F4DE11F50DC3D7B64FBCE8E9AA15
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42750.jpgsave_picture_42750.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:FC763722596F128C109DA915499D28917FC4CA85
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42751.jpgsave_picture_42751.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:D33D608AC6DA8635828AD6CD1A257E2457162E50
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42752.jpgsave_picture_42752.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:D33D608AC6DA8635828AD6CD1A257E2457162E50
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42753.jpgsave_picture_42753.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:CCDF586CA8D0EB9FDA23F90DE58260E606AF9BD7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42754.jpgsave_picture_42754.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VirtualBox 7.1.0 Build 164728 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42755.jpgsave_picture_42755.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Planetbase (2015) [Multi] (1.4.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42756.jpgsave_picture_42756.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:A13FB9DBB85321F1EC71D3A6136DF69290DB9FE7
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42757.jpgsave_picture_42757.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Patephone / Патефон v14.5.1 Mod by OsitKP [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42758.jpgsave_picture_42758.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:E6B1105A7AE178F3DC7A006FBB91EEB373D467CF
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42759.jpgsave_picture_42759.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ George Vondriska | Основы изготовления мебели (2015) WEB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42760.jpgsave_picture_42760.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:87D832A5E868ABD01030629866E3885386C7A48B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42761.jpgsave_picture_42761.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Starcom: Nexus (2018) [Ru/Multi] (1.0.13c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42762.jpgsave_picture_42762.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Trevor Rabin - Rio (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159023.jpgsave_picture_159023.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:8BCF9F06FA449FB5FC38AC821A44D9A42C99B217
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159024.jpgsave_picture_159024.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:62DAA22051DCB868AB2062239C5235B05F96622B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159025.jpgsave_picture_159025.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:EE68C4778F318FE601E196FB84818E1E03AD6504
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159026.jpgsave_picture_159026.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:06D31314C6F442B04E4326B05BEC4318DBB6C3CD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159027.jpgsave_picture_159027.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Neopera - Tuba Mirum (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159028.jpgsave_picture_159028.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Leroy Vinnegar, Doug Watkins, Paul Chambers, Ron Carter - Jazz Bassists: Four Cl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159029.jpgsave_picture_159029.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:D8E48DDBD1CAE80F031017F8B7C30BD571D4A2E2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159030.jpgsave_picture_159030.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Vern Daysel - Call of the Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159031.jpgsave_picture_159031.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ DMG Canvas 3.0.17 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159032.jpgsave_picture_159032.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Casus Belli - In the Name of Rose (2005) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159033.jpgsave_picture_159033.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:7998C4B6231A1CDCF3A435A861CAEFCB8C8FCBE9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159034.jpgsave_picture_159034.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159035.jpgsave_picture_159035.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Michael Kistanov - All About You and Me (2022) [MP3|320 Kbps] <Pop-Rock, Folk>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159036.jpgsave_picture_159036.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Bethzaida - Nine Worlds (1996) [FLAC|Lossless|image + .cue] <Death, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159037.jpgsave_picture_159037.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:79500B46D6A88709C458643CCBF488C728715630
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159038.jpgsave_picture_159038.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Man Machine Industry - Doomsday Clock (2020) [FLAC|Lossless|WEB-DL|tracks] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159039.jpgsave_picture_159039.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:72FAD3C3A447E3CD934700177B192C72BA2FFA24
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159040.jpgsave_picture_159040.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ NEONIC - 2 Albums (2021-2022) [MP3|320 Kbps] <Synthwave, Darksynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159041.jpgsave_picture_159041.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:071DD5CB8FB5E376495D35EB32BA341834B4628E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159042.jpgsave_picture_159042.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Toots Thielemans - 100th Birthday Celebration (2022) 2CD, Universal [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159043.jpgsave_picture_159043.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ uTorrent 2.2.1 Build 25302 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159044.jpgsave_picture_159044.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:67B0E0E47B7AACCB6D39F40EEADE46DA991D6742
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159045.jpgsave_picture_159045.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Shingeki no Kyojin Season 2 | Attack on Titan Season 2 | Атака титано
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159046.jpgsave_picture_159046.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:A2E4E062C1D689FA32D60BD6E4F0453A0F21D98C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159047.jpgsave_picture_159047.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Microsoft® Windows® 11 x64 Ru 23H2 4in1 Upd 11.2023 by OVGorskiy
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159048.jpgsave_picture_159048.jpg" />
 </div>
 
 

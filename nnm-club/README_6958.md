@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238889.jpgsave_picture_238889.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Amken - Passive Aggression (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238890.jpgsave_picture_238890.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ QuickLens 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238891.jpgsave_picture_238891.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Kobayashi-san Chi no Maidragon S + Mini Dragon | Miss Kobayashi's Dragon Maid S 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238895.jpgsave_picture_238895.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Learn English - 6000 Essential Words 4.1.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238896.jpgsave_picture_238896.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Beckett - Beckett (1991) Reissue, Remastered, 2011, AOR Heaven [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238897.jpgsave_picture_238897.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Crescendo Masters 6.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238898.jpgsave_picture_238898.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Velvet & Cashmere - Dose Of Masculinity (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238899.jpgsave_picture_238899.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Udemy, Jose Moreno | Substance Designer 2020: Stylized Material Creation PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238902.jpgsave_picture_238902.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:B73F7BA20412755114E0E54842B9FFAA1C230775
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238903.jpgsave_picture_238903.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Roxy Blue - Want Some More (1992) Reissue, Remastered, 2013, FnA Records [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238904.jpgsave_picture_238904.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Mass Madness - Innerbeast (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238906.jpgsave_picture_238906.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ IzangoMa - Ngo Ma (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238907.jpgsave_picture_238907.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:8F252DAC5D2AAA0A79EEE1F4CFB4EB60E9211ECE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238908.jpgsave_picture_238908.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ EasyUEFI Professional, Technician, Enterprise 4.9 Release 2 RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238909.jpgsave_picture_238909.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ The Charlie Rouse Band - Cinnamon Flower (1977) 1987, Rykodisc [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238910.jpgsave_picture_238910.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:CA2400B9F21A2A5A9840647CD125F697C67028C6
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238911.jpgsave_picture_238911.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Myary 2.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238912.jpgsave_picture_238912.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Sarah Lancman - Le pouvoir des mots (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238913.jpgsave_picture_238913.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Stive Morgan - Compilation (2022) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238914.jpgsave_picture_238914.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:F58E0A1006CE4D2ECBFB2D5261F21AFA64C4DA15
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238915.jpgsave_picture_238915.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Ame-iro Cocoa Series: Ame-con!! | Какао цвета дождя: Аме-ко�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238917.jpgsave_picture_238917.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Kotipelto - Waiting For The Dawn (2002) [OGG Vorbis|485 Kbps] <Rock, Heavy Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238918.jpgsave_picture_238918.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:35F87D45381E3DF17F8107CC5395FF86BBDBEF81
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238919.jpgsave_picture_238919.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ $uicideboy$ - YIN YANG TAPES: Winter Season (1989-1990) (2023) [FLAC 24/44.1|Los
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238920.jpgsave_picture_238920.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Cascadea 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238921.jpgsave_picture_238921.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Alder's Blood (2020) [Ru/Multi] (2.0.1) License GOG [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34934.jpgsave_picture_34934.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34958.jpgsave_picture_34958.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lords of the Fallen (2023) [Multi] (1.6.49/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34976.jpgsave_picture_34976.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (Build #80) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35153.jpgsave_picture_35153.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.2.0.5) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35185.jpgsave_picture_35185.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Lords of the Fallen (2023) [Ru/Multi] (1.6.49/dlc) Repack FitGirl [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35239.jpgsave_picture_35239.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Monster Hunter Stories (2024) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35346.jpgsave_picture_35346.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Necro Story (2024) [Ru/Multi] (6043) Repack FitGirl [Soundtrack Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35530.jpgsave_picture_35530.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (Build Oct 11 2024/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35576.jpgsave_picture_35576.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35656.jpgsave_picture_35656.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Wayfinder (2023) [Multi] (1.0/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35662.jpgsave_picture_35662.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Sky Oceans: Wings for Hire (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35671.jpgsave_picture_35671.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4d/dlc) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35672.jpgsave_picture_35672.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.11) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35771.jpgsave_picture_35771.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Hive Jump 2: Survivors (2024) [Ru/Multi] (1.1.1853) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35796.jpgsave_picture_35796.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Frontier Hunter: Erza's Wheel of Fortune (2022) [Ru/Multi] (1.1.02/dlc) Repack L
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36061.jpgsave_picture_36061.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (04.11.21.01) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36094.jpgsave_picture_36094.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36113.jpgsave_picture_36113.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bug Fables: The Everlasting Sapling (2019) [Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36159.jpgsave_picture_36159.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Albatroz (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36199.jpgsave_picture_36199.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Wyvia (2023) [Multi] (1.0.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36207.jpgsave_picture_36207.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Dragon Age: Origins (2010) [Ru/Multi] (1.05/dlc) Repack dixen18 [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36285.jpgsave_picture_36285.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Deathbound (2024) [Ru/Multi] (1.1.8f1) Scene Tenoke [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36290.jpgsave_picture_36290.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Vaporum (2017) [Ru/Multi] (Patch 15) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36324.jpgsave_picture_36324.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36375.jpgsave_picture_36375.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36527.jpgsave_picture_36527.jpg" />
 </div>
 
 

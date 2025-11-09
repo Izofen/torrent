@@ -6,7 +6,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4367.jpgsave_picture_4367.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Stygian: Outer Gods (2025) [Ru/Multi] (220825) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4368.jpgsave_picture_4368.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:3CA1841B8C7FE7971F5B0B0C6A0278A9394AA6A8
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4369.jpgsave_picture_4369.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:003B6B32550B9DBD57B732FF40A7F0D49E936A3B
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4370.jpgsave_picture_4370.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Valheim - The Bog Witch (2021) [Ru/Multi] (0.221.4) Repack Pioneer [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4371.jpgsave_picture_4371.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:60138992E8109604F05E30B53F0ADB067F62B317
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4372.jpgsave_picture_4372.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:D0FBC18636CA8C44FF03FEE39D9EC38049DD059C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4373.jpgsave_picture_4373.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:D0FBC18636CA8C44FF03FEE39D9EC38049DD059C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4374.jpgsave_picture_4374.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Microsoft нашла способ отключить рекламу в YouTube �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4375.jpgsave_picture_4375.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Jotunnslayer: Hordes of Hel (2025) [Ru/Multi] (1.0.0.87547) License GOG [Collect
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4376.jpgsave_picture_4376.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:009C657C089967EA9E61491645E6F96276FA1848
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4377.jpgsave_picture_4377.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Sketch Plot - Rock Lives On (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4378.jpgsave_picture_4378.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Mitch Laddie - Faith and Other Bad Habits (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4379.jpgsave_picture_4379.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Problematic Jam - It's So Confusing (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4380.jpgsave_picture_4380.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Zoot Sims - On The Korner (1983) 1994, Pablo [FLAC|Lossless|tracks + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4381.jpgsave_picture_4381.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:4F2DA6745BC114B7932DA369F3C8DDE854150FA0
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4382.jpgsave_picture_4382.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:CCB15669F62A863BD769C55F5FD8A18C0BA3FCD3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4383.jpgsave_picture_4383.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Molly Tuttle - So Long Little Miss Sunshine (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4384.jpgsave_picture_4384.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Nukleall - Infinite Echoes (2025) [FLAC|Lossless|WEB-DL|tracks] <Psytrance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4385.jpgsave_picture_4385.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Scarlet Requiem - Precious Gemstone Of Graceful Charm And Elegant Beauty (2025) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4386.jpgsave_picture_4386.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Unen - Forever Winter (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4387.jpgsave_picture_4387.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ James Big Jim Johnson - Highway Howlin (2025) [FLAC 24/192|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4388.jpgsave_picture_4388.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Bushfire - Snakes Bite Tales (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4389.jpgsave_picture_4389.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Pearly Drops - The Voices Are Coming Back (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4390.jpgsave_picture_4390.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Yates McKendree - Need To Know (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4391.jpgsave_picture_4391.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:299E8389D7EA416E17831FB9410EE223FC3B40BA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4392.jpgsave_picture_4392.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Allegorithmic Substance Painter 2019.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155376.jpgsave_picture_155376.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7B4C1ED4FA01FF0129E739F67278CEE2087485D5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155377.jpgsave_picture_155377.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B7213505EB2F2D59F365231B820568D2C8940796
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155378.jpgsave_picture_155378.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Total Commander 11.02 (11.11.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155381.jpgsave_picture_155381.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:599E66650D9A3036D3C7624BBE594304A2272B91
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155382.jpgsave_picture_155382.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ PDF to PowerPoint Converter 6.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155383.jpgsave_picture_155383.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:B7C0BFEAB366823A8CE8CC951F89C037937B40E4
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155384.jpgsave_picture_155384.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ XYplorer 23.90.0200 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155385.jpgsave_picture_155385.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:5EDD7FA4506D161AD02A40AF4BC86F7A591C26B5
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155387.jpgsave_picture_155387.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ iZotope - RX 9 Audio Editor Advanced v9.2.0 STANDALONE, VST, VST3, AAX [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155388.jpgsave_picture_155388.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:60BDFE5CB1265AE42AA58B7708B56E19E4486BB7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155389.jpgsave_picture_155389.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Malwarebytes Windows Firewall Control 6.9.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155390.jpgsave_picture_155390.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Path Finder 9.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155391.jpgsave_picture_155391.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Zubrowska - Zubrowska Are Dead (2010) [MP3|192 кб/с]<Brutal Death / Mathcore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155392.jpgsave_picture_155392.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:16C65D91776F58386CF47EAF1C011656897A9216
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155393.jpgsave_picture_155393.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:E7F2EB279CB8D9FC42984BF6BC6BB23DEFF2ED47
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155394.jpgsave_picture_155394.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:1AF94E5AC817D6B13C9ABF501CC8A662D167FF05
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155395.jpgsave_picture_155395.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:B6F5680A1D5C8D0FB6B126D7580C78D48FCA8B2D
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155396.jpgsave_picture_155396.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:8C7053534EEDB20B36246EA4D7DD0693BBCAFE4F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155398.jpgsave_picture_155398.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VBT - Just The Tip (2012) [MP3|320 кб/с]<Death Grind>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155399.jpgsave_picture_155399.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Macrium Reflect v 7.2.3954 x64 Server Plus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155400.jpgsave_picture_155400.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - Песня года 1995. Финал (часть 3) (1995) [FLAC|Lossless|i
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155401.jpgsave_picture_155401.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Movavi Photo Editor 6.7.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155402.jpgsave_picture_155402.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:FFA34135BD8648DB40384750A937FDDFC480DBB0
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155403.jpgsave_picture_155403.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:4FE5495F4404F420BDC66ABEFFDEBB316EBCD172
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155404.jpgsave_picture_155404.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:463B1B7107305E8B06C8B040D9EFD8FE25AD0F54
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155405.jpgsave_picture_155405.jpg" />
 </div>
 
 

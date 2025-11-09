@@ -6,7 +6,7 @@ Bryan Adams - Waking Up The Neighbours (1991) 1st German Press [APE|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119129.jpgsave_picture_119129.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Metallica - Metallica (1991) 1st German Press [APE|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119139.jpgsave_picture_119139.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:340E6BE24434DCB09BAE48133BCC3E2FB87230E6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119142.jpgsave_picture_119142.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Outside Agency - Machine Visions (2024) [FLAC|Lossless|WEB-DL|tracks] <Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119148.jpgsave_picture_119148.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Metallica - Master Of Puppets (1986) [APE|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119167.jpgsave_picture_119167.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ NADИ & Юрий Шевчук - М.З.И.В. (2024) Single [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119220.jpgsave_picture_119220.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:5B49D5109D60343A65E78AA7014F2B40D8B8FC5E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119234.jpgsave_picture_119234.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Savaged - Night Stealer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119291.jpgsave_picture_119291.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Kings of Gehenna - Return To Nightmare (2024) [FLAC|Lossless|WEB-DL|tracks] <Mod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119293.jpgsave_picture_119293.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Metralion - The Rest is Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119294.jpgsave_picture_119294.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Metralion - Requiem for a Society (2021) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119295.jpgsave_picture_119295.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Oromet - Oromet (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119297.jpgsave_picture_119297.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Sore - Gruesome Pillowbook Tales (2007) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119298.jpgsave_picture_119298.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Metralion - Quo Vadis / A Mosh In Brazil (2019) Compilation [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119299.jpgsave_picture_119299.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Reapter - M.I.N.D (2010) Reissued-2013 [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119300.jpgsave_picture_119300.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Suture - Morbid Sculpture Demonology (2004) [FLAC|Lossless|image + .cue] <Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119301.jpgsave_picture_119301.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Madness - Madness, by Mike (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119303.jpgsave_picture_119303.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Gojira - Fortitude (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119312.jpgsave_picture_119312.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ SAXAR - Инсулин (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119313.jpgsave_picture_119313.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Oromet - Oromet (2023) [MP3|320 Kbps] <Funeral Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119314.jpgsave_picture_119314.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ The Dead State - Здесь (2024) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119319.jpgsave_picture_119319.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Solbrud - IIII (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119321.jpgsave_picture_119321.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Helloween - Treasure Chest (2002) Bonus Track Edition, 2024, Noise Records [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119328.jpgsave_picture_119328.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Sorry - Sorry (1978) LP [MP3|320 Kbps] <Electronic, New Wave, Hard Rock, Glam, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119334.jpgsave_picture_119334.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Black Tears of the Fallen - Mirroring (2024) [MP3|320 Kbps] <Gothic, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119335.jpgsave_picture_119335.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Avi Rosenfeld - Very Heepy Very Purple XV (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119361.jpgsave_picture_119361.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236511.jpgsave_picture_236511.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:02F6CF0042E985BB0AF09B35243F8301FA60A54C
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236512.jpgsave_picture_236512.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Autumn Rain Melancholy - Seven Steps to Infinity (2004) 2022, Autumn Rain Melanc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236513.jpgsave_picture_236513.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Ray Alder - II (2023) [FLAC|Lossless|image + .cue] <Melodic Progressive Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236514.jpgsave_picture_236514.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Fun Factory - Back to the Factory (2016) [AAC|~333 Kbps] <Dance, Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236519.jpgsave_picture_236519.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Acorn 7 v7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236520.jpgsave_picture_236520.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:D227C2EF39EE52DD46BF15F838774B1CF06E3C2C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236521.jpgsave_picture_236521.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:0693FF56FC8DA9652F3478CD477479AB97B4DC8A
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236522.jpgsave_picture_236522.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Sun Shiners by Smooth Deluxe, Vol. 2 (2021) [AAC|~334 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236523.jpgsave_picture_236523.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Advanced Duplicate Cleaner 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236528.jpgsave_picture_236528.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Damian Lewis - Mission Creep (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236529.jpgsave_picture_236529.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:F44EBA86D0E26B528B6E7217286BBFDAD4F01A2D
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236530.jpgsave_picture_236530.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Keep It 2.2.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236531.jpgsave_picture_236531.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Fun Factory - ABC of Music (2006) [AAC|~332 Kbps] <Dance, Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236532.jpgsave_picture_236532.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Windows 10 Pro VL x64 21Н2 (build 19044.1682) by ivandubskoj 07.05.2022 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236533.jpgsave_picture_236533.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:37A2A39CC53B5900DDC8E2D0F0033286D3E1E3F7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236538.jpgsave_picture_236538.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jan James - Time Bomb (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236540.jpgsave_picture_236540.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:A1836138DA70BB63503AA1D374FEB3672CD5D915
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236541.jpgsave_picture_236541.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Smart Disk Image Utilities 2.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236542.jpgsave_picture_236542.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Nedrugh - Depersonalize (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236543.jpgsave_picture_236543.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Mystic Chill, vol. 2 (2020) [AAC|~323 Kbps] <Psychill, Downtempo, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236544.jpgsave_picture_236544.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Crack Jaw - Nightout (1985) Limited Edition, Numbered, Reissue, Remastered, 2015
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236547.jpgsave_picture_236547.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:9D2692DE4D05677F9648E67722596D61D6E752E6
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236550.jpgsave_picture_236550.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ MenuBar Stats 3 v3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236551.jpgsave_picture_236551.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:6173D962A24625F9A4BFD622D3AE2A8381CDEE1F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236553.jpgsave_picture_236553.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ FinalShot 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236555.jpgsave_picture_236555.jpg" />
 </div>
 
 

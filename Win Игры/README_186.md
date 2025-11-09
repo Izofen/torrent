@@ -6,7 +6,7 @@ Car For Sale Simulator 2023 (2023) [Ru/Multi] (0.3.4) Repack Pioneer [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55255.jpgsave_picture_55255.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nocturnal (2023) [Multi] (1.2.1.748) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55274.jpgsave_picture_55274.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Regency Solitaire II (2024) [En] (1.04) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55286.jpgsave_picture_55286.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Regency Solitaire (2015) [En] (1.21) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55302.jpgsave_picture_55302.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Hauntii (2024) [Multi] (1.0) Scene Razor 1911
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55323.jpgsave_picture_55323.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Tennis Manager 2024 (2024) [Multi] (4.0.1135) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55325.jpgsave_picture_55325.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55334.jpgsave_picture_55334.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55354.jpgsave_picture_55354.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Kubikon 3D (2024) [Multi] (1.0.12) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55365.jpgsave_picture_55365.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55381.jpgsave_picture_55381.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ RKGK / Rakugaki (2024) [Multi] (1.0.0.648) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55410.jpgsave_picture_55410.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Turnip Boy Robs a Bank (2024) [Ru/Multi] (1.0.5r2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55412.jpgsave_picture_55412.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ RKGK / Rakugaki (2024) [Multi] (1.0.0.648) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55435.jpgsave_picture_55435.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Journey of AutUmn (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55439.jpgsave_picture_55439.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Besiege (2020) [Ru/Multi] (1.50/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55447.jpgsave_picture_55447.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55463.jpgsave_picture_55463.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:4F9CE0A4BACA551B186F7F44645F71DCED2B8EF3
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55481.jpgsave_picture_55481.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.03B) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55488.jpgsave_picture_55488.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ System Shock Remake (2023) [Ru/Multi] (1.2.318898) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55489.jpgsave_picture_55489.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Vanishing of Ethan Carter (2014) [Ru/Multi] (1.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55518.jpgsave_picture_55518.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ CONSORTIUM (2014) [Ru] (1.26.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55522.jpgsave_picture_55522.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ ASTLIBRA Revision (2022) [Multi] (1.3.7/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55529.jpgsave_picture_55529.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ WARNO (2024) [Ru/Multi] (1.0/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55539.jpgsave_picture_55539.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Bloody Heaven 2 (2024) [Multi] (0.043) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55543.jpgsave_picture_55543.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Vanishing of Ethan Carter (2015) [Ru/Multi] (1.05) Repack dixen18 [Redux]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55555.jpgsave_picture_55555.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0/dlc) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55572.jpgsave_picture_55572.jpg" />
 </div>
 
 

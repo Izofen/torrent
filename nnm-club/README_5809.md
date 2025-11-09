@@ -6,7 +6,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181441.jpgsave_picture_181441.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:85BCE5CB68E0F2B7789E7D5CDBD732F3F13F76C9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181442.jpgsave_picture_181442.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:2ABB0C4C060338D069E5345D776F59EA2032709A
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181445.jpgsave_picture_181445.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:7E95908126B7D480720AF07B230153F7E57BC770
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181446.jpgsave_picture_181446.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:6B1C3F2A88564DA028BDEC3466CB295A7118A713
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181447.jpgsave_picture_181447.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Nina & Ricky Wilde - Scala Hearts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181450.jpgsave_picture_181450.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ The Jeffrey Lee Pierce Sessions Project - The Task Has Overwhelmed Us (2023) [FL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181453.jpgsave_picture_181453.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:FDA85D47638BBDC140B8DCBBE0C1093C6646D706
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181455.jpgsave_picture_181455.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:109858109D736CFEA33A1D81E502783629617429
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181457.jpgsave_picture_181457.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:B65DEC6C2E0858C1EA1D01BAB38BDB8F7DB0780F
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181459.jpgsave_picture_181459.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:9B58DDC0B5EB8A22A0C31EB1ECE7B63D61EAF9FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181462.jpgsave_picture_181462.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - Крутые пушки Осень 2022 [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181464.jpgsave_picture_181464.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:980A8CB942EDB07D050EF547B9CC751987C13AA1
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181466.jpgsave_picture_181466.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ KK's Priest - The Sinner Rides Again (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181468.jpgsave_picture_181468.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ QOwnNotes 23.10.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181470.jpgsave_picture_181470.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:5D4C72899572DE743A207E5EF885B0F05C1FFDB2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181471.jpgsave_picture_181471.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Text Editor Pro 27.7.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181474.jpgsave_picture_181474.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:70AE2814D833C3D3ACF7A529B55776E7AA6853FC
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181475.jpgsave_picture_181475.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:01DBCAFE960587C19C81BFFBDABF01E22643D6D9
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181477.jpgsave_picture_181477.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:BE4A88A15658BF77407970D8779A52C2C089BF82
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181479.jpgsave_picture_181479.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Jody Duncan, Lisa Fitzpatrick | Артбук Создание фильма Ав�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181480.jpgsave_picture_181480.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:1FC97F58E2E9F9209A555C1E474B3FADF4CD8FAA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181482.jpgsave_picture_181482.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ MotoGP. Этап 14. Гран-при Японии. Гонка (01.10.2023) WEBRi
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181483.jpgsave_picture_181483.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:F46022372889E42572519D3130EB5D4727D4D8E5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181485.jpgsave_picture_181485.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:BE9D30588917C4CD9C2091747FD59B0F4BCBA171
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181487.jpgsave_picture_181487.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ H.E.A.T - Extra Force (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181489.jpgsave_picture_181489.jpg" />
 </div>
 
 

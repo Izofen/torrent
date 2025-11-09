@@ -6,7 +6,7 @@ Tankus The Henge - Luna Park! (2020) [MP3|320 Kbps] <Classic Rock, Jazz Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137615.jpgsave_picture_137615.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4D5E7D16D573CE9E1AA0187B99F81226B0486534
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137616.jpgsave_picture_137616.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:75BAD1171E6E462D448701920DD0809A316FA041
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137618.jpgsave_picture_137618.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:5BCFE11A5E1CAA6E6C0D1ED7DAA130587F9BFF2F
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137619.jpgsave_picture_137619.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ VA - Hit Mania 2019 (2018) [MP3|320 Kbps] <Synthpop, Hip Hop, Dancehall>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137620.jpgsave_picture_137620.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VA - Новогоднее Настроение: Русский Популярн�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137621.jpgsave_picture_137621.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:37E01CE621C1A360A03AA67E1C893D635B9ED0A2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137623.jpgsave_picture_137623.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:11A7DA858A17A8EB6105846F3DF490E617DA1031
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137624.jpgsave_picture_137624.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ History Of Life - It's Time (2020) [MP3|320 Kbps] <Progressive Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137626.jpgsave_picture_137626.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Army Of Lovers - Sexodus (2023) [MP3|320 Kbps] <Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137627.jpgsave_picture_137627.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:B2228D2D788EDFB71F6224BD053DB9C8DB5AADF0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137628.jpgsave_picture_137628.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ MotoGP 14 (2014) [Multi] (1.001/dlc) License PROPHET [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137630.jpgsave_picture_137630.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:D1C2279B39F10B308A38A9ED0B91F01E6D018232
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137632.jpgsave_picture_137632.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ WastedSky - 18 20 (2020) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137633.jpgsave_picture_137633.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:207EF04AA421267E6439A1CA4641B5E4ED263547
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137634.jpgsave_picture_137634.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:4AC8FB0485CE6A8368A5514F1B6438AD15773281
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137637.jpgsave_picture_137637.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:4772C9B136157A39D38A44B6BBB115FA186B9217
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137638.jpgsave_picture_137638.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:6920E532DCCDCC082536E416654FF24F25668A59
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137639.jpgsave_picture_137639.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:8929FC9D4023420D05A671FEE957CDB0C76F7AF6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137640.jpgsave_picture_137640.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ MediaInfoXP 2.44 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137642.jpgsave_picture_137642.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Gary Butcher aka Gary B, Luminous: ex resident of Cafe Del Mar - Discography 10 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137643.jpgsave_picture_137643.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:57AFD4B8681633E3D5D60505EA621BFB77011530
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137646.jpgsave_picture_137646.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:C11696AED7FCC41F3FA0999EBA7CF686B50E7BCC
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137647.jpgsave_picture_137647.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Topaz Video AI 4.0.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137649.jpgsave_picture_137649.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Volume2 1.1.5.404 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137650.jpgsave_picture_137650.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Black and White (Compiled by Lazyra) (2015) [MP3|320 кб/с] <Trance , Upl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137651.jpgsave_picture_137651.jpg" />
 </div>
 
 

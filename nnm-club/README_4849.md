@@ -6,7 +6,7 @@ Astrid Monroe & Genesis P-Orridge - When I Was Young (2001) SiRS [FLAC|Lossless]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151708.jpgsave_picture_151708.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:45A537750A5CECFCF705C26B389668A316336726
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151709.jpgsave_picture_151709.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:004006FEE6C34FE517A7A022F39243CB8318B28E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151710.jpgsave_picture_151710.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:FC82F6C565E3020ECEF5D7CFDB00A45885FD3355
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151711.jpgsave_picture_151711.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:DF4E60157773B1C0C7D6274380F39B98DA39AF76
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151712.jpgsave_picture_151712.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:B68C5CED0132DBC17174BCEAC0BB9F80A39494FA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151713.jpgsave_picture_151713.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151715.jpgsave_picture_151715.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:49591F1E1E3687111E2AB698C0794AE3D44C2A2A
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151717.jpgsave_picture_151717.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:369C52A2A32CBAAE8AE93B7FC5733DE853082236
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151718.jpgsave_picture_151718.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ USDownloader 1.3.5.9 Portable (22.12.2019) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151719.jpgsave_picture_151719.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:5ACE1355D9502E80983C7506CAE4CDBDEA54A003
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151720.jpgsave_picture_151720.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VideoHive - Magic Button - 2D FX animation toolkit [After Effects + Pre-rendered
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151721.jpgsave_picture_151721.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:7D22D69BDA0DC7672FCF2F0116C233AD4D0B9701
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151722.jpgsave_picture_151722.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:EE404CA0E16205F1D51B048C68208F0E975ECB14
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151724.jpgsave_picture_151724.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Recoverworld Radio 004 (Mixed by Rich Smith) (2015) [MP3|320 кб/с] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151725.jpgsave_picture_151725.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:C1DF0CBEFD15BA6B7DC4B45524B108D59574AF09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151727.jpgsave_picture_151727.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:4C969030677A875DED42B060F96DDEA301259A53
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151728.jpgsave_picture_151728.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:F1522A4067C91564F3D4A9FBA116238098CC603E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151729.jpgsave_picture_151729.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:6D2F98060C4FC0515A3FD3B23DEA47F2A797AA1B
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151730.jpgsave_picture_151730.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - The Workout Mix 2018, 2CD (2017) [MP3|320 Kbps] <Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151731.jpgsave_picture_151731.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 4 (2021) [AAC|~317 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151733.jpgsave_picture_151733.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:EADE86037529DF270DEACA00B416671F5888FA0F
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151734.jpgsave_picture_151734.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ John Travolta & Olivia Newton-John - This Christmas (2012) [FLAC|Lossless|WEB-DL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151735.jpgsave_picture_151735.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:D553908AEAE99758DF3DB94741DE084DECD3EA38
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151736.jpgsave_picture_151736.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ American Arcadia (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151737.jpgsave_picture_151737.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ SMath Studio Desktop 1.0.8348 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151738.jpgsave_picture_151738.jpg" />
 </div>
 
 

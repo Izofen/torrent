@@ -6,7 +6,7 @@ ELO (Electric Light Orchestra) - Discovery (1979) [FLAC 2.0|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214043.jpgsave_picture_214043.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F22BDD8CC9582039405F5DEF751DCDEABED0FE55
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214050.jpgsave_picture_214050.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4D68F7D535E3D15908BFA8EBF7DF4D3C9DBCD9D5
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214059.jpgsave_picture_214059.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ DIGI Clock Widget Plus 3.3.2 (build 25410) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214066.jpgsave_picture_214066.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VIP Notes 9.9.74 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214076.jpgsave_picture_214076.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Seal 1.10.0-beta.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214084.jpgsave_picture_214084.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ LuLu 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214089.jpgsave_picture_214089.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:08F4924780521F5BD73FBB2C2E352355F897F6BF
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214091.jpgsave_picture_214091.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ HDCleaner 2.055 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214097.jpgsave_picture_214097.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:3BDC2B68802E2D63A9D0D9FF2BC7CEF5C769A007
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214103.jpgsave_picture_214103.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ dslrBooth Professional 6.42.2011.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214104.jpgsave_picture_214104.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Duolingo: изучай языки 5.115.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214107.jpgsave_picture_214107.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ OneCommander Pro 3.49.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214112.jpgsave_picture_214112.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mozilla Thunderbird 115.1.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214117.jpgsave_picture_214117.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:0C611DF2461894131B30EAAC8BF87B6B2BF3F050
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214122.jpgsave_picture_214122.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:F448D0353D71403B83975470F341DCA6FA94DC2D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214124.jpgsave_picture_214124.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:5C2E6F839C6AAE1AA6EEC3162D2D3CEC035EF73D
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214132.jpgsave_picture_214132.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Blank & Jones and Laid Back - Sitting in My Sofa (Van Bellen Remix) (2023) [FLAC
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214136.jpgsave_picture_214136.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:A94D7EB8C8D74B8A0E2BD37E42E65CAECB9E8D88
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214144.jpgsave_picture_214144.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:128B615BE149296C9FA90C042FB7B0CE697AA73C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214169.jpgsave_picture_214169.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:FB2901DFB31ADA92C502C5D406549B4047FCF9EF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214175.jpgsave_picture_214175.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Attribute Changer 11.20b + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214182.jpgsave_picture_214182.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:894EBCA0CED0179BD82FC6D0B5BBC75B172E1BE6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214192.jpgsave_picture_214192.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Anne Louise Brillon de Jouy, Nicolas Horvath  Complete Piano Sonatas - Complete 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214199.jpgsave_picture_214199.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214207.jpgsave_picture_214207.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:9BEAF1023E0B6FCB09374BC341FF813CF8DBE7E9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214214.jpgsave_picture_214214.jpg" />
 </div>
 
 

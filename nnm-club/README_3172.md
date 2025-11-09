@@ -6,7 +6,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102810.jpgsave_picture_102810.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Anthony Paule Soul Orchestra - What Are You Waiting For (2024) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102811.jpgsave_picture_102811.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The JD3 Band - Some Kind of Magic (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102812.jpgsave_picture_102812.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Stacy Jones Band - Family Christmas (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102813.jpgsave_picture_102813.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Stormin' Norman and the Cyclones - Road Trip (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102814.jpgsave_picture_102814.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Amber Rachelle & The Sweet Potatoes - Pipin' Hot! (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102815.jpgsave_picture_102815.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Arctic Monkeys - Compilation (2005-2022) [MP3|320 Kbps] <Indie rock, Post punk, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102816.jpgsave_picture_102816.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:C0DE5C1AC386D4A2B36EAEB54BE54ABC81A0ECB3
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102817.jpgsave_picture_102817.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - The Orient Collective: The Ancient (2024) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102818.jpgsave_picture_102818.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VA - The Orient Collective: The East (2024) [FLAC|Lossless|WEB-DL|tracks] <World
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102819.jpgsave_picture_102819.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:44B604422C97BE20BA3E7C58035C8FC7FC1E932A
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102820.jpgsave_picture_102820.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:03ACEB7ED97565E96C56CED2B30C7C2AE8353866
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102821.jpgsave_picture_102821.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Downhome Kin - Roots Run Deep (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102822.jpgsave_picture_102822.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:990A6C2F01F318828D89E36823D414B5990F24BB
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102823.jpgsave_picture_102823.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - The Orient Collective: Shadow Seeker (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102824.jpgsave_picture_102824.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.114 Mod by Alex.Strannik [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102825.jpgsave_picture_102825.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Linkin Park - Hybrid Theory (2000) Japan, WPCR-10877, 2001 [FLAC|Lossless|image 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102826.jpgsave_picture_102826.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Jazz Sabbath - The 1968 Tapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102827.jpgsave_picture_102827.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Tony Carey - Steeltown (2013) 2024 Remixed & Remastered [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102828.jpgsave_picture_102828.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:C382262C71F7798207AB74924C2A53277F5A9634
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102829.jpgsave_picture_102829.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:367EB252434FB3D801AC9976BE4C05C29FA69B51
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102830.jpgsave_picture_102830.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Something Else! - Soul Jazz (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102831.jpgsave_picture_102831.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:24A0B111D84E9A672D73767855F7C991F9204398
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102832.jpgsave_picture_102832.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Hubert Laws - Carnegie Hall (1973) 2002, CTI Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102833.jpgsave_picture_102833.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Planetary People - Brace for Impact (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102834.jpgsave_picture_102834.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Road JC - Rosa Escarlate (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102835.jpgsave_picture_102835.jpg" />
 </div>
 
 

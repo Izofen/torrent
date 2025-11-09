@@ -6,7 +6,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229056.jpgsave_picture_229056.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ doPDF 11.3.239 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229058.jpgsave_picture_229058.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B71AC011889E3A0CF4C718C75270F42A85F5E3E5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229059.jpgsave_picture_229059.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:09BC0C88CE2C4E168434E751F91D0B2222DB12C0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229060.jpgsave_picture_229060.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ ScanMyReg 3.2 RePack by tolyan76 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229062.jpgsave_picture_229062.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Twilight Aura - For A Better World (2022) [MP3|320 Kbps] <Melodic Progressive Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229063.jpgsave_picture_229063.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ pfSense 2.2.5-RELEASE [i386, amd64] 2xCD, 16хIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229065.jpgsave_picture_229065.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Purple Flash - Greatest Hits 1978-1984 (2006) Compilation [MP3|320 Kbps] <Electr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229066.jpgsave_picture_229066.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ MotoGP. Чемпионат мира по шоссейно-кольцевым м�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229067.jpgsave_picture_229067.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ PDF to EPUB Converter 6.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229068.jpgsave_picture_229068.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:9FB45E7D7D1A6ED962D1F82237B7CD4971D478E7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229069.jpgsave_picture_229069.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Jaded Heart - Heart Attack (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229070.jpgsave_picture_229070.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:B9E530FE38B64F69FA7A166E5970380868BCF9A3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229071.jpgsave_picture_229071.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:1F629DC7C22B5BE4B2B31B7F78C0396D6D2E7966
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229074.jpgsave_picture_229074.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ H2нОль (2016) WEB-DL [H.264/1080p]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229075.jpgsave_picture_229075.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:F46B33395176C1514DA7C715928BFCAE2BBCDBB9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229076.jpgsave_picture_229076.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - 538 Hitzone 90 (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229077.jpgsave_picture_229077.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Dick Wellstood - This Is the One... Dig! (1975) 1994, Solo Art [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229078.jpgsave_picture_229078.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:6893511969035763A8BB1395A580ED74BE7ED09E
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229079.jpgsave_picture_229079.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:267CE2B273ECC9E1F709DAC5737E5892B37F88C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229080.jpgsave_picture_229080.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:84DFD5CAD845D7A6414C7D983DAEB2E8E054FDF8
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229082.jpgsave_picture_229082.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:7D189F4F502F936552F17C44D1DDCA2266AC3A8E
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229083.jpgsave_picture_229083.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Process Lasso Pro 9.4.0.70 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229084.jpgsave_picture_229084.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:FEAFD737F824E2DC48EBF0DFAEB0C488E357F925
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229085.jpgsave_picture_229085.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:9FBB0667601B96F3FBF3AA2BAA159327E61D85C3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229086.jpgsave_picture_229086.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VA - 100 Hits – The Best Disco Album (2018) 5CD [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229087.jpgsave_picture_229087.jpg" />
 </div>
 
 

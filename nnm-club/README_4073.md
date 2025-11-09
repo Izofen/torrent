@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126473.jpgsave_picture_126473.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:DE9E8AD28801AAE14C8350DD8DB6172EE81ED2EB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126474.jpgsave_picture_126474.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DFF65EE110FB54066202859668EE09E17B29B5FD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126475.jpgsave_picture_126475.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Opera Crypto Browser 106.0.4998.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126476.jpgsave_picture_126476.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Infected Mushroom - Dream Theater REBORN (2023) Single [FLAC|Lossless|WEB-DL|tra
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126477.jpgsave_picture_126477.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:43696CB31DED71BF786734263F188561DC71A010
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126478.jpgsave_picture_126478.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Duolingo: изучай языки 5.132.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126479.jpgsave_picture_126479.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Opera One 106.0.4998.19 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126480.jpgsave_picture_126480.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:5333DB0B3FD49FAB9A2ACEE31562B7D6C3EF2532
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126481.jpgsave_picture_126481.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Reface v4.1.0 Mod by Mixroot [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126482.jpgsave_picture_126482.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:7864B694DE49BB6E884DA5908D2E6B6C099C11C1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126483.jpgsave_picture_126483.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:F61936FDBEC8E70C7F51473F3B420893BB9F861E
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126484.jpgsave_picture_126484.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Smart Launcher 6.4 build 004 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126485.jpgsave_picture_126485.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:E1EBAB5167F9250E75BEFDED03E08417ED523BEE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126486.jpgsave_picture_126486.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:F49B1CC841E3B316D623B52547101F908D306FF2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126487.jpgsave_picture_126487.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Dexter Gordon - Settin' The Pace (1943 - 1950) 4CD, 2001, Proper Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126488.jpgsave_picture_126488.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:BC7966991B2BF2891E9F71BC407E711EB1CE8CB9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126489.jpgsave_picture_126489.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:AEF27FD4A24334404A9A2C411F7EF8EA8D6D3571
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126490.jpgsave_picture_126490.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.6.8 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126491.jpgsave_picture_126491.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:466E3DB519F008261CCF96F45658706E05AF45F1
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126492.jpgsave_picture_126492.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:8CB83B7B22B4120F09C4668ADA8755489BB43C37
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126493.jpgsave_picture_126493.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Berzerker Legion - Chaos will Reign (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126494.jpgsave_picture_126494.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:8CE4270320B7DB0F5354419DAF378A7B73C84C01
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126495.jpgsave_picture_126495.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ DiskDigger 1.103.167.3571 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126496.jpgsave_picture_126496.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:4D32FD3118A621A748D7C27C709A2566CC99B2A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126497.jpgsave_picture_126497.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:4D32FD3118A621A748D7C27C709A2566CC99B2A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126498.jpgsave_picture_126498.jpg" />
 </div>
 
 

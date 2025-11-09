@@ -6,7 +6,7 @@ Buddy Tate - When I'm Blue 1967 (1995) Black & Blue [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163144.jpgsave_picture_163144.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Skillbox, Владислав Прищепов, Андрей Смагин  | Юн
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163146.jpgsave_picture_163146.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ HiBit Uninstaller 3.0.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163147.jpgsave_picture_163147.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NetLimiter 5.1.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163148.jpgsave_picture_163148.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Lionel Hampton - Lionel Hampton's Paris All Stars 1953 (1997) BMG [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163149.jpgsave_picture_163149.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:ABAF7FCB03AB3032258CBE9D59FE8CB26806BD47
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163150.jpgsave_picture_163150.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:40D1C2F790841D2CD29965A664DBE75158168485
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163152.jpgsave_picture_163152.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Persecond 1.4.6 (build 120) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163153.jpgsave_picture_163153.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:0C2BD00DE90B4B0E972641B46DEFF81D73CBED2A
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163154.jpgsave_picture_163154.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Transcend SSD Scope 4.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163155.jpgsave_picture_163155.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ SRWare Iron 108.0.5500.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163156.jpgsave_picture_163156.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:F7FE4088FE395B0B0C760C6BE44EBD83BE4F9A17
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163157.jpgsave_picture_163157.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Mundell Lowe And His All Stars - TV Action Jazz! 1959 (1998) BMG [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163158.jpgsave_picture_163158.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Free Hex Editor Neo 7.21.00.8382 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163159.jpgsave_picture_163159.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:E84B6E53AAB66D6F0959DBAE1AC76F0ACB5AFB18
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163160.jpgsave_picture_163160.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Kalachevaschool, Ирина Артамонова | Цветущая пастел
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163161.jpgsave_picture_163161.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Boxy SVG 3.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163163.jpgsave_picture_163163.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:DB6C7878E13D5A75D6829CC4E243A9E4FD526706
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163164.jpgsave_picture_163164.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:BD4BB033438F090F7E1A71D0BA3009864F9CC52E
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163165.jpgsave_picture_163165.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:FA2656437C85A6680DE719E9A88F512F12D142D0
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163166.jpgsave_picture_163166.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:3D31C92BCBACECB32F35276625F7EE628B6F284C
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163167.jpgsave_picture_163167.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ ExactScan Pro 19.12.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163168.jpgsave_picture_163168.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Audacity 3.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163169.jpgsave_picture_163169.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:16B62F6144742E544E7AD6C204E3DBEFAE67EA68
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163170.jpgsave_picture_163170.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Allegorithmic Substance Designer 2020.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163171.jpgsave_picture_163171.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:929A559EA46C7728438258D04CE4D5B7EFF19532
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163172.jpgsave_picture_163172.jpg" />
 </div>
 
 

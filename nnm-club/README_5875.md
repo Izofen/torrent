@@ -6,7 +6,7 @@
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184698.jpgsave_picture_184698.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sandboxie plus 1.11.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184700.jpgsave_picture_184700.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:6BEDBB1F953CE9790CBC18730DD5104685D75180
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184701.jpgsave_picture_184701.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B8BD7E4F2497923F39088BF48503DADD2404E743
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184704.jpgsave_picture_184704.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C5CAEE2D6F034A52B4263866676E0DE310904ADC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184705.jpgsave_picture_184705.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Adobe Photoshop 2023 (24.0.1.112) Portable by XpucT [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184706.jpgsave_picture_184706.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Icecream Screen Recorder PRO 7.29 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184709.jpgsave_picture_184709.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:926C014129E0CB01C786C85B804AA80928257582
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184710.jpgsave_picture_184710.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 11.2022 by OVGorskiy 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184711.jpgsave_picture_184711.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ GoldWave 6.78 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184715.jpgsave_picture_184715.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:FC09F4232A47B5C189CEA1F06D7BD4DD79A7DF8D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184716.jpgsave_picture_184716.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Udemy, Кирилл Несмелов | Дизайн мобильного при�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184718.jpgsave_picture_184718.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Warcraft 3 (III) (2002) [Ru] (1.26.0.6401/dlc) Unofficial
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184719.jpgsave_picture_184719.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:C6288345F8C81BF4C179DBDFF079FAE0C089AF56
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184721.jpgsave_picture_184721.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:55CDDA0C6210E87AE623AC671531CBB4249EBECC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184723.jpgsave_picture_184723.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:201D32BA180C5B697867C6AC6A4097CDC00A65C1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184724.jpgsave_picture_184724.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (7.3.0/dlc) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184725.jpgsave_picture_184725.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:5D3F15C96B126EF2C78801074EC7CF9CD8144FA8
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184726.jpgsave_picture_184726.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:14453D32E690648B2104A767B3809C2BE9130E37
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184727.jpgsave_picture_184727.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ App Builder 2023.55 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184729.jpgsave_picture_184729.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:CAB90C8DB0F7D20F4E1B732E32D7C569002942EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184731.jpgsave_picture_184731.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Charade - Charade I & II (2004) Special Edition, 2CD [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184732.jpgsave_picture_184732.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:FC6C4317CBF9FB1E5C679F9A73539A0CEADC935E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184733.jpgsave_picture_184733.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ John S. Weekley - Dread Templar (Original Game Soundtrack) (2023) [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184735.jpgsave_picture_184735.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:00182F68AB71EC7C5D988B2946E9A49059484C97
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184737.jpgsave_picture_184737.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:A12876D013E6FF7FFF38735C36060B76E0B5ABC3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184739.jpgsave_picture_184739.jpg" />
 </div>
 
 

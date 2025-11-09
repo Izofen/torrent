@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237113.jpgsave_picture_237113.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Autumn Breeze, Vol. 1: Chill Sounds for Relaxing Moments (2017) [AAC|~323 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237115.jpgsave_picture_237115.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D8FC8403CAF1A85FF4D1AA8D8678C3D0E46AB54D
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237119.jpgsave_picture_237119.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ AK & Dario Lessing - No More Worries (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambie
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237120.jpgsave_picture_237120.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Volume Panel 21.23 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237121.jpgsave_picture_237121.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:CCCC6A3839F465BA69B1E74C6CFE928D33689899
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237122.jpgsave_picture_237122.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Autumn Breeze, Vol. 4: Chill Sounds for Relaxing Moments (2020) [AAC|~337 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237127.jpgsave_picture_237127.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Larry Miller - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237128.jpgsave_picture_237128.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:CA1129C2FED0B4DDE35E00591383B3B82A729CC8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237129.jpgsave_picture_237129.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:22EA760F91D9DAC348569EFD2D0D158BEB029049
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237130.jpgsave_picture_237130.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:22EA760F91D9DAC348569EFD2D0D158BEB029049
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237131.jpgsave_picture_237131.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:0E5A55601AB45AA7AA0531E4966762507A21D8FB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237134.jpgsave_picture_237134.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:9D5FD8B26C5259CCBA83E286ACFCF12D738BB02E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237136.jpgsave_picture_237136.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:8E53B6027B170CA86F4E08999D7497EE325223F4
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237137.jpgsave_picture_237137.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:C79820DFE4B72D941BDC8E75967EE4A6C9544F0C
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237139.jpgsave_picture_237139.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Sensimillia - Strike by the Hour (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237142.jpgsave_picture_237142.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:BCFAFF0AEA9257D37725FCEFA699106FF8BF1D25
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237144.jpgsave_picture_237144.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ NovoNotes - HPL2 Processor 2.1.1 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237146.jpgsave_picture_237146.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Dakota - Runaway (1984) Reissue, 2002, AORchives [FLAC|Lossless|image + .cue] <A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237148.jpgsave_picture_237148.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:9A6B1955A146AABD4152F6BA777C2E454117AB57
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237150.jpgsave_picture_237150.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:AA2B55F46F90B5F5B819037F5068D55A9E474DF9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237151.jpgsave_picture_237151.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:CFBCB4B81645CE542CF6E10323FAE9ECE529D9DF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237152.jpgsave_picture_237152.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Enforcer - Zenith (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237155.jpgsave_picture_237155.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ ArchCommander 2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237158.jpgsave_picture_237158.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Michael McCarthy, Felicity O'Dell | English Vocabulary in Use. Upper-Intermediat
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237161.jpgsave_picture_237161.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Vidmore Video Converter 2.0.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237162.jpgsave_picture_237162.jpg" />
 </div>
 
 

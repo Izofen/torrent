@@ -6,7 +6,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166565.jpgsave_picture_166565.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Walt Disney Animation Studios | Артбук по мультфильму Энк�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166566.jpgsave_picture_166566.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E9FDB5173CE345FEAA75A925DA51310815428CBE
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166567.jpgsave_picture_166567.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DA7728B0427A94D0B8BC16DA54C06FCA879DB65E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166568.jpgsave_picture_166568.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Wondershare Filmora 10.0.7.0 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166569.jpgsave_picture_166569.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Adobe Photoshop 2024 25.1.0.120 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166570.jpgsave_picture_166570.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:D236E51D8144C790398883676C1ED10B54470B86
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166571.jpgsave_picture_166571.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ VA - Blues Rock Collection (2021) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166572.jpgsave_picture_166572.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C318A0B5F5B9D02B96D133B590D7CC8124C26D69
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166573.jpgsave_picture_166573.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:772733BED4DECF856795B7A86BBEB3B28A6CECD5
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166574.jpgsave_picture_166574.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Adobe Photoshop 2024 (25.1.0.120) Portable by XpucT [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166575.jpgsave_picture_166575.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Birdays – Дни рождения 1.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166576.jpgsave_picture_166576.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Exposure Software Snap Art 4 v4.1.3.272 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166577.jpgsave_picture_166577.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Macrorit Partition Expert 5.8.7 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166578.jpgsave_picture_166578.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:92785A9978BFE000A42161A861C736E7112BF30E
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166579.jpgsave_picture_166579.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:FCA86AF757C1339214CF924050678056BFF481C6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166580.jpgsave_picture_166580.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:567BECFDCF323C7FA609191FC2707976F0653AD3
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166581.jpgsave_picture_166581.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Google Earth Pro 7.3.6.9326 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166582.jpgsave_picture_166582.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Alien Vampires - Discography 16 Releases (2004-2020) [MP3|320 Kbps] <Harsh EBM, 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166583.jpgsave_picture_166583.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:8DBC165027B3F7CC46190FE5EB27155FCA1F3CF4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166584.jpgsave_picture_166584.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Twin Sector (2009) [En] (1.0) Scene Skidrow
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166585.jpgsave_picture_166585.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Record Super Chart 617 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166586.jpgsave_picture_166586.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:708F4F57FB3916E4365857D53C3E99BD66E9965C
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166587.jpgsave_picture_166587.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ FinePrint Software (FinePrint 11.33 / pdfFactory Pro 8.33) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166588.jpgsave_picture_166588.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:FE6C28DE62BB7D9B7727558A115F9CE20EDAA21D
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166589.jpgsave_picture_166589.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:B231AA1E46A1D158451187139CC59E9690EEFAEC
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166590.jpgsave_picture_166590.jpg" />
 </div>
 
 

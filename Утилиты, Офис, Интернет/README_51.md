@@ -6,7 +6,7 @@ FontCreator Professional Edition 14.0.0.2888 Portable by AlexYar [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187075.jpgsave_picture_187075.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WinPing 2.56 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187323.jpgsave_picture_187323.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Infix PDF Editor Pro 7.7.0 RePack by KpoJIuK [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187688.jpgsave_picture_187688.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Chromium 141.0.7390.123 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187860.jpgsave_picture_187860.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ iTubeGo YouTube Downloader 10.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187863.jpgsave_picture_187863.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ RAM Saver Professional 25.10.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187873.jpgsave_picture_187873.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Office Installer & Office Installer+ 1.30 by Ratiborus [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187880.jpgsave_picture_187880.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r27 Portable by Ratiborus [Multi/
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187881.jpgsave_picture_187881.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ TreeSize Professional 9.6.1.2156 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187900.jpgsave_picture_187900.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Typora 1.12.2 (x64) Portable by IDE`a [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187931.jpgsave_picture_187931.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ YT Downloader 9.17.10 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187963.jpgsave_picture_187963.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Display Driver Uninstaller 18.1.3.7 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187987.jpgsave_picture_187987.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ MyLanViewer 6.6.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188029.jpgsave_picture_188029.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ant Download Manager 2.16.1 Build 91718 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188030.jpgsave_picture_188030.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Infix PDF Editor Pro 7.7.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188415.jpgsave_picture_188415.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Pale Moon 33.9.1 + Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188792.jpgsave_picture_188792.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Mailbird Pro 2.9.68.0 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189252.jpgsave_picture_189252.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ GPXSee 13.8 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190038.jpgsave_picture_190038.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ WinUtilities Professional 15.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190397.jpgsave_picture_190397.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ CPUID HWMonitor Pro 1.53 (x64) Portable by zeka.k [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190798.jpgsave_picture_190798.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Movavi Gecata 6.1.2 (x64) RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191060.jpgsave_picture_191060.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Discord Web-Portable by DVLZ 1.2
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191190.jpgsave_picture_191190.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ uTorrent (AdFree) 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191192.jpgsave_picture_191192.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Start Menu X 7.33 SpaceX [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191198.jpgsave_picture_191198.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ uTorrent Pro 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191211.jpgsave_picture_191211.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Geek Uninstaller 1.5.2 Build 165 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191404.jpgsave_picture_191404.jpg" />
 </div>
 
 

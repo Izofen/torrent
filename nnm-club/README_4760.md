@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148967.jpgsave_picture_148967.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Medwyn Goodall - Medicine Woman 5: Transformation (2014) [MP3|320 кб/с] <New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148968.jpgsave_picture_148968.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ iClip - Clipboard Recorder & ClipArt Manager 5.5.2b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148969.jpgsave_picture_148969.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sticky Fingers - Like A Rolling Stone (2012) [MP3|320 кб/с]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148970.jpgsave_picture_148970.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ magnet:?xt=urn:btih:71E3387E213D7BD8A4948C640066AA58FD10B245
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148971.jpgsave_picture_148971.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:EFAC6E574EC3E51D9A90FCCAD1C3EA46F535250A
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148972.jpgsave_picture_148972.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ NG. Королевство белых медведей / Kingdom of the Polar Be
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148974.jpgsave_picture_148974.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:EB76E39FC5D0C62BE59E55E19B64549A687E6C50
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148975.jpgsave_picture_148975.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Genius Courses, Александр Сокирка | Марафон по WordPres
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148976.jpgsave_picture_148976.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:1986446FC365AD08974CC596172D31F52F17A267
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148977.jpgsave_picture_148977.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:952A1216860F5C6F3EF6260BFED6BC0544C19D9D
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148979.jpgsave_picture_148979.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ BlueStacks App Player 2.5.83.6332 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148980.jpgsave_picture_148980.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:A51B8E33304169218056C3922788A511D2FF0F46
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148981.jpgsave_picture_148981.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:4B54B2DAE166770FC80E5C7CBCF91A5014F65F30
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148982.jpgsave_picture_148982.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:5FEC2DFC18049A07D0118F99BDBE86DA06D17E41
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148983.jpgsave_picture_148983.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:8EBEF943EEEECF4E7BFC18AF25FCE937471BF626
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148984.jpgsave_picture_148984.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:2D95D1395214F7CCE59B7165C57CB1E1A1EFF9E0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148985.jpgsave_picture_148985.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ The Police - Message In A Box: The Complete Recordings (1993) [MP3|320 кб/с]<
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148986.jpgsave_picture_148986.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:8E1978030B3FFB66D5389AA001213AF8A269856A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148987.jpgsave_picture_148987.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Microsoft признала агрессивной свою политику об
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148988.jpgsave_picture_148988.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Microsoft признала агрессивной свою политику об
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148989.jpgsave_picture_148989.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:CBA34C6A395F6A2C939233A2F60053EC3CF9C98D
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148990.jpgsave_picture_148990.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Wreckfest (2018) [Ru/Multi] (1.233553/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148991.jpgsave_picture_148991.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Dark Tales 10: Edgar Allan Poe's The Raven (2016) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148993.jpgsave_picture_148993.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:8150E12D7BBF642BF4AA6DBC191358EE0836A325
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148994.jpgsave_picture_148994.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:74DE9E54CB3818AF7B86417835FC0DE23FFF49FD
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148996.jpgsave_picture_148996.jpg" />
 </div>
 
 

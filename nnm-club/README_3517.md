@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111803.jpgsave_picture_111803.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1116CA9FA8FED4E6D3CA942ABC8B686B82D75A6E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111804.jpgsave_picture_111804.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:BD0A05AD003B32AB001EA0500977C09944D4292C
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111805.jpgsave_picture_111805.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F759ED338DC9247EF003082DA5838396AB0F31A8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111806.jpgsave_picture_111806.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:9845A6EE494EED5490A5C17F17F973A6F865805E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111807.jpgsave_picture_111807.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Gentle Giant - Three Friends (1972) Reissue, 1989, Columbia [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111808.jpgsave_picture_111808.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:61B25DDDFC443B6F95AC4C01FDD4BB2BFA0FB394
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111809.jpgsave_picture_111809.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Brave Browser 1.64.116 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111810.jpgsave_picture_111810.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:82D4956EEC32DCBD339977672C60EB905293E8C0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111811.jpgsave_picture_111811.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:4564F09DB0A9E32FCEF28D15402C502E7775EC87
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111812.jpgsave_picture_111812.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:05E15FF51D389634837CF577C45110123BED4E3C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111813.jpgsave_picture_111813.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ koshi - Экспериментальная генетика высшей нер�
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111814.jpgsave_picture_111814.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:C383A030741411EABBD391070B470CAD891D5E24
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111815.jpgsave_picture_111815.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ StaxRip 2.37.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111816.jpgsave_picture_111816.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:AE5DAB29ED8A545F0F90ACA4ED249C28483EA692
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111817.jpgsave_picture_111817.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:143345F9BFD6E737AA6CF7D9F0DFC668B21278B8
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111818.jpgsave_picture_111818.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:D076781CA1D125B7A87A0BD9C374D4AB77B4DD11
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111819.jpgsave_picture_111819.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:CABCB0DBBA698B1DC4D42443E2BA4C532CEA82E4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111820.jpgsave_picture_111820.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:689FBE95B2F5BC51FF87F3676689FCFEA51B6843
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111821.jpgsave_picture_111821.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:C738FC03F279323E9D2C9634B3FDBD7DD09815FE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111822.jpgsave_picture_111822.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:3626300792DACEA3F5A8109ACB24E3F8811C514B
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111823.jpgsave_picture_111823.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Tibetan Incantations: The Meditative Sound of Buddhist Chants (1998) [FLAC|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111824.jpgsave_picture_111824.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Balabolka 2.15.0.868 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111825.jpgsave_picture_111825.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:3EA5EAF310BC8D773841C1D45B76D63C528F4B7B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111826.jpgsave_picture_111826.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:48F63BEA1C8E688DD16E7A309FBB440CC6FF5C22
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111827.jpgsave_picture_111827.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Reflections of Life 12: The Shattered Timeline / Отражения жизни 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111828.jpgsave_picture_111828.jpg" />
 </div>
 
 

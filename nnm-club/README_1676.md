@@ -6,7 +6,7 @@ I Am Your Beast (2024) [En] (1.0) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43933.jpgsave_picture_43933.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F1592C527F6DCD206E139C15609CB14FB893D4AF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43934.jpgsave_picture_43934.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:912F55AA4298A06AB056DE202D63C7F33BD38186
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43935.jpgsave_picture_43935.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ XnView Classic 2.51.7 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43936.jpgsave_picture_43936.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Satisfactory (2019) [Ru/Multi] (1.0) Repack Wagner
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43937.jpgsave_picture_43937.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:6606D6E76B16778EF7707958B2E1DACB906E574B
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43938.jpgsave_picture_43938.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:2570B791D726CB6071B9602C7238C08FAFE00094
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43939.jpgsave_picture_43939.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:E20F961C47553EBD0328B44C4D2EF8E27AC36773
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43940.jpgsave_picture_43940.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:1FFAFA78ED8720D3A906FF628C491D4601E93EA1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43941.jpgsave_picture_43941.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ NVIDIA GeForce Desktop Game Ready 561.09 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43942.jpgsave_picture_43942.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:B65ACA6DD6A537B7824691102A3442D4095EE4A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43943.jpgsave_picture_43943.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:B65ACA6DD6A537B7824691102A3442D4095EE4A6
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43944.jpgsave_picture_43944.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:79CB5871E17BE29D4F9FCD67D8246679FD236A4E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43945.jpgsave_picture_43945.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ KMS Tools Portable Lite by Ratiborus 07.09.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43946.jpgsave_picture_43946.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ SketchUp Pro 2024 24.0.594 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43947.jpgsave_picture_43947.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Adobe Acrobat Pro 2024.003.20112 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43948.jpgsave_picture_43948.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:DDA716AE07870C0F0B34B054E30FAB09B26929B3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43949.jpgsave_picture_43949.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:DDA716AE07870C0F0B34B054E30FAB09B26929B3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43950.jpgsave_picture_43950.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Discovery: 11 сентября: когда башни упали / 9/11: After T
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43951.jpgsave_picture_43951.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:4F8BF82A2135F73C1BECC95210CADA6B9A4FE462
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43952.jpgsave_picture_43952.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:669A114297A343B588756679785988088EB081DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43953.jpgsave_picture_43953.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:06BB47E71D60D874B35665E9F00EAE2E3C17DC49
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43954.jpgsave_picture_43954.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:83818DECFFEC1D8C6730D4998BAA39E0D70CB487
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43955.jpgsave_picture_43955.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:F8AD583E000D93A977E1A003FF86EE9D3E738421
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43956.jpgsave_picture_43956.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:60C703C38C441B36ED1F4EEAFACD8EF82388FB30
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43957.jpgsave_picture_43957.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:67CB103635655660AF63826710247A573904C2C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43958.jpgsave_picture_43958.jpg" />
 </div>
 
 

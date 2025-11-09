@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26194.jpgsave_picture_26194.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tobias Sammet (Edguy; Avantasia) - Studio Albums (21 releases) (1997-2025) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26195.jpgsave_picture_26195.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:FD0416D70E041545A2709C58E38683D5FE96630B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26196.jpgsave_picture_26196.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:60C641D69F31B2791D6FE741DE7711C4F310EF33
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26197.jpgsave_picture_26197.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:9CF693022669FBDFEEC57946930038EC9102306E
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26198.jpgsave_picture_26198.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ StartAllBack 3.9.5 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26199.jpgsave_picture_26199.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:9F0DEB3ACD7DCAF2C399106F13ADAA4F5001F9BE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26200.jpgsave_picture_26200.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ FRONT MISSION 1: Remake (2023) [Ru/Multi] (3.0.1/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26201.jpgsave_picture_26201.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B528C9313975A21CC145E5F2ED902F9BF574F3D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26202.jpgsave_picture_26202.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:80A3A13342D880642384750932BEA7F8B959E61C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26203.jpgsave_picture_26203.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:AE8416E882D077C1D192D9FB25552EA45D3B41B5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26204.jpgsave_picture_26204.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:07E9C3B05F84A4848AF7EE96DFFAEC9786025502
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26205.jpgsave_picture_26205.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:07E9C3B05F84A4848AF7EE96DFFAEC9786025502
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26206.jpgsave_picture_26206.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.95/dlc) Repack seleZen [Super
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26207.jpgsave_picture_26207.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:DD64869BF38C850BA7345CEF92F87C956D9991AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26208.jpgsave_picture_26208.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:DD64869BF38C850BA7345CEF92F87C956D9991AB
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26209.jpgsave_picture_26209.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ EMCO UnLock IT 7.0.4 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26210.jpgsave_picture_26210.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:C368A49FC24DF5A85086D15F69996AD0B561095C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26211.jpgsave_picture_26211.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Warcraft 3: The Reign of Chaos (2003) [Ru] (1.26a/dlc) Repack EXROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26212.jpgsave_picture_26212.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:1E2C246BA80776DF35DAC22C3155865C31D7D5DA
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26213.jpgsave_picture_26213.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Nitro PDF Pro 14.36.1.0 Enterprise RePack by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26214.jpgsave_picture_26214.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Tennis Manager 2024 (2024) [Multi] (4.4.1357b) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26215.jpgsave_picture_26215.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:898CE50B2C612223C1D3E487420F76F81A6A9CAA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26216.jpgsave_picture_26216.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ PurpleSchool, Udemy, Антон Ларичев | Next.js 15 - с нуля, React
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26217.jpgsave_picture_26217.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:197970F7E1F9B0098B3D1275E2F539B460AC1C2D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26218.jpgsave_picture_26218.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Adobe Photoshop 2025 26.4.1.194 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26219.jpgsave_picture_26219.jpg" />
 </div>
 
 

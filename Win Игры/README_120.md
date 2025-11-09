@@ -6,7 +6,7 @@ Chess King 25 (2024) [Ru/Multi] (25.0.0.2500) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34191.jpgsave_picture_34191.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Go Home Annie (2024) [Ru/Multi] (build 16636802) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34195.jpgsave_picture_34195.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34220.jpgsave_picture_34220.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Archons (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34223.jpgsave_picture_34223.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 16541638) Rep
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34235.jpgsave_picture_34235.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Forever Skies (2023) [Ru/Multi] (1.7.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34238.jpgsave_picture_34238.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tales of Kenzera: ZAU (2024) [Multi] (1.5.45551) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34249.jpgsave_picture_34249.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Gloomy Tales 3: Hotel Frightsylvania / Мрачные истории 3: Отел
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34291.jpgsave_picture_34291.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Blood Bowl III (3) (2023) [Ru/Multi] (Season 7/dlc) Scene TinyISO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34297.jpgsave_picture_34297.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34332.jpgsave_picture_34332.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Sea of Stars (2023) [Ru/Multi] (1.1.53846) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34431.jpgsave_picture_34431.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Ru/Multi] (1.07) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34438.jpgsave_picture_34438.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Ru/Multi] (1.07) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34448.jpgsave_picture_34448.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Sifu (2023) [Ru/Multi] (1.28.6.720/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34453.jpgsave_picture_34453.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Ready or Not (2023) [Multi] (66884/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34461.jpgsave_picture_34461.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ BIOMORPH (2024) [Multi] (1.7.27362) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34469.jpgsave_picture_34469.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (2891297/dlc) Repack dixen18
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34475.jpgsave_picture_34475.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 16541638) Rep
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34479.jpgsave_picture_34479.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Scene R
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34480.jpgsave_picture_34480.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Harmony Chronicles 2: Demon of the Void / Хроники Гармонии 2:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34490.jpgsave_picture_34490.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Halloween Stories 8: Inspirations Spark / Хеллоуинские истори�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34496.jpgsave_picture_34496.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.4.127/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34510.jpgsave_picture_34510.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34518.jpgsave_picture_34518.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Legacy of Kain Soul Reaver 1-2 Remastered (2024) [Ru/Multi] (Build 16541638) Sce
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34559.jpgsave_picture_34559.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Bad 2 Bad: Apocalypse (2024) [Ru/Multi] (Build 16701862/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34572.jpgsave_picture_34572.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Kong: Survivor Instinct (2024) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34575.jpgsave_picture_34575.jpg" />
 </div>
 
 

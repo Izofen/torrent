@@ -6,7 +6,7 @@ The Treatment - Wake Up The Neighbourhood (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109749.jpgsave_picture_109749.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jazztick - Super Jazztikong Country (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109750.jpgsave_picture_109750.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Acid Jazz Beats & Breaks Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109751.jpgsave_picture_109751.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:817FEAB98020F214DF0B54CB10159E00CADC0480
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109752.jpgsave_picture_109752.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Modern Funk (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109753.jpgsave_picture_109753.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Smooth Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109754.jpgsave_picture_109754.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Global Rock Fusion (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109755.jpgsave_picture_109755.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ King Zebra - Between The Shadows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109756.jpgsave_picture_109756.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bongfoot - Help! The Humans... (2024) [FLAC|Lossless|WEB-DL|tracks] <sludge meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109757.jpgsave_picture_109757.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Shannon & The Clams - The Moon Is In The Wrong Place (2024) [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109758.jpgsave_picture_109758.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:019A361893B75DEB8F6B0056D1FC22FC1E012FC1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109759.jpgsave_picture_109759.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Rusted Roof - Rustless (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109760.jpgsave_picture_109760.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Meden Agan - My Name Is Katherine (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109761.jpgsave_picture_109761.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Bullseyes - Polish Sweethearts (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109762.jpgsave_picture_109762.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:401C40D79F780F1CDC06BD34EDAC64064898ACAE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109763.jpgsave_picture_109763.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Amazing Soothing Groovy Light Jazz Romance Playlist (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109764.jpgsave_picture_109764.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Amazing Soothing Relaxing Lounge Romance Playlist (2024) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109765.jpgsave_picture_109765.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Best Of Zara Taylor (2024) [MP3|320 Kbps] <Trance, Vocal Trance, Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109766.jpgsave_picture_109766.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:BBCCD3C76258FA755AD2EB5BFBEDFB86A96963D5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109767.jpgsave_picture_109767.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Soul Browser 1.4.18 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109768.jpgsave_picture_109768.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:AE4A929A5CB7910F374BE9A302FEBCE1B6BE4FED
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109769.jpgsave_picture_109769.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Soul Browser 1.4.18 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109770.jpgsave_picture_109770.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:BB0604B80E88C58722EDA2569CA58493FD54B6F8
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109771.jpgsave_picture_109771.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Laibach - Opus Dei (1987) Remastered, 2024, Mute [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109772.jpgsave_picture_109772.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ RJ TextEd 16.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109773.jpgsave_picture_109773.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Hunter - Rock 'n' Roll V.I.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109774.jpgsave_picture_109774.jpg" />
 </div>
 
 

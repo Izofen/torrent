@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117017.jpgsave_picture_117017.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Ultimate House Winter 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117018.jpgsave_picture_117018.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:483C437B9FDDA52F6F05F85E2AA225ED2647C2CD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117019.jpgsave_picture_117019.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:2D93049C4A91648C44BE039629905E8009D81EE1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117020.jpgsave_picture_117020.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 01 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117021.jpgsave_picture_117021.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:C5780455A3DFA476EAA0133020AB89B0F003A705
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117022.jpgsave_picture_117022.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Jazz Instrumental Music Academy, Calming Jazz Relax Academy - Vintage Elegance: 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117023.jpgsave_picture_117023.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:982ACCE1C2F6572EC447056822349F84FB812F5B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117024.jpgsave_picture_117024.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Loop Mash Up Pro 1.2.13 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117025.jpgsave_picture_117025.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Serena Forni - Rhythmic Nocturne (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117026.jpgsave_picture_117026.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - Redux Selection Vol. 3 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117027.jpgsave_picture_117027.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Mystic Prophecy - Studio Albums (12 releases) (2001-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117028.jpgsave_picture_117028.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Soft Cell - Memorabilia - A Man Could Get Lost E.P. (2024) [FLAC|Lossless|WEB-DL
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117029.jpgsave_picture_117029.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Leah - The Glory and the Fallen (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117030.jpgsave_picture_117030.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Crazy Lixx - Two Shots At Glory (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard, Glam
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117031.jpgsave_picture_117031.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VA - After Hours Vibes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117032.jpgsave_picture_117032.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Galahad - The Long Goodbye (2023) [FLAC|Lossless|WEB-DL|tracks] <Neo-Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117033.jpgsave_picture_117033.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ The Requiem - A Cure To Poison The World (2024) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117034.jpgsave_picture_117034.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Green Hill: 30 Years Of Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117035.jpgsave_picture_117035.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Life by Night - Life by Night (1985) [FLAC|Lossless|WEB-DL|tracks] <AOR, New Wav
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117036.jpgsave_picture_117036.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - Extend The 80s Groove (Essential 12" And Extended Mixes Of 80s Groove Class
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117037.jpgsave_picture_117037.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Romantic Jazz Music Club, Erotic Moods Music Club - Sensual Date Night: Set the 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117038.jpgsave_picture_117038.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ PhotoRoom v4.8.5 b1292 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117039.jpgsave_picture_117039.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Tinlicker - Cold Enough For Snow (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117040.jpgsave_picture_117040.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Paloma Faith - The Glorification of Sadness (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117041.jpgsave_picture_117041.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ VA - Rock Party Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117042.jpgsave_picture_117042.jpg" />
 </div>
 
 

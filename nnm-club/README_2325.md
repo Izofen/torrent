@@ -6,7 +6,7 @@ CG Fast Track | Blender Fundamentals Vol. 1-3 - Modeling, UVs, Texturing and Sha
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60817.jpgsave_picture_60817.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7D9DC38E51FDD65290785DB36512C642B9BF848E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60818.jpgsave_picture_60818.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:CC23E25F123FB4907E76A28A95EBB984F59EE853
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60819.jpgsave_picture_60819.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CC23E25F123FB4907E76A28A95EBB984F59EE853
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60820.jpgsave_picture_60820.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A85442E8E30ADE1FB3215432022315FA1D909733
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60821.jpgsave_picture_60821.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60822.jpgsave_picture_60822.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:8053880F11EBC024C08DA0E7047353616984400B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60823.jpgsave_picture_60823.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:30DE4A61D740BD8F8E6746B6B86644CE90718AFD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60824.jpgsave_picture_60824.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:6E78ACC018477FF09B329F2DCB3BA87AB62956AC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60825.jpgsave_picture_60825.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:C86BC8854FE5A066539EA9FF1183E07276F0B125
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60826.jpgsave_picture_60826.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:BB4B54F3D2FA800C05E01B1288AFE62C77985DD8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60827.jpgsave_picture_60827.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:BB4B54F3D2FA800C05E01B1288AFE62C77985DD8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60828.jpgsave_picture_60828.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:7F9A97E74538B59C05251E9C0BC7242A17C88C5E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60829.jpgsave_picture_60829.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:78EFAE0A2601847BF8D3909F5824F7F389D295C7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60830.jpgsave_picture_60830.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:EA3F53486F79CFC421FC7D96D5D67CC41709D001
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60831.jpgsave_picture_60831.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Autodesk 3ds Max 2025 RePack by xetrin [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60832.jpgsave_picture_60832.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:AD729F95E483AC6B24D1434753EBCFCDA5F401D5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60833.jpgsave_picture_60833.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:76B1EF4123C884A62C54E131656B6DE5567674F5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60834.jpgsave_picture_60834.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:6677BC885FF14E6ED543D3B7DA0A71EED33BC50B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60835.jpgsave_picture_60835.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Alice Cooper - 53 аlbums, 4 Box Sets, 134 CD (1969-2023) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60836.jpgsave_picture_60836.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ The Legend of Heroes: Trails into Reverie (2023) [En] (1.1.4/dlc) License GOG [L
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60837.jpgsave_picture_60837.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:6B2E248EE3C99268E9F3F01B22D69520EC370FCD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60838.jpgsave_picture_60838.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:49E42019E00AAC12F23BDB715F1B5D89E13BFFEE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60839.jpgsave_picture_60839.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:467CCAD9FB1B68776C15FA582EC694E16CA8D958
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60840.jpgsave_picture_60840.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:A296ED893F6DFD6CED5F64DCAE7C0917AD7C4526
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60841.jpgsave_picture_60841.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:783A5371E45020F71CC480702A1F8EC4F0A1CFED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60842.jpgsave_picture_60842.jpg" />
 </div>
 
 

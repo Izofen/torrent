@@ -6,7 +6,7 @@ VA - Peaceful Supreme Chill Lounge Happiness Playlist on Vacation (2024) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104600.jpgsave_picture_104600.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F577F45CA4C423CE863A859D2CFD665E1454E9A4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104601.jpgsave_picture_104601.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Acid Jazz Instrumentals Vol. 2 (Jazz Funk Breaks Instrumental Tunes) (2024)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104602.jpgsave_picture_104602.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:FB939A8CD2D338C5CFF7AB126DB5964842A95524
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104603.jpgsave_picture_104603.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:28F08C50B884A0D44DF1ED1848B2E09D92C69C65
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104604.jpgsave_picture_104604.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Richard Elliot - Straight Up Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104605.jpgsave_picture_104605.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Losing Gravity - All In (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104606.jpgsave_picture_104606.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:A9E1ED1537305FFCA570D7712B356F52B9B6C783
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104607.jpgsave_picture_104607.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Conner Youngblood - Cascades, Cascading, Cascadingly (2024) [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104608.jpgsave_picture_104608.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Rex Orange County - The Alexander Technique (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104609.jpgsave_picture_104609.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:62296C72565AAF44C89C638C75DCB908F2421CBF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104610.jpgsave_picture_104610.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ MotoGP. Этап 13 из 20. Гран-при Сан-Марино. Спринт (
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104611.jpgsave_picture_104611.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - DJ Vol 351 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104612.jpgsave_picture_104612.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Aviations - Studio Albums (4 releases) (2012-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104613.jpgsave_picture_104613.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:C1469A94D0F518DF11C67F9E79D2143A691C9610
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104614.jpgsave_picture_104614.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:041D842A9872C2BAFAA51130D0CEE81E7FE4A4AD
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104615.jpgsave_picture_104615.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:2D702E0B9F8D6BE926CBEBD3754E2B990967849F
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104616.jpgsave_picture_104616.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Bob Brookmeyer & Bill Evans - The Ivory Hunters (1959) 2003, Toshiba-EMI [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104617.jpgsave_picture_104617.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ MotoGP. Этап 13 из 20. Гран-при Сан-Марино. Квалифи
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104618.jpgsave_picture_104618.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Helvetets Port - Warlords (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104619.jpgsave_picture_104619.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:843E0FACA886243A7CEA3FE2FC66E72822F82D2C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104620.jpgsave_picture_104620.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:B4862E0598290D7364646B8FED1001EAF3177262
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104621.jpgsave_picture_104621.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:E28A0FF782AB7BD758660F993E82E261B434E386
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104622.jpgsave_picture_104622.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:2E15E74CB9CA48B4535E12B4F3E1AF12A47CB1D9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104623.jpgsave_picture_104623.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Entering Polaris - 5 Albums (2018-2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104624.jpgsave_picture_104624.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Levitated - Emotional Trance Vol. 4 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104626.jpgsave_picture_104626.jpg" />
 </div>
 
 

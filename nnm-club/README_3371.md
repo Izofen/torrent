@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108007.jpgsave_picture_108007.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Amon Acid - Submerging (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108008.jpgsave_picture_108008.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kelsley Grant & Andrew Scott - Horizon Song (2024) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108009.jpgsave_picture_108009.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Hour of Penance - Misotheism (2019) [FLAC|Lossless|WEB-DL|tracks] <Technical, Br
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108010.jpgsave_picture_108010.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Rarity - Lower Feeling (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108011.jpgsave_picture_108011.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jack Walrath & The Masters of Suspense - Serious Hang (1992) 1994, Muse Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108012.jpgsave_picture_108012.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Wallace Roney - No Room for Argument (2000) Stretch Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108013.jpgsave_picture_108013.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Hour of Penance - Disturbance (2003) [FLAC|Lossless|image + .cue] <Technical, Br
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108014.jpgsave_picture_108014.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hour of Penance - Pageantry for Martyrs (2005) [FLAC|Lossless|image + .cue] <Tec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108015.jpgsave_picture_108015.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hour of Penance - The Vile Conception (2008) [FLAC|Lossless|image + .cue] <Techn
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108016.jpgsave_picture_108016.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Hour of Penance - Cast the First Stone (2017) [FLAC|Lossless|image + .cue] <Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108017.jpgsave_picture_108017.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Delta Voices - America Sings the 4th of July (2024) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108018.jpgsave_picture_108018.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Broken English Club - Decade (2024) [FLAC|Lossless|WEB-DL|tracks] <Techno Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108019.jpgsave_picture_108019.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Black Diamonds - Destination Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108020.jpgsave_picture_108020.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Nothing But... Trancetopia Vol. 15 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108021.jpgsave_picture_108021.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:51220C98DD01CAA5AEBA42BF63CECD2D7DEE444D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108022.jpgsave_picture_108022.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:51220C98DD01CAA5AEBA42BF63CECD2D7DEE444D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108023.jpgsave_picture_108023.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Jimmie Lunceford - Baby Won't You Please Come Home (1991) Double Play [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108024.jpgsave_picture_108024.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ LuLa Featuring Papa Joe - Last Night A DJ Saved My Life [While A DJ Gave Me Trou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108025.jpgsave_picture_108025.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:DD5E1036072CD40B040FA6DFDB6F2DBA7F799E85
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108026.jpgsave_picture_108026.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VA - DJ Hits 48 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108027.jpgsave_picture_108027.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Libra - Follow The Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108028.jpgsave_picture_108028.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Left Lane Cruiser - Bayport BBQ Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108029.jpgsave_picture_108029.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:A8602036300FA45CEEAF85953DA4F8604F190039
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108030.jpgsave_picture_108030.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Alluring Ultimate Mellow Chilly Lounge Enjoyable Playlist (2024) [FLAC |Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108031.jpgsave_picture_108031.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Highways - Never Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108032.jpgsave_picture_108032.jpg" />
 </div>
 
 

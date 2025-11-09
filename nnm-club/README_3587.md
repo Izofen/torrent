@@ -6,7 +6,7 @@ Pathmaker - Something More (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113637.jpgsave_picture_113637.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ iShot-ScreenShot Recording OCR for Mac 2.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113638.jpgsave_picture_113638.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Crimson Crux - Teenage Rebel (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113639.jpgsave_picture_113639.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:D888E1E0F3D02A99E823D4FE5ADBB2B9C93F9D6D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113640.jpgsave_picture_113640.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:44A9A37CAAFE0DF48B96715991D015A4D93320ED
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113641.jpgsave_picture_113641.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ S.O.D - Speak English or Die (1985) [WavPack|32/96|image + .cue|Vinyl-Rip] <Thra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113642.jpgsave_picture_113642.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Downie 4 v.4.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113643.jpgsave_picture_113643.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Black Electric - Late Night Lightning (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113644.jpgsave_picture_113644.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ S.O.D - Speak English or Die (1985) Reissue, 2016, Megaforce Records [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113645.jpgsave_picture_113645.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Stash for Mac 2.5.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113646.jpgsave_picture_113646.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ John A. Showler - Swinging Doors (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113647.jpgsave_picture_113647.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Thomas Edward Berry - Re-Imagined (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113648.jpgsave_picture_113648.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Alex Winters - Unexpected Trespasses (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113649.jpgsave_picture_113649.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ The Dirty Doves - Tunes & Tribulations (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113650.jpgsave_picture_113650.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Muzozoic - Fuzock (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113651.jpgsave_picture_113651.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ The Arthouse Tomatoes - On The Vine (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113652.jpgsave_picture_113652.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Peela - Notbad (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113653.jpgsave_picture_113653.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Vinegar 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113654.jpgsave_picture_113654.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VA - Rock Aid Armenia. The Earthquake Album (1990) 1992 [FLAC 24/192|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113655.jpgsave_picture_113655.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:5EAF8C756B44B0BEA471600D6EE542F604D8A940
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113656.jpgsave_picture_113656.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ QOwnNotes 24.3.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113657.jpgsave_picture_113657.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:384C932C1614F9A54B2C182229C21AA48DB40D4A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113658.jpgsave_picture_113658.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Sonny Stitt - Constellation (1971) 1992, Muse Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113659.jpgsave_picture_113659.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - Вот какая любовь. Песни Романа Майорова (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113660.jpgsave_picture_113660.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Badhoven - Rock Thru Ages (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113661.jpgsave_picture_113661.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:BB12BA448DC6E801FC8F3C44AC12AC3CFE32CEE5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113662.jpgsave_picture_113662.jpg" />
 </div>
 
 

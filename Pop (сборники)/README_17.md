@@ -6,7 +6,7 @@ VA - German Top 100 Single Charts 07.07.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209308.jpgsave_picture_209308.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - German Top 100 Single Charts 09.06.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211892.jpgsave_picture_211892.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Romantic Feelings (2020) [MP3|320 Kbps] <Pop, Lyric, Romantic Songs>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229091.jpgsave_picture_229091.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Grand Disco Mixer (2020) [MP3|320 Kbps] <Disco, Dance, Remix, Nu Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229149.jpgsave_picture_229149.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - New Dance Musical Releases (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229507.jpgsave_picture_229507.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - New Music Releases Week 48 of 2018 (2018) [MP3|320 Kbps] <Dance, Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229703.jpgsave_picture_229703.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Дискотека забытых хитов (зарубежная) - 20 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229724.jpgsave_picture_229724.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 10 (2022) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233801.jpgsave_picture_233801.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - 80s Dance Hits (2022) CD, Compilation [MP3|320 Kbps] <Soul, Post-Disco, Syn
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237420.jpgsave_picture_237420.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - MEGA HITS 2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237732.jpgsave_picture_237732.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Юрий Шатунов и другие... (2022) [MP3|320 Kbps] <Pop, Danc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240123.jpgsave_picture_240123.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Сотка популярных весенних хитов от Европ
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241001.jpgsave_picture_241001.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - German Top 100 Single Charts 24.04.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241516.jpgsave_picture_241516.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - German Top 100 Single Charts 24.02. (2017) [MP3|320 Kbps] <Pop , Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241860.jpgsave_picture_241860.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Музыкальный презент хорошей музыки от Ев
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241992.jpgsave_picture_241992.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - German Top 40 DBC Deutsche Black Charts 24.02.(2017) [MP3|192-320 Kbps] <Hi
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242023.jpgsave_picture_242023.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - German Top 100 Single Charts 07.04.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242077.jpgsave_picture_242077.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - German Top 100 Single Charts 25.03.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243153.jpgsave_picture_243153.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - National Pop Dance Music (Vol.32) (2022) [MP3|320 Kbps] <Pop, Dance, Folk S
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243224.jpgsave_picture_243224.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Заключительная осенняя дискотека. Верси�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243250.jpgsave_picture_243250.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Звездная вечеринка. Зарядись хитами. Час�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243277.jpgsave_picture_243277.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Europa Plus №7 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243533.jpgsave_picture_243533.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Сотка модных хитов. Выпуск 6 (2016) [MP3|256 Kbps] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243609.jpgsave_picture_243609.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Звездная вечеринка. Зарядись хитами 50/50 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243617.jpgsave_picture_243617.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Осенняя дискотека по-русски. Выпуск 5 (2016) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243727.jpgsave_picture_243727.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Горячий хитовый драйв. Выпуск 8 (2016) [MP3|256 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243766.jpgsave_picture_243766.jpg" />
 </div>
 
 

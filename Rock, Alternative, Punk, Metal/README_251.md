@@ -6,7 +6,7 @@ Artery Eruption - Artery Eruption & Mangled Atrocity (2004) Split [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159965.jpgsave_picture_159965.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Belial - Wisdom of Darkness (1992) Reissue 2010, Galgenstrang Productions [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159968.jpgsave_picture_159968.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Belial - Wisdom of Darkness (1992) EP [APE|Lossless|image + .cue] <Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159971.jpgsave_picture_159971.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Artery Eruption - Gouging Out Eyes of Mutilated Infants (2005) [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159972.jpgsave_picture_159972.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:4D54F72B19B485EA5798DF6B1AA28FE2BDB26189
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160003.jpgsave_picture_160003.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:A7765A792E9A1BF799F05DF3C22E7EBC965CA765
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160023.jpgsave_picture_160023.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Frank Zappa - Waka/Wazoo (2022) 4 x CD, Box Set, Compilation, Reissue, Remastere
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160085.jpgsave_picture_160085.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Status Quo - Heavy Traffic (2022) 3xCD, Deluxe Edition, Remastered, Universal Mu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160118.jpgsave_picture_160118.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Autumn's Child - Starflower (2022) Japanese Edition [MP3|320 Kbps] <Melodic Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160124.jpgsave_picture_160124.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Lacuna Coil - Comalies XX (2002) 2xCD, Reissue, 2022, Century Media [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160128.jpgsave_picture_160128.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Weezer - 4 EP (2022) [MP3|320 Kbps] <Alternative, Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160162.jpgsave_picture_160162.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sula Bassana - Nostalgia (2022) [MP3|320 Kbps] <Heavy Psych, Space, Kraut>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160171.jpgsave_picture_160171.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ BLOF - 30 (We Doen Wat We Kunnen) (2022) 3xCD, Compilation [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160178.jpgsave_picture_160178.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Gothic Sky - П​о​с​л​е​д​н​и​е С​л​о​в​а �
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160179.jpgsave_picture_160179.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:344FC7B8756F835F4A789BB3508F66721E6ACC1A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160183.jpgsave_picture_160183.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Wolfsbane - Massive Noise Injection (1993) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160212.jpgsave_picture_160212.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Naglfar - Cerecloth (2020) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160216.jpgsave_picture_160216.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:C42CF8266A94FBB4C33C1512CF82BB5189F49DA7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160219.jpgsave_picture_160219.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Adastra - Death Or Domination (2008) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160225.jpgsave_picture_160225.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Battle Born - Blood, Fire, Magic And Steel (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160242.jpgsave_picture_160242.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Battle Born - Battle Born (2020/2022) EP [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160264.jpgsave_picture_160264.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:5B8BD6066BBA20AE11DDB91A8F77AD2E555D7B20
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160268.jpgsave_picture_160268.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ D'Virgilio, Morse & Jennings - Sophomore (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160284.jpgsave_picture_160284.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Bayou Bandits - Arizona Stepson (2023) [FLAC|Lossless|WEB-DL|tracks] <Southe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160285.jpgsave_picture_160285.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Secret Sphere - Blackened Heartbeat (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160291.jpgsave_picture_160291.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Dawnrider - Fate Is Calling (Pt. 1) (2005) [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160292.jpgsave_picture_160292.jpg" />
 </div>
 
 

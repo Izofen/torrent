@@ -6,7 +6,7 @@ Erroll Garner - Now Playing: A Night at the Movies (1964) 2019, Mack Avenue [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172147.jpgsave_picture_172147.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Erroll Garner - The Complete Savoy Master Takes (1945 - 1949) 2CD, 1998, Savoy J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172148.jpgsave_picture_172148.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:6258144930C4D74FD736AC0A45574BA03B8D4089
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172149.jpgsave_picture_172149.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:4E3C47F069717A3FC7E04BA8C238E977847039F6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172150.jpgsave_picture_172150.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Mark Schoen | Увлекательный секс: Продвинутая сек
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172151.jpgsave_picture_172151.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:A5D4BE6981749BCA48960EB905CB84C101F37D36
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172152.jpgsave_picture_172152.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Lost Eidolons (2022) [Ru/Multi] (3_29/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172153.jpgsave_picture_172153.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Mortuary Assistant (2022) [Ru/Multi] (1.2.3) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172154.jpgsave_picture_172154.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:AB2C1D22F2D5FC466F81BBFBD91315287DBDCA70
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172155.jpgsave_picture_172155.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:D34424187B2B84D82A6053DD71F0FECB2FF4AAA8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172156.jpgsave_picture_172156.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:B963214D75E1ACE689860B70B914F355F7F293DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172157.jpgsave_picture_172157.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:71406271E9FCB91E6FD67A7B938145ACDBBAA975
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172158.jpgsave_picture_172158.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Microsoft Windows 11 [10.0.22621.2428], Version 22H2 (Updated October 2023) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172159.jpgsave_picture_172159.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:231235E12576F169F4D25426F22503398F964946
 >>Маски-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172160.jpgsave_picture_172160.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.4.270196/dlc) Repack Other s [Supporter Edit
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172161.jpgsave_picture_172161.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Rufus 4.3 (Build 2090) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172162.jpgsave_picture_172162.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:49FAC5A6453EF4ED33DC42D4EB65796553E7E43B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172163.jpgsave_picture_172163.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:3697F3BE344D574E5AB31A90BCA1219C874728B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172164.jpgsave_picture_172164.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Windows 10/11 x64 (18in1) by Updated Edition (18.10.2023) [Ru]
 >>Сборки Windows - всё в одном
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172165.jpgsave_picture_172165.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Marc Sommerfeld | Изготовление шкафов с выдвижными 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172166.jpgsave_picture_172166.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Marc Sommerfeld | Изготовление шкафов с выдвижными 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172167.jpgsave_picture_172167.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:C6983D4C56E463B2BD80F33032F5703937480787
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172168.jpgsave_picture_172168.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:54269712BEADA37D0D4CE140E53D38E7E3509D16
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172169.jpgsave_picture_172169.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:181671C213DA764063277B9B4F4EF1919EFB0338
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172170.jpgsave_picture_172170.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ ADB AppControl 1.8.2 Extended portable by GPFault [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172171.jpgsave_picture_172171.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Reg Organizer 9.31 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172172.jpgsave_picture_172172.jpg" />
 </div>
 
 

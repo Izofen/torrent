@@ -6,7 +6,7 @@ VA - Traxsource Best Of Ibiza - Hype Chart (2016) [MP3|320 Kbps] <Deep House, Te
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245529.jpgsave_picture_245529.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:73FE9D78969EE8A5E7F39844B3A4C918280BE311
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245530.jpgsave_picture_245530.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Beatport Drum And Bass: Sound Pack #376 (2021) [MP3|320 Kbps] <Drum And Bas
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245531.jpgsave_picture_245531.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:365DDB1E72DCA7F32DED384254CE3E51ABD49CE3
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245532.jpgsave_picture_245532.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:CB6FD272EBED3A00C5F430343A8240990CF65831
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245533.jpgsave_picture_245533.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Gerard Joling - No More Boleros (1989) [MP3|320 Kbps] <Рор>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245534.jpgsave_picture_245534.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Sax Gordon - Showtime! (2013) [MP3|320 Kbps] <Blues, Jazz, Funk>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245535.jpgsave_picture_245535.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ HWiNFO 7.43 Build 5080 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245536.jpgsave_picture_245536.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:F100AB1DAF987E68DC39A6E87D545414B754E547
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245537.jpgsave_picture_245537.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ WhatsApp 2.2102.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245538.jpgsave_picture_245538.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Ziggurat 2 v16.02.2022.11.04.32.87 (2021) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245539.jpgsave_picture_245539.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ FanControl V151 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245540.jpgsave_picture_245540.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Marco Garau's Magic Opera - Battle of Ice (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245541.jpgsave_picture_245541.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:5EB2A2A7143D1F16642DA5788CE0F7CF9FF663F2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245542.jpgsave_picture_245542.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ WinSnap 6.0.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245543.jpgsave_picture_245543.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Entagma, Moritz Schwind | New in Houdini 18.5 (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245544.jpgsave_picture_245544.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:70A499480E06BCE76D1C57A15839CDABC035150A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245545.jpgsave_picture_245545.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ VA - Exotic Paradise Vol.1 (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245546.jpgsave_picture_245546.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Nik Complete 4 Collection by DxO v4.3.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245547.jpgsave_picture_245547.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:6856912F16A576466965929C43A1D4A5502717C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245548.jpgsave_picture_245548.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Giant Sleep - Grounded to the Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245549.jpgsave_picture_245549.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Photo Supreme 2023.1.1.4870 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245550.jpgsave_picture_245550.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Within Temptation - And We Run (2014) Japanese Edition, EP [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245551.jpgsave_picture_245551.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ NotesTab Pro 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245552.jpgsave_picture_245552.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Revo Uninstaller Pro 5.0.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245553.jpgsave_picture_245553.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:738071D5C3F2F60F7B90F32414B8F2270415EAB7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245554.jpgsave_picture_245554.jpg" />
 </div>
 
 

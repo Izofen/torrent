@@ -6,7 +6,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113871.jpgsave_picture_113871.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:846FAB92C98AA8C5931597454FE28FE0C4050A58
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113872.jpgsave_picture_113872.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Mike Della Bella Project - The Man With The Red Shoes (2024) [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113873.jpgsave_picture_113873.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Feeder 4 v.4.6.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113874.jpgsave_picture_113874.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Marisol - Поёт Марисоль (1980) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113875.jpgsave_picture_113875.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:818913F9BEF39B25346C102BA73D3B6ECA1BE660
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113876.jpgsave_picture_113876.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Dion - Girl Friends (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113877.jpgsave_picture_113877.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Debit & Credit Premium 6.3.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113878.jpgsave_picture_113878.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ SideNotes 1.4.14 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113879.jpgsave_picture_113879.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:D6AD9C53D542ABD03CC2BBCAFFF0C73F6459A4C6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113880.jpgsave_picture_113880.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Icecream Slideshow Maker PRO 5.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113881.jpgsave_picture_113881.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:FADD0CF9BCC19AE8C62F26B488825F2B0158C9F4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113882.jpgsave_picture_113882.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Norah Jones - Visions (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113883.jpgsave_picture_113883.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ SQL Dynamite 2.5.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113884.jpgsave_picture_113884.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Ariana Grande - eternal sunshine (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113885.jpgsave_picture_113885.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Brave Browser 1.63.169 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113886.jpgsave_picture_113886.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Skype 8.114.0.214 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113887.jpgsave_picture_113887.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Shylmagoghnar - Studio Albums (3 releases) (2014-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113888.jpgsave_picture_113888.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Opera One 108.0.5067.20 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113889.jpgsave_picture_113889.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Google Chrome 122.0.6261.112 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113890.jpgsave_picture_113890.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Strava: бег, велоезда, хайкинг v350.7 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113891.jpgsave_picture_113891.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:5EA1DB55BEA14602E985D36740724820E0697ED9
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113892.jpgsave_picture_113892.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Rolling Stones - Live At The Wiltern (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113893.jpgsave_picture_113893.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Для вас, женщины. Принцесса (1989) [FLAC 24/192|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113894.jpgsave_picture_113894.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Lovebites: In the Beginning. The Best of 2017–2021 (2021) BDRip [H.265/1080p] 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113895.jpgsave_picture_113895.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Skype 8.114.0.214 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113896.jpgsave_picture_113896.jpg" />
 </div>
 
 

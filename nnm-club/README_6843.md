@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235179.jpgsave_picture_235179.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ InShot - Фото и видеоредактор 1.902.1407 Mod by Mixroot, maxi1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235180.jpgsave_picture_235180.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lunar - The Illusionist (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235181.jpgsave_picture_235181.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:72F9B973411EDCE3DD26887E7243E3353F54B0C5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235182.jpgsave_picture_235182.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ FastScripts 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235183.jpgsave_picture_235183.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:A324C5095B350860D34FD604BC5E49946ABA6196
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235186.jpgsave_picture_235186.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ JUG Ru Group | HolyJS 2022 Spring. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235187.jpgsave_picture_235187.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:65DBB5B279A9E1192699D0BA22DE64B6DC9DD387
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235188.jpgsave_picture_235188.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Yate 6.9.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235189.jpgsave_picture_235189.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ The Art Of Aaron Blaise, Aaron Blaise | Perspective Drawing (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235190.jpgsave_picture_235190.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Crystal Tears - Choirs Of Immortal (2006) [WavPack|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235191.jpgsave_picture_235191.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Before The Dawn - Stormbringers (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235194.jpgsave_picture_235194.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Katy Perry - One Of The Boys (2008) 15th Anniversary Edition, 2023, Capitol Reco
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235195.jpgsave_picture_235195.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ AR GPS Compass Map 3D Pro 1.8.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235196.jpgsave_picture_235196.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Dropzone 4 Pro v4.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235197.jpgsave_picture_235197.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:909B20906C330039E76C95096F12BDB5F2BA8C87
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235198.jpgsave_picture_235198.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Godless Descent - Hazy Path of Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235199.jpgsave_picture_235199.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ myTracks 4.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235200.jpgsave_picture_235200.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ PreSonus Studio One 6 Professional 6.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235203.jpgsave_picture_235203.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:EA4CF749BB80E75F14DFA6E0543BE77264CEB87C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235204.jpgsave_picture_235204.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Aura (Аура леса) 2.8.10k.216 RePack (& Portable) by elchupacabra + MP3 �
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235205.jpgsave_picture_235205.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Ikarie - Arde (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235206.jpgsave_picture_235206.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Default Folder X 5.5.8  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235207.jpgsave_picture_235207.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:A4C4C6C5FBEB1B423775BAD312BDAC811B60C977
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235209.jpgsave_picture_235209.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:251E6BB3C9FB01166C583A4B350340E66D822EE2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235210.jpgsave_picture_235210.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Duke Ellington - Hot Summer Dance (1960) 2003,  Red Baron [APE|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235212.jpgsave_picture_235212.jpg" />
 </div>
 
 

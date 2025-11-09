@@ -6,7 +6,7 @@ VA - Ultimate Chillout Ambient Lounge II (2024) [FLAC|Lossless|WEB-DL|tracks] <L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110763.jpgsave_picture_110763.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:ABCD6FE016F65E1814C1BA86934F96E8EF963F42
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110764.jpgsave_picture_110764.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:6FA7CBCE39020C3534433468AFC0D64D8058E59C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110765.jpgsave_picture_110765.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:341BA22803EC02CAD632F00FCD737F464BCDB6E7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110766.jpgsave_picture_110766.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:7E9DB81E50C69BF305B25CAC8CEEED275BCC8401
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110767.jpgsave_picture_110767.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:A13C2AAA34F974EE776230B4CEC975436B637A30
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110768.jpgsave_picture_110768.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ OneCommander Pro 3.78.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110769.jpgsave_picture_110769.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:0251479C5489F42B73F0E52D64CC577DA89D4B1E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110770.jpgsave_picture_110770.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ MONOKINI - Дотянуться до солнца (2001) Deluxe Edition, 2024, M
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110771.jpgsave_picture_110771.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Она (2024) сборник в поддержку благотворите
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110772.jpgsave_picture_110772.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:B068E35F203DD74CB80D7A5A8197AF99DE7AB23C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110773.jpgsave_picture_110773.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Subtitle Workshop 6.2.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110774.jpgsave_picture_110774.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Jeff McMillan - Compilation (2024) [MP3|320 Kbps] <Rock, Blues Rock, Soul>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110775.jpgsave_picture_110775.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Photo Supreme 2024.0.2.6358 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110776.jpgsave_picture_110776.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ VA - Митьки никого не хотят победить! (2023) [FLAC|Lo
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110777.jpgsave_picture_110777.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ DJ Rosell and Angel Garcia DJ - Be My Lover (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110778.jpgsave_picture_110778.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:E945EC984D50DBAC1413A0D082A2834A5806238B
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110779.jpgsave_picture_110779.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Wondershare PDFelement 10.3.8.2727 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110780.jpgsave_picture_110780.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ XYplorer 25.90.0100 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110781.jpgsave_picture_110781.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:E41524850760CEF4D6EB74D09BFBCDED1023D9A0
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110782.jpgsave_picture_110782.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:98719A0DCEBEC3AE3397223798E487FFACE14CE7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110783.jpgsave_picture_110783.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ AirBrush: ИИ Фоторедактор v6.5.0 Mod by ImanAlien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110784.jpgsave_picture_110784.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Text Edit Plus 14.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110785.jpgsave_picture_110785.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Dark City 9: Amsterdam (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110786.jpgsave_picture_110786.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:A01A1DBF86A97896A8012A249946526B11142A4D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110787.jpgsave_picture_110787.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Radiant Photo 1.3.1.436 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110788.jpgsave_picture_110788.jpg" />
 </div>
 
 

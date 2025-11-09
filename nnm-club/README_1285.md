@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33765.jpgsave_picture_33765.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:412097CD9F523A278B37182E141CE2D3584F9860
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33766.jpgsave_picture_33766.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:88DBD458276B0F88ECE5B1CA7433D165FBABE657
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33767.jpgsave_picture_33767.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:66ADF1A91FE52DC13256653D3C91217A2C35801C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33768.jpgsave_picture_33768.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:B8ADB56E7B93DCC010CEBC5B05D31BBE5A6F34EC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33769.jpgsave_picture_33769.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ EssentialPIM Pro 12.1.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33770.jpgsave_picture_33770.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:FA509749B1C710630E6EDD6E718D50795F301319
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33771.jpgsave_picture_33771.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:160D4736730DD6C50167573E7D9A38B0F29E1F42
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33772.jpgsave_picture_33772.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:2D5D19FC395CAF44DF388D69934D739BADA3014B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33773.jpgsave_picture_33773.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:7A98A8EA2AF0AF01FB24108925FF986D7C12D98C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33774.jpgsave_picture_33774.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:014026C48BC8382293F0AD0D8891C236B6698D95
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33775.jpgsave_picture_33775.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Bounty of One: Premium 1.0.169 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33776.jpgsave_picture_33776.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ R-Wipe & Clean 20.0.2487 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33777.jpgsave_picture_33777.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:CCA570086C2C5EBCD7E83EDC2E7206E1F7D06CB3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33778.jpgsave_picture_33778.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:7602A05E661D7AAC8155C2625A3BEAF3EABD1FD4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33779.jpgsave_picture_33779.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Midnight Girl 1.1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33780.jpgsave_picture_33780.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:DC24B32C966EBD9FECDF1E8FA10F75C029A1FB3D
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33781.jpgsave_picture_33781.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - Get Ready to Rock! (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33782.jpgsave_picture_33782.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:A9351C74D98DA8F0B20E43DA83E3EAD147D68C50
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33783.jpgsave_picture_33783.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:0E36DCEA4ACC351327E013CC0980516B087D173A
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33784.jpgsave_picture_33784.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Emin - Верни мне музыку (памяти Муслима Магома�
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33785.jpgsave_picture_33785.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:80CB7EE355329E7CFB47EE0877E3BAD64E0C89D5
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33786.jpgsave_picture_33786.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ RainCity 1.0.20 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33787.jpgsave_picture_33787.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:E15E8F78D46C254CFB0597288A376826E91BF221
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33788.jpgsave_picture_33788.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ AlimkhanOV A. - Black (The 4th Album) (2024) [FLAC|Lossless|tracks + .cue] <Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33789.jpgsave_picture_33789.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:05047A3F8D0AC45E6B09FB4E8DEFA1C1353146A8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33790.jpgsave_picture_33790.jpg" />
 </div>
 
 

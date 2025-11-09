@@ -6,7 +6,7 @@ Client Folder Maker 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236423.jpgsave_picture_236423.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D92138379D27E7EC35BF8DC69AA217C0259ED5F3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236424.jpgsave_picture_236424.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EC9B6C71E58759A657057A14390FBFE9276C1891
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236425.jpgsave_picture_236425.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A53CBDDAA9093ADAD710EC0C676E4EEFBE8FC68C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236426.jpgsave_picture_236426.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ CaptureGRID 4 v4.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236429.jpgsave_picture_236429.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Photo Effects Pro 6.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236430.jpgsave_picture_236430.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:987DF1E81124E8F52F1F3960088BE8891B5ECA6E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236431.jpgsave_picture_236431.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E2E7969CD183149812E6D16C8FDA73878C2CBE01
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236432.jpgsave_picture_236432.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ MotoGP. Этап 07. Гран-при Германии. Квалификация 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236435.jpgsave_picture_236435.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ AOMEI Partition Assistant Technician Edition 9.10.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236436.jpgsave_picture_236436.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Things 3 v3.15.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236437.jpgsave_picture_236437.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:83D57FABE112F61B1DF85A0F225874BB9FD035B1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236439.jpgsave_picture_236439.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ MacMagic 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236440.jpgsave_picture_236440.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Forged In Black - Lightning In The Ashes (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236441.jpgsave_picture_236441.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:43738ACC6BA470B505BB9AE72A0F9765AEB2F73A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236443.jpgsave_picture_236443.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:0100A24DC6DFE29472235B2BE2130D64EACE0C0D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236446.jpgsave_picture_236446.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ PatterNodes 2 v2.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236447.jpgsave_picture_236447.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Burnt Belief - Emergent (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236448.jpgsave_picture_236448.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ European Jazz Trio - Pray: Spring Sea (2012) M&I [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236449.jpgsave_picture_236449.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ White Noise Band - Bite the Road (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236450.jpgsave_picture_236450.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:27C530D7E06151485753AF73834EE721E4B44834
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236451.jpgsave_picture_236451.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:42F9718E08223B7DA3B1A2052ACF6BC347C3BA94
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236452.jpgsave_picture_236452.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Soulver 3 v3.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236455.jpgsave_picture_236455.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Memorized Dreams - Theater Of Life (2004) [WavPack|Lossless|image + .cue] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236456.jpgsave_picture_236456.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Mirror for TCL TV 3.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236457.jpgsave_picture_236457.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:761462D0BBDA446FB0224FE26B7A54200BD2506E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236458.jpgsave_picture_236458.jpg" />
 </div>
 
 

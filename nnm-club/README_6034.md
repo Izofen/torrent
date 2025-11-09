@@ -6,7 +6,7 @@ Mats Karlsson - Mood Elevator (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189811.jpgsave_picture_189811.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VLC Media Player 3.0.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189812.jpgsave_picture_189812.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ OmmWriter 1.67 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189813.jpgsave_picture_189813.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Network Radar 3.0.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189815.jpgsave_picture_189815.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Orna - The Very Thought Of You (2003) A440 Music Group [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189817.jpgsave_picture_189817.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:A3724508611365949EB4EEC2F7AD0D31F178C76A
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189818.jpgsave_picture_189818.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ La Menade - Reversum (2023) [MP3|320 Kbps] <Alternative Metal, Female Vocals>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189819.jpgsave_picture_189819.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Omni Toolbox 1.4.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189821.jpgsave_picture_189821.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ McCoy Tyner - The Best Of: The Blue Note Years (1967 - 1995) 1996, Blue Note [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189823.jpgsave_picture_189823.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ ZEDGE 8.16.3 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189825.jpgsave_picture_189825.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:7727ACE3614AD9D6F9164895CF73BFFC50B091E4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189826.jpgsave_picture_189826.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Mactracker 7.12.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189827.jpgsave_picture_189827.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Planetside Terragen for Mac 4 v.4.5.71 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189828.jpgsave_picture_189828.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:CD7E3824AADB7573D9BA195AA544C12C4E861B6D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189830.jpgsave_picture_189830.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Cageyseetkaah - Sense (2023) [MP3|320 Kbps] <avant-garde death metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189832.jpgsave_picture_189832.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Be Focused Pro - Focus Timer 2.3.2 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189834.jpgsave_picture_189834.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Maxon Cinema 4D Studio 2023.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189835.jpgsave_picture_189835.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Piezo 1.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189838.jpgsave_picture_189838.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:97D33CB1C1FAD33EC6AD8AEC819313F3C78832F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189839.jpgsave_picture_189839.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Stats 2.9.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189841.jpgsave_picture_189841.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Grisaia no Kajitsu | The Fruit of Grisaia | Натюрморт в серых т�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189842.jpgsave_picture_189842.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ SyncBird Pro 4.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189843.jpgsave_picture_189843.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ SnippetsLab 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189844.jpgsave_picture_189844.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Grisaia no Meikyuu: Caprice no Mayu 0 | The Labyrinth of Grisaia: The Cocoon of 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189845.jpgsave_picture_189845.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Cent Browser 5.0.1002.276 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189846.jpgsave_picture_189846.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Grisaia no Rakuen | The Eden of Grisaia | Рай в серых тонах [2015,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189847.jpgsave_picture_189847.jpg" />
 </div>
 
 

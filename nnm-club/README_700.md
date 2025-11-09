@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18526.jpgsave_picture_18526.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tracy Schmidt | 2018 Standard Catalog of World Paper Money. Modern Issues. 1961-
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18527.jpgsave_picture_18527.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DLNow Video Downloader 1.54.2025.05.11 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18528.jpgsave_picture_18528.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3082AE941048FCA09714BE9535A38C1F75A124B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18529.jpgsave_picture_18529.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:9F5168316E69BE4F6617A5558BA156B49D0F5A9A
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18530.jpgsave_picture_18530.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:DA967C447CABD5053D3E7E97B150865655558867
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18531.jpgsave_picture_18531.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ IObit Driver Booster Pro 12.4.0.585 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18532.jpgsave_picture_18532.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1134C5A4E340BD20F3BE04D783F754BE6DCC9458
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18533.jpgsave_picture_18533.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Rising Star 2 (2020) [Ru/Multi] (2.98.354/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18534.jpgsave_picture_18534.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:D2A351E5FA5A79BC506151217945FDA3D161BCBC
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18535.jpgsave_picture_18535.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ YT Downloader 9.12.9 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18536.jpgsave_picture_18536.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:E8AF7036E325A162FB06B08057CAB09B380588AA
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18537.jpgsave_picture_18537.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:C439BE2D7B0E5B02A2463584B9CA68098CF20FFF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18538.jpgsave_picture_18538.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:3C3B63B1C539847481180A76E2056A641EB1A419
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18539.jpgsave_picture_18539.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18540.jpgsave_picture_18540.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:D008C6BC13D651ABD5F8226E3322514A4B052BC8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18541.jpgsave_picture_18541.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:37F4BBFD0A662BFE2BD23A3005581DE48EC22705
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18542.jpgsave_picture_18542.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Tales of Kenzera: ZAU (2024) [Ru/Multi] (1.5.0.45551) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18543.jpgsave_picture_18543.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.27.7 Mod by baalajimaestro  [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18544.jpgsave_picture_18544.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834) Repack seleZen [Deluxe Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18545.jpgsave_picture_18545.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:57467EC5126B96566E6D3E233EF92C73478598E8
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18546.jpgsave_picture_18546.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:9C2CEE33635BE8D548106DBC3EB13FEED976D498
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18547.jpgsave_picture_18547.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ IObit Smart Defrag Pro 10.4.0.441 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18548.jpgsave_picture_18548.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Inkscape 1.4.2 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18549.jpgsave_picture_18549.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:CC161F64382B1F6F86D0FB7A0C5878F1A598BA46
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18550.jpgsave_picture_18550.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 09.05.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18551.jpgsave_picture_18551.jpg" />
 </div>
 
 

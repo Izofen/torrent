@@ -6,7 +6,7 @@ Eagle - Come Under Nancy's Tent (1970) Remastered, 2023, Janus Records [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126213.jpgsave_picture_126213.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ R.E.M. - Santa Monica 1991 - live (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126214.jpgsave_picture_126214.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:088D7B9545E36038A89E5DF9B4B17B6622FA422D
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126215.jpgsave_picture_126215.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:A8349DEC7AC1591EC18D49C73CB7413EE9B9A92E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126216.jpgsave_picture_126216.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Hels
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126217.jpgsave_picture_126217.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Neil Levin - Cosmic Blues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126218.jpgsave_picture_126218.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:C3949B28361FFC4C98E7C6C278DAF658E5146000
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126219.jpgsave_picture_126219.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:0759F420B8DEA5F9D60143DE7DE76823A19E2E73
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126220.jpgsave_picture_126220.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Glass Hammer - Arise (2023) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Sym
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126221.jpgsave_picture_126221.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Grateful Dead - Winter Solstice (Live) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126222.jpgsave_picture_126222.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:2BD7ADBEE2D1AC1108B2E361FCD84701DBB08636
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126223.jpgsave_picture_126223.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Freya Ridings - Blood Orange (Live at Apollo) (2023) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126224.jpgsave_picture_126224.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:EBF90C16D41FCC5668921C1DBB04CE941345DF12
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126225.jpgsave_picture_126225.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:357A96EF7ACA5662F017806834989E58BB137170
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126226.jpgsave_picture_126226.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:FC920985C839C221EF6F544B3B766AF6AAF64C5A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126227.jpgsave_picture_126227.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Rustik Mode - In The Desert Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126228.jpgsave_picture_126228.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:496950063E48FE3D5436C4BD7EEA27A86C066B8B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126229.jpgsave_picture_126229.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Demon - British Standard Approved (1985) Japanese Edition, Reissue, Remastered, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126230.jpgsave_picture_126230.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:B624D14D05A16585535072029002D1D91AAF8D30
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126231.jpgsave_picture_126231.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Vibe Brothers Band - Everyday (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126232.jpgsave_picture_126232.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:281356F1A5F3C5FACBB9FD5CD49DC516BA6BD758
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126233.jpgsave_picture_126233.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:08721CE2721C1DD5B85ABDF8FD6B18189B4D572C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126234.jpgsave_picture_126234.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:664B612B1464CF53987634DD26CCBD4601F5199C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126235.jpgsave_picture_126235.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - Turbo Drive, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126236.jpgsave_picture_126236.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Privacy Eraser Free 6.2.0 Build 4812 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126237.jpgsave_picture_126237.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:0877D19D24858866E673AD4C8855324F5D8598FF
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126238.jpgsave_picture_126238.jpg" />
 </div>
 
 

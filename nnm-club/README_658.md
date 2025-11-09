@@ -6,7 +6,7 @@ Tactical Warfare (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17427.jpgsave_picture_17427.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:056DDA4907AC5BDEA89CCF65C85E882A3CA73D07
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17428.jpgsave_picture_17428.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ K-Lite Codec Pack 18.9.5 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17429.jpgsave_picture_17429.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C5964E0966D7E50DE63ADCBF3CE0203D20818019
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17430.jpgsave_picture_17430.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:DE636724CDCD76558122B7A5B37C128C44B400C3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17431.jpgsave_picture_17431.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:3CD0808DB9E96160C0B101790A3E5DB115B24372
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17432.jpgsave_picture_17432.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:BFB64A3233CDA7FC7A3A6EC19DE5D71BBDC133E3
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17433.jpgsave_picture_17433.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:C7B79CDF2734EE02FC6FF3280A82B9C71E229A7D
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17434.jpgsave_picture_17434.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:24BBA000F454597EBA17C3AAA1CD16FBD10FFC9D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17435.jpgsave_picture_17435.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:0B19D79405837A0FDB0E8EA3B8E54FEBDF4AA2BD
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17436.jpgsave_picture_17436.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ ENDLESS Dungeon (2023) [Ru/Multi] (1.6.11053/dlc) Repack Let'sРlay [Last Wish E
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17437.jpgsave_picture_17437.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Dwarven Realms (2022) [Ru/Multi] (1.4.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17438.jpgsave_picture_17438.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:24F476EE65D26A24BF2EFD7CAB00D9FFF8FDC68C
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17439.jpgsave_picture_17439.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:BEF4F2516206708A581C8FB9727BF2F26EE16868
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17440.jpgsave_picture_17440.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:F2822C8A777CC464179FDB5E5CD13F08FF5F2748
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17441.jpgsave_picture_17441.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:7445905CCEA986B94E41AA3309601DBEA127D083
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17442.jpgsave_picture_17442.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:A607DD850BFA0D12CC0E03F34A8F9AF95B5ABFF6
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17443.jpgsave_picture_17443.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0B Build 47 Public Beta 4 (x64) Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17444.jpgsave_picture_17444.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:4D6E2716C12633735C7B1E5F2829957DF4461E08
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17445.jpgsave_picture_17445.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jazzy Coffee - Noir Notes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17446.jpgsave_picture_17446.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Gutta Verse Moon - Unusual Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17447.jpgsave_picture_17447.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Greg Foat & Jihad Darwish - Opening Time (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17448.jpgsave_picture_17448.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Five Foot Finn - Electric Hex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17449.jpgsave_picture_17449.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Extreme Tinnitus - Darlene - Extreme Tinnitus - Darlene (2025) [FLAC 24/96|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17450.jpgsave_picture_17450.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Audiophile NBR Music - Speak Softly Love (Deluxe Edition) (2025) [FLAC 24/48|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17451.jpgsave_picture_17451.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:C9038CC3B4797A2B35AE750C1CD05BF9FECDD5FB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17452.jpgsave_picture_17452.jpg" />
 </div>
 
 

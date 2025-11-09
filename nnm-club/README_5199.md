@@ -6,7 +6,7 @@
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161926.jpgsave_picture_161926.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:BCB29E6886569FD77160D928D62B6DBD11A7F7AD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161927.jpgsave_picture_161927.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A88DFA67ECBD85CD430BBED375ECD88C6369D251
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161928.jpgsave_picture_161928.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Affinity Photo 2 v.2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161929.jpgsave_picture_161929.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:7C4ED245E9BE0161B01982EB9CD5DB35AE4A3197
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161930.jpgsave_picture_161930.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:59F6E1B63B10E23927FA3CE3005B43A42BA44C6B
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161931.jpgsave_picture_161931.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:B0FE8DFD6DEC54DC3B5B293F82900CD1BE4B4ACC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161932.jpgsave_picture_161932.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:9054E4A3811460128C892FCE409040ED08A5C9A3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161933.jpgsave_picture_161933.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VCap Downloader 0.1.38.6764 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161934.jpgsave_picture_161934.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:DB17717B69FC0A56C093750011D99742C2D65BBE
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161935.jpgsave_picture_161935.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Lesbian Bed Death - The Witching Hour (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161936.jpgsave_picture_161936.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:08F60BBB8CB33E28DF9F63E4124A6682C51BE56E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161937.jpgsave_picture_161937.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Clip Studio Paint EX 2.2.2 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161938.jpgsave_picture_161938.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ PrivaZer Pro 4.0.113 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161939.jpgsave_picture_161939.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Romeo & Juliette (Gerard Presgurvic) (2000) [FLAC|Lossless|tracks + .cue] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161940.jpgsave_picture_161940.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:44DAD106A6D128F05307B060E79DBD0C8D329BD4
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161941.jpgsave_picture_161941.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ PrivaZer Pro 4.0.113 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161942.jpgsave_picture_161942.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Q-Dir 11.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161943.jpgsave_picture_161943.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:50B9CC90980E314AA1D3EFB1E67164329FD16F6B
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161944.jpgsave_picture_161944.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:DEE3ABA4D99850F0F826B7DD2C5A2BAD36CFA3F6
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161945.jpgsave_picture_161945.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:651DEDCDE7344EB74104046135414CB6FC47225A
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161946.jpgsave_picture_161946.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:9C74AE57460F10F0B91D1C55EB3D6F5CD1522356
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161947.jpgsave_picture_161947.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Affinity Designer 2 v.2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161948.jpgsave_picture_161948.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ K-Lite Codec Pack Update 15.9.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161949.jpgsave_picture_161949.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Schoolism, Craig Mullins | Painting Sci-Fi from Start to Finish (2020) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161950.jpgsave_picture_161950.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:841238C219CE8EC645FA44743D7BDED1D041AF78
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161951.jpgsave_picture_161951.jpg" />
 </div>
 
 

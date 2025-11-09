@@ -6,7 +6,7 @@ VA - Club Sounds Best Of 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36754.jpgsave_picture_36754.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - no pare, sigue sigue 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36870.jpgsave_picture_36870.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - OPIA (2024) Ultimae Records [FLAC|Lossless|Web-DL|tracks] <Ambient, Downtem
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36893.jpgsave_picture_36893.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - World Organic 2024 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36975.jpgsave_picture_36975.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Orbital - A Beginner's Guide (Best Of) - 2024 [FLAC|Lossless|WEB-DL|tracks] <Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36976.jpgsave_picture_36976.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Black Hole Trance Music 11-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37170.jpgsave_picture_37170.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Free To Dance, Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37173.jpgsave_picture_37173.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Black Hole House Music 11-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37174.jpgsave_picture_37174.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Alesso - Tomorrowland Friendship Mix (2024-11-14) [MP3|320 Kbps] <Tech House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37175.jpgsave_picture_37175.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Armin van Buuren - A State Of Trance 1199 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37178.jpgsave_picture_37178.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Deep House 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <Deep H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37201.jpgsave_picture_37201.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Tiesto - Live @ PRISMATIC, Forest Hills Stadium New York, United States (2024-10
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37206.jpgsave_picture_37206.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Anjunabeats presents Euphoria 01 (DJ Mix) (2024) [MP3|320 Kbps] <Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37287.jpgsave_picture_37287.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ V.A. - Buddha Bar by Dole & Kom and Ravin (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37304.jpgsave_picture_37304.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Abc - The Best On Abc (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37315.jpgsave_picture_37315.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Top 10 September 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37371.jpgsave_picture_37371.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Chillout Lounge 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37397.jpgsave_picture_37397.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Deep House Hits 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37482.jpgsave_picture_37482.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Deep House Chill 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37486.jpgsave_picture_37486.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Alphaville & Deutsches Filmorchester Babelsberg - A Night at the Philharmonie Be
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37665.jpgsave_picture_37665.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Trance Top 1000 - Ibiza Anthems Mini Mix (2018-2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37857.jpgsave_picture_37857.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Sun Sand & Spirit, Vol. 1 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37866.jpgsave_picture_37866.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Blank & Jones - #WhatWeDoAtNight4 (EXPANDED) (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37867.jpgsave_picture_37867.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Third Party - Live @ Ministry Of Sound London, United Kingdom (2024-10-04) [MP3|
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37873.jpgsave_picture_37873.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Diego Galloso, Noam Garcia, Tibetania - Eastern Sun (Tibetania Records) (2024) [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37875.jpgsave_picture_37875.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Markus Schulz - Global DJ Broadcast World Tour: ADE 2024 in Amsterdam (2024-11-0
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37876.jpgsave_picture_37876.jpg" />
 </div>
 
 

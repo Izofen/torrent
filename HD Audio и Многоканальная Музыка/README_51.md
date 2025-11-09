@@ -6,7 +6,7 @@ Tomoko Aran – Fuyu-Kukan = Floating Space = 浮遊空間 (1983) [FLAC 2.0|48/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64655.jpgsave_picture_64655.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Torben Enevoldsen - Seven (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Instrume
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64686.jpgsave_picture_64686.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Behold the Beloved - Harsh Realities (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64714.jpgsave_picture_64714.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Antlers - Antlers (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64715.jpgsave_picture_64715.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Pulpit Vomit - Hospital Lens (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Powervi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64716.jpgsave_picture_64716.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Buddy Guy - Ain't Done With The Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64720.jpgsave_picture_64720.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Fever Ray - The Year of The Radical Romantics (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64756.jpgsave_picture_64756.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Paramore - All We Know Is Falling (2005) Deluxe Edition, 2025, Fueled By Ramen [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64760.jpgsave_picture_64760.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Night Tempo - Night Tempo Presents The Showa Idol Groove (Rare Groove From 80s) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64770.jpgsave_picture_64770.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Daddy Longlegs & the Swamp Donkeys - Mud Bucket (2025) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64784.jpgsave_picture_64784.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Buddy Reed & Th' Rip It Ups - Tough Enough (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64785.jpgsave_picture_64785.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Zayden Fleet - Lone Star Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64793.jpgsave_picture_64793.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Pharaoh Rumor - Vintage Blues Express (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64799.jpgsave_picture_64799.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Cyfurcat - 1.0.0 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64800.jpgsave_picture_64800.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Koko Taylor - Crown Jewels (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64801.jpgsave_picture_64801.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Lowland Blues - Lowland Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64802.jpgsave_picture_64802.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lightnin' Malcolm - Turnt Up On Loud (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64803.jpgsave_picture_64803.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Roscoe Bowie and the Federal City Swingers - Relationships (2025) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64805.jpgsave_picture_64805.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Enuff Z'Nuff - Xtra Cherries (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64876.jpgsave_picture_64876.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Roulette - Go! (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64916.jpgsave_picture_64916.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Honeymoon Suite - Wake Me Up When The Sun Goes Down (2025) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64935.jpgsave_picture_64935.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Bruce Dickinson - More Balls to Picasso (1994)(2025 Reimagined Version) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64949.jpgsave_picture_64949.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sly & The Family Stone - Live At Winchester Cathedral 1967 (2025) [FLAC 24/96|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64976.jpgsave_picture_64976.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Blood Vulture - Die Close (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom, Goth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64977.jpgsave_picture_64977.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Laura Jane Grace - Adventure Club (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64978.jpgsave_picture_64978.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Jessica Winter - My First Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64980.jpgsave_picture_64980.jpg" />
 </div>
 
 

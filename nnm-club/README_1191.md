@@ -6,7 +6,7 @@ Kaspersky Password Manager 24.3.0.324 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31321.jpgsave_picture_31321.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:595E8D098F291127FB9C3454F1F0E3252753B73D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31322.jpgsave_picture_31322.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E1D5925084FD7A2B56E8EE896607DB8AD797051A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31323.jpgsave_picture_31323.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FC6CB47B05142821256F78FDDCE5749E06168AD1
 >>Латиноамериканские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31324.jpgsave_picture_31324.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F278E8A4BB1F0D343A5CBE4BB4F96435F210F5DD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31325.jpgsave_picture_31325.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:BF011F066B09D354EBC157F46539535201F58DB7
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31326.jpgsave_picture_31326.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:3A1B69A08A4A0D2F1369F6CCA6CBC6E928F2081F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31327.jpgsave_picture_31327.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31328.jpgsave_picture_31328.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:17FA3EEA85D902E9043790E1744BE7A584E1BAD9
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31329.jpgsave_picture_31329.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:D5A0B83A2FDC6CABF5EC8BB07180C5818E00E016
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31330.jpgsave_picture_31330.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:3B4C4AB23A2F0E708CC14ACAFA22D006CA305182
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31331.jpgsave_picture_31331.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:C07544958A6BE5ABC5E50F20B84BF85603D50EF6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31332.jpgsave_picture_31332.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:BC813B3F6661C1F43C56468084E4B924CC4295FE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31333.jpgsave_picture_31333.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:0D43A1579805181F25C2DDBDB9FF5538FFC84AB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31334.jpgsave_picture_31334.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:FCE9CCC29F168AFC68D91A5A6CB4C8CD05837515
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31335.jpgsave_picture_31335.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Endzone 2 (2024) [Ru/Multi] (0.8.9140.27121) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31336.jpgsave_picture_31336.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ NG: Суперсооружения древности / Ancient Megastructures (
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31337.jpgsave_picture_31337.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Telegram передал данные 2253 пользователей право�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31338.jpgsave_picture_31338.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Deworker Pro, Елисеев Дмитрий | Практики разделен�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31339.jpgsave_picture_31339.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:CABE5C0A844D8479F0A4D46561FD355C694BB89F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31340.jpgsave_picture_31340.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ TankHead (2024) [En] (1.0.69881) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31341.jpgsave_picture_31341.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Happy "НЮ" Year (2007) TVRip [H.264/1080p] [Handmade correction AI]
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31342.jpgsave_picture_31342.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Millennia (2024) [Ru/Multi] (1.0.23641.F/dlc) Repack Let'sРlay [Premium Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31343.jpgsave_picture_31343.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Total Commander 11.50 Extended 25.1 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31344.jpgsave_picture_31344.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:F3E3895FC87CEFCA9F7C1FD36B8838102A04E43E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31345.jpgsave_picture_31345.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:F3E3895FC87CEFCA9F7C1FD36B8838102A04E43E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31346.jpgsave_picture_31346.jpg" />
 </div>
 
 

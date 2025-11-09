@@ -6,7 +6,7 @@ The Purple Gang - Strikes (1968) Reissue, 1998, Essential [MP3|320 Kbps] <Folk R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142742.jpgsave_picture_142742.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:241984B4ED415CEC2C61CFA6CBF0A5EDA7C8B8EA
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142744.jpgsave_picture_142744.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ DirEqual 3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142745.jpgsave_picture_142745.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Lost Planet 3 (2013) [Ru/Multi] (1.0.10246/8dlc) SteamRip @nonymous
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142746.jpgsave_picture_142746.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:4B3063EC65CBFE854A315BD60AD4DF6991620318
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142747.jpgsave_picture_142747.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ King’s Man: Начало / The King's Man (2021) CAMRip [H.264/720p-LQ] [MVO] 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142748.jpgsave_picture_142748.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Kingsman — организация супершпионов, действующ
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142749.jpgsave_picture_142749.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Kingsman — организация супершпионов, действующ
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142751.jpgsave_picture_142751.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Legenda Aurea - Ellipsis (2009) [APE|Lossless|image + .cue] <Symphonic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142752.jpgsave_picture_142752.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:2C62B0D98709C4E2DA0296682626E84EABDAD819
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142754.jpgsave_picture_142754.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Gyakuten Sekai no Denchi Shoujo | Rumble Garanndoll | Батарейка из о
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142756.jpgsave_picture_142756.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:0890165B16ECF103AFC54A05E9AA140EBF4FFB6F
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142757.jpgsave_picture_142757.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:718425353E0E053F57BFB25F3D653663BC93E8BE
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142758.jpgsave_picture_142758.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:8DC4634AA9BFF2CBBF86A6593BACD425D32846C6
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142759.jpgsave_picture_142759.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ USB Safely Remove 6.2.1.1284 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142761.jpgsave_picture_142761.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Volume2 1.1.5.361 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142763.jpgsave_picture_142763.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:97968C78694F6CA74F0C3307EA12E29B9A587041
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142764.jpgsave_picture_142764.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Yusef Lateef - The Diverse Yusef Lateef (1970) 2006, Rhino [WavPack|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142765.jpgsave_picture_142765.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:FEE7AED19455F25F8C5F5031E17D7BA9B2D0787C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142767.jpgsave_picture_142767.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:5200129B7AB00BAD899AFDA46EE86439B971C3EF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142768.jpgsave_picture_142768.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:3715013B1AE83D073F6451B0A585AEDE0F3B0344
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142769.jpgsave_picture_142769.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Finding Around Blessing (Energy Tech Trance) 012 (2017) [MP3|320 Kbps] <Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142770.jpgsave_picture_142770.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:D16E8AA5CDA3B539C1884C7A64A749BDB3BC6213
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142771.jpgsave_picture_142771.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ BELOFF [dp] 2019.12.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142773.jpgsave_picture_142773.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:F069F68EEDE3F1E15A44DD061709996D9A641A4E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142775.jpgsave_picture_142775.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:1C04B30D11D76A9EF8C9272E070C95B968205C2A
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142777.jpgsave_picture_142777.jpg" />
 </div>
 
 

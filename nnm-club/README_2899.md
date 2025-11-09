@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85228.jpgsave_picture_85228.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85230.jpgsave_picture_85230.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - DJ Клуб (Vol. 1-7) (1997 - 1999) [MP3|320 кб/с]<Club/House/Trance/Pr
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85231.jpgsave_picture_85231.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Microsoft Windows Server 2008 SP2 (x64-x86) VOLUME [ENGLISH]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85232.jpgsave_picture_85232.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Sysadmins Flash Prof Edition 1.1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85235.jpgsave_picture_85235.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Windows 7 Максимальная SP1 x64 DVD WPI (2012) PC 7 [РУССКИЙ]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85236.jpgsave_picture_85236.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Windows 7 Максимальная SP1 x64 DVD WPI (2012) PC 7 [РУССКИЙ]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85237.jpgsave_picture_85237.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Rayman Origins [Ru] (RePack) 2012 | shidow
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85238.jpgsave_picture_85238.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Windows 7 (x64/x86) Ultimate UralSOFT 3.8.12 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85239.jpgsave_picture_85239.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Windows 7 (x64/x86) Ultimate UralSOFT 3.8.12 [Русский]
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85240.jpgsave_picture_85240.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Zолушка (2012) DVDRip
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85241.jpgsave_picture_85241.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:28BC85C1AFF19F7E8028A90F717E108086AC9A06
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85242.jpgsave_picture_85242.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:9551847A16F10606376E66E705512A88D71281FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85248.jpgsave_picture_85248.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:9551847A16F10606376E66E705512A88D71281FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85249.jpgsave_picture_85249.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:9551847A16F10606376E66E705512A88D71281FD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85250.jpgsave_picture_85250.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:3C6A0BE00CB01FA7BCB7A219FD961CC9BCA87610
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85252.jpgsave_picture_85252.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Janiva Magness - 2 Альбома (2010-2012) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85253.jpgsave_picture_85253.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Janiva Magness - 2 Альбома (2010-2012) [APE|Lossless]<Blues>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85254.jpgsave_picture_85254.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:048C10426639A1297985C08CF2F916815BD8A8EB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85255.jpgsave_picture_85255.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:9C44995C6EF467F8F1F8319BE1F9220292DD0741
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85256.jpgsave_picture_85256.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:382EECF1A64497A07C9F45C07C146CA8ED959306
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85257.jpgsave_picture_85257.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:C981C30AA3E151DEFAE6901727A076772004EB49
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85258.jpgsave_picture_85258.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:FF1DF0D82FF7FADC609DD04E312AE38F602706B6
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85259.jpgsave_picture_85259.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Tacere - 2 альбома (2006 - 2007) [APE|Lossless]<Power Metal,Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85260.jpgsave_picture_85260.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Tacere - разноплановая symphonic metal группа из Финля
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85262.jpgsave_picture_85262.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:9E304A3A760A2FD04EA2A9BA07DA4F05487174EA
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85266.jpgsave_picture_85266.jpg" />
 </div>
 
 

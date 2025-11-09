@@ -6,7 +6,7 @@ Landlord's Super (2023) [Multi] (1.0.09) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45530.jpgsave_picture_45530.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45644.jpgsave_picture_45644.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.1.2) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45656.jpgsave_picture_45656.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Cavalry Girls (2023) [Multi] (1.1.1715/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45695.jpgsave_picture_45695.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Rise Eterna War (2024) [Multi] (20240813 2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45703.jpgsave_picture_45703.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Elemental Exiles / Странники стихий (2024) [Ru/Multi] (1.0) Scene
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45720.jpgsave_picture_45720.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Yohane the Parhelion - NUMAZU in the MIRAGE - (2024) [Multi] (1.0.14/dlc) Scene 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45725.jpgsave_picture_45725.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Hellcard (2024) [Ru/Multi] (1.1.240821/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45746.jpgsave_picture_45746.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Trinity Trigger (2024) [Multi] (1.0.5/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45895.jpgsave_picture_45895.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Yog-Sothoth’s Yard (2023) [Multi] (1.0.11/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45915.jpgsave_picture_45915.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ For The King II (2023) [Ru/Multi] (1.2.15/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45949.jpgsave_picture_45949.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Old School RPG (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46030.jpgsave_picture_46030.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ In Woods (2022) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46132.jpgsave_picture_46132.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Hero's Adventure: Road to Passion (2023) [Multi] (1.2.0813b65/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46216.jpgsave_picture_46216.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Shoulders of Giants: Ultimate (2024) [Multi] (1.9.1) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46343.jpgsave_picture_46343.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:62D36B31FE1DC7670CF053E5051F77EB590F1B5E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46432.jpgsave_picture_46432.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Last Case of Benedict Fox (2023) [Multi] (1.40.2.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46549.jpgsave_picture_46549.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Tale of Immortal (2021) [Multi] (1.1.103.259/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46731.jpgsave_picture_46731.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Old School RPG (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46753.jpgsave_picture_46753.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ One More Night (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46892.jpgsave_picture_46892.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Atlas Fallen (2023) [Ru/Multi] (1.118888/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46981.jpgsave_picture_46981.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Artifact Seeker (2024) [Ru/Multi] (1.2.8/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46990.jpgsave_picture_46990.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Space Prison (2024) [Ru/Multi] (1.0.6/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47000.jpgsave_picture_47000.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47062.jpgsave_picture_47062.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Deathbound (2024) [Ru/Multi] (1.1.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47070.jpgsave_picture_47070.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Thaumaturge (2024) [Ru/Multi] (73.424/dlc) Repack Decepticon [Digital Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47087.jpgsave_picture_47087.jpg" />
 </div>
 
 

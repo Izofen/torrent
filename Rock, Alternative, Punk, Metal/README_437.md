@@ -6,7 +6,7 @@ Unbounded Terror - Echoes of Despair (2022) [Mp3|320 kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238750.jpgsave_picture_238750.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rival Sons - Darkfighter (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238758.jpgsave_picture_238758.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Theriomorph - Diabolical Bloodswords (2022) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238760.jpgsave_picture_238760.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Stahlkeller - Gefangen im Wahn (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238768.jpgsave_picture_238768.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Stella Rose (Gahan) - Eye Of Glass (2023) [MP3|320 Kbps] <Alternative, Post Punk
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238779.jpgsave_picture_238779.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lost Sacrament - Praesidio in Animo (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238783.jpgsave_picture_238783.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Goatsmoker - E​.​O​.​T​.​A. (2022) [FLAC|Lossless|WEB-DL|tracks] <St
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238794.jpgsave_picture_238794.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Myosotis - The Sky Between Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238801.jpgsave_picture_238801.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Blackgold - Blackgold (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu-Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238807.jpgsave_picture_238807.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Whirlingrey - Cursed by God (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238816.jpgsave_picture_238816.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Rise To Fall - The Fifth Dimension (2023) [FLAC 2.0|44/24|WEB-DL|tracks] <Melodi
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238820.jpgsave_picture_238820.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Warspite - Confrontation Course (2006) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238823.jpgsave_picture_238823.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Fires In the Distance - Air Not Meant for Us (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238826.jpgsave_picture_238826.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Eternity's End - Embers Of War (2021) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238833.jpgsave_picture_238833.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Sightless Era - Revelation (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238835.jpgsave_picture_238835.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Resistor - The 5th Season (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238840.jpgsave_picture_238840.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Excalion - Once upon a Time (2023) [FLAC|Lossless|image + .cue] <Melodic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238850.jpgsave_picture_238850.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Inluzt - Echoes Of Revolution (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238851.jpgsave_picture_238851.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Art Nation - Inception (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238857.jpgsave_picture_238857.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Ghosther - Immersion (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Metal, Modern Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238859.jpgsave_picture_238859.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ James - Be Opened By The Wonderful (2023) 2CD, 40 Years Orchestrated [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238866.jpgsave_picture_238866.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Planetariet - Deluxe (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238875.jpgsave_picture_238875.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Vortex - The Future Remains In Oblivion (2023) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238879.jpgsave_picture_238879.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ The Flower Kings - Adam & Eve (2004) InsideOutMusic, Remaster,2023 [FLAC 24/96|L
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238882.jpgsave_picture_238882.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Tokyo - Seven (2023) [FLAC 2.0|24/48|WEB-DL|tracks] <Rock, New Wave>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238888.jpgsave_picture_238888.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Amken - Passive Aggression (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238890.jpgsave_picture_238890.jpg" />
 </div>
 
 

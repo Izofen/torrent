@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89607.jpgsave_picture_89607.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Days of the Trumpet Call - 5 albums (1999-2010) [FLAC/APE|Lossless] <Neoclas
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89613.jpgsave_picture_89613.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:ABEB88808A9B304BD3E85BA8FC3B44FA9AF956F8
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89615.jpgsave_picture_89615.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ VA - Свежий Хит На Русском Радио (2012) [MP3|256 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89616.jpgsave_picture_89616.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:FED7CEB29C4112ACC9DDBD921E6F8A64C404C987
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89619.jpgsave_picture_89619.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ magnet:?xt=urn:btih:F844F3EB181506AE76190E51DB65E40F28F9E708
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89620.jpgsave_picture_89620.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:F844F3EB181506AE76190E51DB65E40F28F9E708
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89621.jpgsave_picture_89621.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:F844F3EB181506AE76190E51DB65E40F28F9E708
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89623.jpgsave_picture_89623.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:5228BEC0F1E78F1B1D235F817397FEFD5D03DDC0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89628.jpgsave_picture_89628.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:3C70C7F52566E497FF7F6EFF399401991311F12C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89630.jpgsave_picture_89630.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Renaud Garcia-Fons - Solo: The Marcevol Concer (2012) [FLAC|Lossless]<Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89632.jpgsave_picture_89632.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ BBC Radio 1 - Essential Mix (1993) [MP3|128-192 кб/с]<House, Electro-House, F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89634.jpgsave_picture_89634.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:4731A0CC6BF9360E39840732CCEA28C4D39F7BCA
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89636.jpgsave_picture_89636.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ VA - Инструментальная музыка (2012) vol. № 13 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89640.jpgsave_picture_89640.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:9617D9A6EE372B20962C6F2C8952C53CE5CB3C25
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89648.jpgsave_picture_89648.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:7420459208DF1D329B75936752EBA5AC4225F34F
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89657.jpgsave_picture_89657.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:0194A5157A6B248B60E9A38E449F26EE43028517
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89658.jpgsave_picture_89658.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:0194A5157A6B248B60E9A38E449F26EE43028517
 >>Темы и Изображения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89663.jpgsave_picture_89663.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:0194A5157A6B248B60E9A38E449F26EE43028517
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89667.jpgsave_picture_89667.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:433CF129978D907838082E4E75EBD52224F2F45F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89669.jpgsave_picture_89669.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:433CF129978D907838082E4E75EBD52224F2F45F
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89670.jpgsave_picture_89670.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Everimaging Great Photo 1.0.0 [Английский + русификатор]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89673.jpgsave_picture_89673.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Everimaging Great Photo— новый универсальный фотоком�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89675.jpgsave_picture_89675.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Everimaging Great Photo— новый универсальный фотоком�
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89676.jpgsave_picture_89676.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:357165AF25DCBE276774D3FA592E2B1A70FBF82F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89683.jpgsave_picture_89683.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ magnet:?xt=urn:btih:357165AF25DCBE276774D3FA592E2B1A70FBF82F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89684.jpgsave_picture_89684.jpg" />
 </div>
 
 

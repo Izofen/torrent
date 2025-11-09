@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35819.jpgsave_picture_35819.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A00A1A68B9AF41236038710AB8A827FADDCD37F2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35820.jpgsave_picture_35820.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:53EE6C77D6AA4079424D98DFF18847F0A4F9B6C1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35821.jpgsave_picture_35821.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Rev Theory - Salvation Nowhere (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35822.jpgsave_picture_35822.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Dance the Night Away, Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35823.jpgsave_picture_35823.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Delico's Nursery | Детская Делико [2024, TV, 13 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35824.jpgsave_picture_35824.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:28DBE03D6E4581D442A2169B943A428C0BD4301D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35825.jpgsave_picture_35825.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:62DD5DABA128469042DF52CF79CFBB831D9D1402
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35826.jpgsave_picture_35826.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ David Rose - In Your Embrace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35827.jpgsave_picture_35827.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:8FF75F42D7A2A048A046F84CBF0A422FDB9D07A0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35828.jpgsave_picture_35828.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:0AD261808CFE3A0B8807B43BADA50FCFEB95A5E9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35829.jpgsave_picture_35829.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Dammerland - Dammerland (2024) [FLAC|Lossless|image + .cue] <Folk Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35830.jpgsave_picture_35830.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Herencias - Spirit Songs (2008) [MP3|320 Kbps] <Native American, New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35831.jpgsave_picture_35831.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ PowerDirector – Video Editor v14.6.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35832.jpgsave_picture_35832.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Ginger Evil - Hands Move to Midnight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35833.jpgsave_picture_35833.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Dance the Night Away, Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35834.jpgsave_picture_35834.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:A13EC24DAE00F32CF99E7AC37BD10BABBD69667E
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35835.jpgsave_picture_35835.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ We Are The Catalyst - Friction (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35836.jpgsave_picture_35836.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:C016BE9D28F2D6F620B25ED9A5E78F05BDB721F7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35837.jpgsave_picture_35837.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:B797BC73E309E4F8913A853D86F72B1997F84AAE
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35838.jpgsave_picture_35838.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Benjamin Croft - We Are Here to Help (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35839.jpgsave_picture_35839.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:60114C3E90476F1C152C1D074F28FE54E09F2032
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35840.jpgsave_picture_35840.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Keep of Kalessin - Studio Albums (9 releases) (1997-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35841.jpgsave_picture_35841.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:238CFB97E998C7E3439221401141B8645FE8AAAD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35842.jpgsave_picture_35842.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:69F527E085FD68080F6E08C347A13AF0AE5253FE
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35843.jpgsave_picture_35843.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:FAE390AF42CAD573BBF041C29DBF1FC2F40E1F13
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35844.jpgsave_picture_35844.jpg" />
 </div>
 
 

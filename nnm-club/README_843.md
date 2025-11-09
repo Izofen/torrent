@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22257.jpgsave_picture_22257.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Elton John, Brandi Carlile - Who Believes In Angels? (2025) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22258.jpgsave_picture_22258.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:4F1CC228D413A83354BACF1984D9CE42BC33528A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22259.jpgsave_picture_22259.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:DA1BE853A2E5573C2E131786761305E83FE6C75A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22260.jpgsave_picture_22260.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:2E448928626678D9147827F6C9B2F08449031954
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22261.jpgsave_picture_22261.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Haddaway - The Album (1993) Remastered, 2025, Craft Recordings [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22262.jpgsave_picture_22262.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ StaxRip 2.46.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22263.jpgsave_picture_22263.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - 40 Jahre Disco - Disco Glitter (2011) 2 CD [OGG Vorbis|480 Kbps] <Pop, Hard
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22264.jpgsave_picture_22264.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:0A95F3A574108D912C81125320399978949FEE31
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22265.jpgsave_picture_22265.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ L.A. Guns - Leopard Skin (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22266.jpgsave_picture_22266.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ FolderSizes 9.7.515 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22267.jpgsave_picture_22267.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Primal Scream - Come Ahead: The Remixes Vol 1 (2024) Vocals, 2025, BMG[FLAC 24/9
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22268.jpgsave_picture_22268.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:F769267CE3072A7EACDEA4FC8C5AA658D11D87F7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22269.jpgsave_picture_22269.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ KineMaster - Video Editor & Maker v7.6.6.34564.GP Mod by Shadow_Patcher [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22270.jpgsave_picture_22270.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:7C3720403F8E571EF55505F5E6399B77EA7AED03
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22271.jpgsave_picture_22271.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:DD450E7D373E69C6D2A435D4029755E143C88A4E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22272.jpgsave_picture_22272.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:2CD68E69B23BF2506B13D2796230816898B0BA40
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22273.jpgsave_picture_22273.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:E5CA35E9801702EF3F13D57DB557C2E99A5B8464
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22274.jpgsave_picture_22274.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ MediaHuman YouTube Downloader 3.9.9.99 (0604) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22275.jpgsave_picture_22275.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Extreme Picture Finder 3.67.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22276.jpgsave_picture_22276.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Nageki no Bourei wa Intai Shitai | Let This Grieving Soul Retire! | Плачущ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22277.jpgsave_picture_22277.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:F510045FC8C03F98AEE4D9127A7167717CF49A8C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22278.jpgsave_picture_22278.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - Covers Rock Bangers (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22279.jpgsave_picture_22279.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:CCF9CC2E8E2A691948737112FB881EAE726D7177
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22280.jpgsave_picture_22280.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Allegaeon - Studio Albums (8 releases) (2008-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22281.jpgsave_picture_22281.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ O&O DiskImage Professional 20.2 Build 358 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22282.jpgsave_picture_22282.jpg" />
 </div>
 
 

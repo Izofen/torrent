@@ -6,7 +6,7 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Клеватесс: К�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2091.jpgsave_picture_2091.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:760468B0D0B7C3BE3A3B026267063E26EEF2322D
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2092.jpgsave_picture_2092.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.0/dlc) Repack Decepticon [Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2093.jpgsave_picture_2093.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:69A2B769C277E9BC3DA9620B07AC7E45A8AC63C4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2094.jpgsave_picture_2094.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:611DD7C1AB498BFEB50647B85E7857AFA5783BBA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2095.jpgsave_picture_2095.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Sakamoto Days (2025) | Дни Сакамото [Часть 2] [2025, TV, 11 эп
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2096.jpgsave_picture_2096.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Medieval Dynasty (2021) [Ru/Multi] (2.4.1.1/dlc) Repack Let'sРlay [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2097.jpgsave_picture_2097.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:0D17A19B3E4248630C23B2BCE5758F92D0AA89A5
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2098.jpgsave_picture_2098.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Ravenswatch (2023) [Ru/Multi] (1.03.01.00.26879/dlc) Repack FitGirl [Supporter E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2099.jpgsave_picture_2099.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ House Builder (2021) [Ru/Multi] (Build 15-09-2025/dlc) Repack FitGirl [Pack and 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2100.jpgsave_picture_2100.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Rutube объяснил: пиратский контент на хостинг �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2101.jpgsave_picture_2101.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2102.jpgsave_picture_2102.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:68274B244807BF8C76402717191D87A722DB9386
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2103.jpgsave_picture_2103.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Firefighting Simulator Ignite (2025) [Ru/Multi] (1.0005.28457.87919/dlc) Repack 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2104.jpgsave_picture_2104.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:9ACABC378E91049B41E4AF8D0FF37DC59F50869B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2105.jpgsave_picture_2105.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:7200F0E1956B27D89E279F14AEAB6AA2AD9CE02C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2106.jpgsave_picture_2106.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Lost Skies (2025) [Ru/Multi] (1.0.79) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2107.jpgsave_picture_2107.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:3DDB9D63E58CABAAD3B542CE764700BBD57482D2
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2108.jpgsave_picture_2108.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:5C2F5C78837C92B17AA25AAACBB6B56EC62C3B7A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2109.jpgsave_picture_2109.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Paradise Lost - Studio Albums (18 releases) (1990-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2110.jpgsave_picture_2110.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ The Sims 4 (2014) [Ru/Multi] (1.118.242.1030/dlc) Scene Rune
 >>62
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2111.jpgsave_picture_2111.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ No Man’s Sky (2016) [Ru/Multi] (6.05.1/dlc) Repack SE7EN
 >>42
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2112.jpgsave_picture_2112.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:D5520D102BEF650DE7D345BCA01DC1505D813DE9
 >>23
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2113.jpgsave_picture_2113.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Parkitect (2018) [Ru/Multi] (1.11f3/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2114.jpgsave_picture_2114.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:89BB04ED2E84AF9132CC67A58F7A9ECF7DF29D5C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2115.jpgsave_picture_2115.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (10.2.0.1/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2116.jpgsave_picture_2116.jpg" />
 </div>
 
 

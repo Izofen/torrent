@@ -6,7 +6,7 @@ Relaxing Instrumental Music - French Breakfast Music (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109281.jpgsave_picture_109281.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B3E755EB7BB557D94EEEEA405CB952BAAA23D6CC
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109282.jpgsave_picture_109282.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Crooked Ways - No Design (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109283.jpgsave_picture_109283.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Relax Time Zone, Jazz Acústico - Slow Day with Jazz (Instrumental Relaxing Musi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109284.jpgsave_picture_109284.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Electronica Confessions, Vol. 4 (2014) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109285.jpgsave_picture_109285.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:F1E043357CD8EEF904042818036E96745CDD9875
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109286.jpgsave_picture_109286.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Rapsody - Please Don't Cry (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109287.jpgsave_picture_109287.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Baran Yildiz - Bridging Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Wo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109288.jpgsave_picture_109288.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:BCB7F7F61080A997F08C44C970459B0ECC6E408D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109289.jpgsave_picture_109289.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:88A52B4322CE67F13815DFC330E51AA5248322B6
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109290.jpgsave_picture_109290.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ YouCut - Video Editor v1.623.1188 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109291.jpgsave_picture_109291.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Slash - Orgy of the Damned (2024) [FLAC|Lossless|image + .cue] <Blues Rock, Hard
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109292.jpgsave_picture_109292.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Opera GX 109.0.5097.93 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109293.jpgsave_picture_109293.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Jazz Saxophone, Romantic Moods Academy - Seductive Sax: Set the Mood, Romantic J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109294.jpgsave_picture_109294.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Pig - Red Room (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Industrial
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109295.jpgsave_picture_109295.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Brave Browser 1.66.110 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109296.jpgsave_picture_109296.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ VA - Шансон премьера 2023 ноябрь (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109297.jpgsave_picture_109297.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:F189B580AF790CA36EB2B9B2C152D59A56B952B6
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109298.jpgsave_picture_109298.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Black Hole Trance Music 05-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109299.jpgsave_picture_109299.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:9D6723C14D5383429C9BF5D6EA20F9F1DF77FDB1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109300.jpgsave_picture_109300.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Armin van Buuren - A State Of Trance 1173 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109301.jpgsave_picture_109301.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - D.Trance 106 (incl. D-Techno 61) (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109302.jpgsave_picture_109302.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Virginia Mayhew Septet - A Simple Thank You (2007) Renma Recordings [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109303.jpgsave_picture_109303.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:FA8A8C80779354919D208A3A0C739B7BFADB9C5E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109304.jpgsave_picture_109304.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Ayreon - 01011001 - Live Beneath The Waves (2024) Live [FLAC|Lossless|WEB-DL|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109305.jpgsave_picture_109305.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ The Mavericks - Moon & Stars (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109306.jpgsave_picture_109306.jpg" />
 </div>
 
 

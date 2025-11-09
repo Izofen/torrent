@@ -6,7 +6,7 @@ Cosmic Gate - MOSAIIK Chapter One (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250303.jpgsave_picture_250303.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:272294E7E63244A510D47AA6EF0C39DABF3D96F6
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250324.jpgsave_picture_250324.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Earthling - Radar (1995) 30th Anniversary Edition, 2025, Chrysalis Records Limit
 >>Downtempo, Ambient (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250381.jpgsave_picture_250381.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Diary of Dreams - Dead End Dreams (Chapter 1) (2025) [FLAC 24/44.1|Lossless|WEB-
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250425.jpgsave_picture_250425.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - 25 Years Of Anjuna Mixed By Marsh (2025) [MP3|320 Kbps] <Progressive House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250455.jpgsave_picture_250455.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Anjuna25 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250722.jpgsave_picture_250722.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ AM 1984 - Star Horizon (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250953.jpgsave_picture_250953.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - EDC Orlando 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250957.jpgsave_picture_250957.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ AM 1984 - Best Of Remixes & Vocals (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250962.jpgsave_picture_250962.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Workout Remixes (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251252.jpgsave_picture_251252.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Skrillex & Damian Marley - Make it Bun Dem (Digital Single) (2012) [FLAC|Lossles
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251320.jpgsave_picture_251320.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - 5 Years Of Noir Music (2012) [MP3|320 кб/с]<Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251641.jpgsave_picture_251641.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Sherazade - La Loungerie (2006) [MP3|320 кб/с]<Ethno-Lounge, New age>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251644.jpgsave_picture_251644.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - Armin van Buuren - A State Of Trance 1250 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251662.jpgsave_picture_251662.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ VA - Ori Uplift - Uplifting Only Episode 665 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251665.jpgsave_picture_251665.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - Live @ Amsterdam Music Festival, Johan Cruijff ArenA, ADE, Netherlands (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251670.jpgsave_picture_251670.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ MEDUZA - Live @ Meduza³ (Futur Stage, Kappa FuturFestival) Turin, Italy (2025-0
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251898.jpgsave_picture_251898.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA - Gentle Morning: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251910.jpgsave_picture_251910.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Redux Selection, Vol. 11 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252295.jpgsave_picture_252295.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Perturbator - Age of Aquarius (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Darkwa
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252327.jpgsave_picture_252327.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Coolutils Total PDF Converter 5.1.89 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149055.jpgsave_picture_149055.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4EDA027BEBE99DAEE625DB26B9239CACE87A4215
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149056.jpgsave_picture_149056.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:12AC3A36A1352EFB0A60EF111BA18BA83B19EFA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149057.jpgsave_picture_149057.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Vince Clarke - Songs of Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149058.jpgsave_picture_149058.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:11612E28FFD7F3A7E165484D2BE7F73352B56A5B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149061.jpgsave_picture_149061.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:378F938BDCAC81B11970C37E2562421BFFE2708B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149062.jpgsave_picture_149062.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:E4230D98B3AC06D7A1B06270F83DD4C8FA0CBAF9
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149063.jpgsave_picture_149063.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Worms Revolution (2012) [Ru/En] (1.0.140/dlc) Repack Mizantrop1337 [Gold Edition
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149064.jpgsave_picture_149064.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:D7E3750F373465ED6461DC35B41CBFD94AB56A8B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149066.jpgsave_picture_149066.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:6000BBD440C2E3E6622C118E0DF4F111C33D8C49
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149067.jpgsave_picture_149067.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:1070AD282740FAC9A3FA13FA8A606338F741274B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149068.jpgsave_picture_149068.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:B42B8CBD14337A5C8E8F4EB43264508E02AEE6AB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149069.jpgsave_picture_149069.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Thomas Anders & Florian Silbereisen - Alles funkelt! Alles glitzert! (2023) EP [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149071.jpgsave_picture_149071.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:07CB357959481E9C5D3FE982301BB45BDD26232D
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149072.jpgsave_picture_149072.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:A358BC88FF8C5B57D0E7C42098DD56F56D1AA41B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149073.jpgsave_picture_149073.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:A76A7A44509C60422923ED378B7E50A6D77B9B9F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149074.jpgsave_picture_149074.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:726397DA1801C2A3D638D82B2D4587DEF10886BB
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149076.jpgsave_picture_149076.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ The Jack - Tribute to ACDC (2023) Live [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149078.jpgsave_picture_149078.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:1047375741803CA4DA0FF969A960D3484857DBAF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149079.jpgsave_picture_149079.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Memoria (2013) [Ru/En] (1.2.3.0341) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149081.jpgsave_picture_149081.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:7D2323082EBCC0E25222B909DAC602591291D279
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149082.jpgsave_picture_149082.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Learn Squared, Steve Wang | Concept Art Hacks (2019) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149083.jpgsave_picture_149083.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:53EF0C9E9623F38CD015AAEA3B29F04A8D06B68C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149084.jpgsave_picture_149084.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ David Hallyday - Compilation (2023) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149086.jpgsave_picture_149086.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ EZ CD Audio Converter 1.0.2 Ultimate [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149087.jpgsave_picture_149087.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ V.A. - Buddha Bar by Christos Fourkis & Ravin (2023) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149088.jpgsave_picture_149088.jpg" />
 </div>
 
 

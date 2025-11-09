@@ -6,7 +6,7 @@ Firefox Browser ESR 115.12.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108085.jpgsave_picture_108085.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Material Pods: батарея AirPods v6.60 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108086.jpgsave_picture_108086.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:62989F55BC9A373D69C2C6748068C83F19C21CE4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108087.jpgsave_picture_108087.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Google Chrome 126.0.6478.57 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108088.jpgsave_picture_108088.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ The Alan Parsons Project - Eye In The Sky (Sessions) (1982) Reissue, Remastered,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108089.jpgsave_picture_108089.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Pencil Photo Sketch : Drawing v2.0.83 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108090.jpgsave_picture_108090.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Peter Wilson - Touch (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108091.jpgsave_picture_108091.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:C34A26257AD7443BD35BF2B80C72CC090E01919F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108092.jpgsave_picture_108092.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Margo Guryan - Words And Music (3CD Boxset) (2024) [FLAC 16,24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108093.jpgsave_picture_108093.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Lorelei K - Gucci Doom (2023) Deluxe Edition, 2024, Idol Records [FLAC 16,24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108094.jpgsave_picture_108094.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Hellway Train - Borderline (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108095.jpgsave_picture_108095.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Barry Manilow - Barry Live In Britain (Live at The Royal Albert Hall) (1982) Rem
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108096.jpgsave_picture_108096.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Tony Hadley - The Mood I'm In (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108097.jpgsave_picture_108097.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Liar Thief Bandit - ICON (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108098.jpgsave_picture_108098.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Remedy - Pleasure Beats the Pain (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108099.jpgsave_picture_108099.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Gone til Winter - The First Season (2011) Compilation [MP3|320 Kbps] <Gothic Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108100.jpgsave_picture_108100.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Big Head Todd and The Monsters - Her Way Out (2024) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108101.jpgsave_picture_108101.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Gone til Winter - Gone til Winter (2009) Demo [MP3|320 Kbps] <Gothic Metal, Rock
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108102.jpgsave_picture_108102.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Blue Grooves Trio - Afternoon Cafe Jazz BGM (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108103.jpgsave_picture_108103.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Frunkyman - The Frunk Is Real (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108104.jpgsave_picture_108104.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Scott Gilman - So Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108105.jpgsave_picture_108105.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Collateral - Should've Known Better (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108106.jpgsave_picture_108106.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Freak Kitchen - Everyone Gets Bloody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108107.jpgsave_picture_108107.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Strange Fruit - Once So High (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108108.jpgsave_picture_108108.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Bob Recchione - Bellissima (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108109.jpgsave_picture_108109.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Mighty Joe Belson - The Doodle Cats: 2020 Blues (2024) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108110.jpgsave_picture_108110.jpg" />
 </div>
 
 

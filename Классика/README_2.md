@@ -6,7 +6,7 @@ Andrea Bocelli - Sogno (1999) [FLAC|Lossless|tracks + .cue] <Pop, Vocal>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66667.jpgsave_picture_66667.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Музыка Семейства Штраусов. На Прекрасном
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67053.jpgsave_picture_67053.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Franz Schubert – Night Wanderer (1997) [FLAC|Lossless|tracks + .cue] <Cla
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67310.jpgsave_picture_67310.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Beautiful Classical Instrumental Music (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68256.jpgsave_picture_68256.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:512B19D87848EC4B922969961870CF8AA5D1246B
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68295.jpgsave_picture_68295.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Car Rides: Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69883.jpgsave_picture_69883.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Best Classical Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69997.jpgsave_picture_69997.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Classical Music Brilliance (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71211.jpgsave_picture_71211.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Jon Schmidt & Steven Sharp Nelson (The Piano Guys) - Hits Volume I: Limited Foun
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77225.jpgsave_picture_77225.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Ludwig Van Beethoven - Missa Solemnis (1990) [FLAC|Lossless]<камерная>
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78761.jpgsave_picture_78761.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Carreras, Domingo, Pavarotti - The Best of The 3 Tenors (2002) [FLAC|Lossless]<C
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80970.jpgsave_picture_80970.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - REQUIEM (2005) [MP3|320 кб/с]<Классическая музыка>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81452.jpgsave_picture_81452.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:D4F911E1ABFF38DC59A08092B2C256D1984EF895
 >>Вокал
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81872.jpgsave_picture_81872.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Jon Schmidt & Steven Sharp Nelson - The PianoGuys: Hits Volume I (2012) [MP3|320
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82113.jpgsave_picture_82113.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:227A174307500D1D72FDBC2CC982FC589DA35F3D
 >>Вокал
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82243.jpgsave_picture_82243.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ David Garrett - Virtuoso (2007) [FLAC|Lossless]<Classical Crossover, Instrumenta
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82259.jpgsave_picture_82259.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Roberto Cacciapaglia - 3 альбома (2007-2010) [FLAC|Lossless]<New Age, Rel
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82749.jpgsave_picture_82749.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ W.A. Mozart - Early Symphonies 1,2: The English Concert (1879-1882) on authentic
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83455.jpgsave_picture_83455.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Mozart - Concertos For Flute and Harp, KV 299: The Amsterdam baroque orchestra (
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83469.jpgsave_picture_83469.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:4367E0A081D69C2481E8E3B189F52F668CBF1755
 >>Вокал
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84558.jpgsave_picture_84558.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:F0F57598DD44C9B415894A799773BDF01953D7A4
 >>Вокал
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84574.jpgsave_picture_84574.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:1E8F541A39148613CE9E3DAAC2B5B054E397DC07
 >>Камерная
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84589.jpgsave_picture_84589.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Wolfgang Amadeus Mozart-Serenade No.13 in G major KV525; Divertimento KV136 & KV
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84696.jpgsave_picture_84696.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Wolfgang Amadeus Mozart - Requiem in D minor, K 626: Munchner Philharmoniker (17
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84704.jpgsave_picture_84704.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ magnet:?xt=urn:btih:6C4C44507F3557E7D3F4C5406CF650C84A846933
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84733.jpgsave_picture_84733.jpg" />
 </div>
 
 
@@ -757,7 +757,7 @@ Wolfgang Amadeus Mozart - Cassations G-Dur KV 63 & B-Dur KV 99, Divertimento D-D
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85288.jpgsave_picture_85288.jpg" />
 </div>
 
 

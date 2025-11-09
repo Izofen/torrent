@@ -6,7 +6,7 @@
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88207.jpgsave_picture_88207.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88208.jpgsave_picture_88208.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Enable decoding of indexed textures (using (   Читать дальше...   )
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88209.jpgsave_picture_88209.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ C. H. Graun, J. A. Hasse, G. F. Handel, J. Mattheson – Cleopatra, soprano Isab
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88211.jpgsave_picture_88211.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:DB52489F329835895E49373E106A10407D26D7B0
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88217.jpgsave_picture_88217.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:00701EA1F1F08103837DEC615633ED62C1005C3F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88218.jpgsave_picture_88218.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:C812FA2D9AEF3D1BB6BB86F589714D73A18DA65F
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88224.jpgsave_picture_88224.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:9B9A0F685B812BCA888A867DA6301B1EEA2AE26C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88225.jpgsave_picture_88225.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:9B9A0F685B812BCA888A867DA6301B1EEA2AE26C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88227.jpgsave_picture_88227.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Уличные танцы 2 / Street Dance 2 (2012) [MP3|320 кб/с]<Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88229.jpgsave_picture_88229.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lana Del Rey - Lana Del Rey (2010) [MP3|320 кб/с]<Indie Pop\Alternative\Dream
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88232.jpgsave_picture_88232.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:45BC20E273E7C13281503EC2381B2F1A7368736D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88234.jpgsave_picture_88234.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:45BC20E273E7C13281503EC2381B2F1A7368736D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88236.jpgsave_picture_88236.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:45BC20E273E7C13281503EC2381B2F1A7368736D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88238.jpgsave_picture_88238.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Потап и Настя в кругу друзей (2012) [MP3|192-256 kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88240.jpgsave_picture_88240.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:6293E2048F17952D9B95334C71314353080505B2
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88243.jpgsave_picture_88243.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:B56FD7FE442CCDDDF3FFBE01F5C26BB8FB937B5C
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88246.jpgsave_picture_88246.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:5F93BD104261C835BD94DEF066042DC063A49C30
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88247.jpgsave_picture_88247.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:D6A62D62A3BB57062F1A4054EE9A13B98D9ED221
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88248.jpgsave_picture_88248.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Big Kahuna Reef 3 (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88251.jpgsave_picture_88251.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Adobe Flash Player 11.2.202.233 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88252.jpgsave_picture_88252.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Adobe Flash Player — это межплатформенная среда вып
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88259.jpgsave_picture_88259.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - A Time To Remember Collection  30CD 1960 - 1990 (1996 - 2001) [MP3|320 кб
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88260.jpgsave_picture_88260.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:5620664C3377DCF3ACA1272C0A098171C92351FF
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88261.jpgsave_picture_88261.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Linux Mint Debian Edition (XFCE & MATE/Cinnamon) 201204 RC [i386 + x86_64] (4xDV
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88262.jpgsave_picture_88262.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:F8452BCD7B8C81424A0BE3A76117F81901F834BC
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88263.jpgsave_picture_88263.jpg" />
 </div>
 
 

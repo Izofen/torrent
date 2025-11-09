@@ -6,7 +6,7 @@ Bessemer Saints - This Is BS Too (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115509.jpgsave_picture_115509.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:621BC231937AE16D521213C926314C77D50013FB
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115510.jpgsave_picture_115510.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:699B1CBD37DB766219EFB9C5CE572DE28D76397B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115511.jpgsave_picture_115511.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Meldis - Отдохни, волшебник (2006) [FLAC|Lossless|image + .cue] 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115512.jpgsave_picture_115512.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:BCD7F125A7A3FF1C24453563256BFA0A6ABC306D
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115513.jpgsave_picture_115513.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ PrivaZer 4.0.83 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115514.jpgsave_picture_115514.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:BD4149CF0287E9D6BB2D9F049D49ADBBFD68941E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115515.jpgsave_picture_115515.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:768D2C1B51C1CDB792DF819AE1E7679A3E4D4FCE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115516.jpgsave_picture_115516.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:B650D1FBB89FBB513934054EFEB68267821FE868
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115517.jpgsave_picture_115517.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Jitsu wa Ore, Saikyou Deshita? | Am I Actually the Strongest? | Я что, си�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115518.jpgsave_picture_115518.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:A1F894B8BC835E2A6992E06545A178A43CE7CFD8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115519.jpgsave_picture_115519.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Chromium 122.0.6261.70 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115520.jpgsave_picture_115520.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:78618380DE217D3CE5E21DA7DF2AC97CE7F5FE80
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115521.jpgsave_picture_115521.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Quintessential Quintuplets ∽ | Go-Toubun no Hanayome~ | Пять неве�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115522.jpgsave_picture_115522.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:478C5B6AC7DCB73308E76E51A26066DE466C3890
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115523.jpgsave_picture_115523.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Yumemiru Danshi wa Genjitsushugisha | The Dreaming Boy is a Realist | Из ме�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115524.jpgsave_picture_115524.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Ungoogled Chromium 122.0.6261.69-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115525.jpgsave_picture_115525.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Liar Liar | Лжец Лжец [2023, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115526.jpgsave_picture_115526.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:2EF90FCE6E0C85E538C0E46014AC8018210A8E9F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115527.jpgsave_picture_115527.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Однуш�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115528.jpgsave_picture_115528.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:C4A486169107C109D1FD3BCEEB1ACF2A59973953
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115529.jpgsave_picture_115529.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Oshi no Ko | Звёздное дитя [ТВ-1] [2023, TV, 11 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115530.jpgsave_picture_115530.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Tenpuru | Храм [2023, TV, 12 эп. + 2 SP] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115531.jpgsave_picture_115531.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:AC2459A6406B6231C077F63FF3FB580582F37FF8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115532.jpgsave_picture_115532.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:4470C486F01A6ADDA556CEA0E6C262CD72186B81
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115533.jpgsave_picture_115533.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Oliver Scheffner - Ambient Moments (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115534.jpgsave_picture_115534.jpg" />
 </div>
 
 

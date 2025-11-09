@@ -6,7 +6,7 @@ Mylene Farmer - Cendres De Lune (1986) Reissue, Repress, 1994, Polydor [OGG Vorb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183113.jpgsave_picture_183113.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ IIKKI - Label-Pack 12 releases (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183114.jpgsave_picture_183114.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1AA401204F029A0184710305094C4FEF9421A504
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183116.jpgsave_picture_183116.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:5F818FD28ACB23DDFD09393434CA5768E1471278
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183117.jpgsave_picture_183117.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ QOwnNotes 20.11.11 Build 790 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183119.jpgsave_picture_183119.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:CA151C330B81FE17D8DA1B3EF7059B2C6D09BC8D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183120.jpgsave_picture_183120.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Night Tempo - Japanese Pop Edit (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183122.jpgsave_picture_183122.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Mariah Carey - Greatest Hits (2001) 2 CD [OGG Vorbis|480 Kbps] <Hip Hop, Funk / 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183123.jpgsave_picture_183123.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Elvenking - Reader Of The Runes - Divination (2019) Japanese Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183124.jpgsave_picture_183124.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:F596635E894E3C5EA1591882667B268FCCF29AEC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183126.jpgsave_picture_183126.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:F62E5D1008345EFA03E2D7E81297581E496F43DC
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183128.jpgsave_picture_183128.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ GPU-Z 2.36.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183130.jpgsave_picture_183130.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ The Brand New Heavies - Never Stop... The Best of (2023) 2 x CD [FLAC|Lossless|W
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183132.jpgsave_picture_183132.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ W. P. Alex Remark / Space Blaster - Pyramid / Magic Fly (1996) [OGG Vorbis|450 K
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183133.jpgsave_picture_183133.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:19BDB367DCA37A2DAB6E52A4640508F8AE277EC7
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183136.jpgsave_picture_183136.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:FDB7780918B8ABCAFB95E743A756CD835D07C6A5
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183137.jpgsave_picture_183137.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Tomislav Goluban - 20 Years on the Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183138.jpgsave_picture_183138.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Whirlwind - 1714 (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183141.jpgsave_picture_183141.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:33C5BD7E056E03F9CFB4F1993E96811F747EDD43
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183142.jpgsave_picture_183142.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ RadioMaximus 2.32 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183143.jpgsave_picture_183143.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Plus Messenger (Telegram+) v10.1.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183145.jpgsave_picture_183145.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:3D5E11F3E8AC1DB79789D1CF39EB4723BCB23587
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183147.jpgsave_picture_183147.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Telegram Desktop 4.10.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183149.jpgsave_picture_183149.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Anima Hereticae - Descended from the Mountains (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183151.jpgsave_picture_183151.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:1691BE8C8AFABF7D3F07D10E2550D5EA0C5CCAC5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183153.jpgsave_picture_183153.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:A2EE0BAB0E0DC48AA8D739CE1248C722E95CA1A7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183156.jpgsave_picture_183156.jpg" />
 </div>
 
 

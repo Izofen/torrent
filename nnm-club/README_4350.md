@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135292.jpgsave_picture_135292.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Shanna Waterstown - Be with You (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135293.jpgsave_picture_135293.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ JixiPix Watercolor Studio Pro 1.4.17 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135295.jpgsave_picture_135295.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B48A3DAF5F21492E36110E28D9B6C46C27789722
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135297.jpgsave_picture_135297.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Opeth - Ghost Reveries (2005) Reissue, 2013, 	Roadrunner Records, Cargo Records 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135301.jpgsave_picture_135301.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:E89F8A35A60B642F0F62640D7A456FE28BE0A101
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135302.jpgsave_picture_135302.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Hell's Addiction - 9 O'Clock Horses (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135303.jpgsave_picture_135303.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Pinball Wizard - Dirty Ways (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135304.jpgsave_picture_135304.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Brianna Harness - This Too Shall Pass (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135305.jpgsave_picture_135305.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ The Thief River Band - Two Lane Solution (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135307.jpgsave_picture_135307.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Myriad Lights - Lambda (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Powe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135309.jpgsave_picture_135309.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Rumpus PRO 9 v.9.0.12 + Tether Client 1.1  [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135311.jpgsave_picture_135311.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Fierce Justice - Fireborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135313.jpgsave_picture_135313.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:0EEAAB3EED039673FCB3531590AE1AD7535832D8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135314.jpgsave_picture_135314.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:19A6276629B597178F362952BCC91967FD1D781B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135315.jpgsave_picture_135315.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Cracklin'Groove - Cracklin'Groove (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135316.jpgsave_picture_135316.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:6C0057F885047CD6ED046AECA5DBD1B0006533C9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135317.jpgsave_picture_135317.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:C32750832AB105E672A861930D61254E1B025DE4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135319.jpgsave_picture_135319.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Dynaper - Dynamic Wallpapers 1.5.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135321.jpgsave_picture_135321.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:4067BEDA5F57F6E7A928D906BBAA609091606C95
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135323.jpgsave_picture_135323.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Resize Sense - Flexible batch image processing 2.3.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135325.jpgsave_picture_135325.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Tyrone Cotton - Man Like Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135327.jpgsave_picture_135327.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:67094D6A55EC9F6635AB86F4099FBA678F417762
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135328.jpgsave_picture_135328.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Opeth - Heritage (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135329.jpgsave_picture_135329.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Memorial Day - Embark Hades (1995) [MP3|320 Kbps] <Gothic, Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135331.jpgsave_picture_135331.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:93A047AD106AA08F0F2156DCB685DFE436BF57C3
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135332.jpgsave_picture_135332.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Beguiled - Rise of the Winged Demons (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7976.jpgsave_picture_7976.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Eminent Steed - The Joy of June (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7977.jpgsave_picture_7977.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Brice Harwin - Melancholy Meeting (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7978.jpgsave_picture_7978.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Greg James Ortbach - Somewhere Slow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7983.jpgsave_picture_7983.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ember Tavistock - Grindin' Hustle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7985.jpgsave_picture_7985.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bob Forte - Nureci Blues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7987.jpgsave_picture_7987.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Daylight Ghostfist - Fleeing Fast (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7989.jpgsave_picture_7989.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Chapel Blues - Searchin' for the Sound (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7990.jpgsave_picture_7990.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bobby Messano - Still~Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7995.jpgsave_picture_7995.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Colin Hay - Man @ Work Volume 2 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7996.jpgsave_picture_7996.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ A-Z (Ray Alder, Mark Zonder (Fates Warning)) - Studio Albums (2 releases) (2022-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7999.jpgsave_picture_7999.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Forestry Road - Forestry Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8001.jpgsave_picture_8001.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Frost Drift - Let's Begin Something (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8002.jpgsave_picture_8002.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Caden Morrowick - Total Spin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8004.jpgsave_picture_8004.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Grit Slide - Hexed Ground (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8005.jpgsave_picture_8005.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Fade Poet - Spirit of a Rebel (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8009.jpgsave_picture_8009.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Forgotten Roadz - Everything in Between, Vol. 2 (2025) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8010.jpgsave_picture_8010.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Crooked Myth - Wrong Deal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8012.jpgsave_picture_8012.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Hendy FN - Karma (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8026.jpgsave_picture_8026.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Rave The Reqviem - Studio Albums (5 releases) (2014-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8044.jpgsave_picture_8044.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Absolute New Hits 5 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8106.jpgsave_picture_8106.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Fade Numb - Fresh Start (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8116.jpgsave_picture_8116.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ DragonForce (& Marc Hudson) - Studio Albums (11 releases) (2003-2024) hand made 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8231.jpgsave_picture_8231.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Dragony - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8248.jpgsave_picture_8248.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Emperor - Emperor (1993) EP, Released, 2017, Candlelight Records [FLAC|24/96|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8350.jpgsave_picture_8350.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Lord Of The Lost - OPVS NOIR Vol. 1 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8375.jpgsave_picture_8375.jpg" />
 </div>
 
 

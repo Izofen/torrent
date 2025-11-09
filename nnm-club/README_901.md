@@ -6,7 +6,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23765.jpgsave_picture_23765.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:F66ECCCFEFA1DCBD85CF997B397DD5065CF6546E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23766.jpgsave_picture_23766.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Bears In Space (2024) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23767.jpgsave_picture_23767.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ K-Lite Codec Pack 18.8.5 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23768.jpgsave_picture_23768.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:213244E474B2B70084B4D60CEE4F0FD47910B204
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23769.jpgsave_picture_23769.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:5428A2062A7C35ED9B5579B8486A1CFB2FE29997
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23770.jpgsave_picture_23770.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:015F50C518F90F084F6B079F85929B8ADBAA75AE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23771.jpgsave_picture_23771.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Kisaki Kyouiku kara Nigetai Watashi | I Want to Escape from Princess Lessons | �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23772.jpgsave_picture_23772.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Capture One 23 Enterprise 16.5.9.2795 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23773.jpgsave_picture_23773.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:C34087EF97D63B8AA03271489C2765D3A87342B1
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23774.jpgsave_picture_23774.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:70C75257AD564384B1C602EA2F4B43424D34BB5F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23775.jpgsave_picture_23775.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:63CCE9833F55D29CA02CA5764780CEEE72B87BFB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23776.jpgsave_picture_23776.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Adobe XD 58.0.12.9 RePack by KpoJIuK [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23777.jpgsave_picture_23777.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ LazyMedia Deluxe v3.369 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23778.jpgsave_picture_23778.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:368B85F415EDEF3F551F405DBA0A56343EB9C797
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23779.jpgsave_picture_23779.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.4.1 RePack (& Portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23780.jpgsave_picture_23780.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:91F94EF18660B03621D8F97D25C9284798F78599
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23781.jpgsave_picture_23781.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:B8017AB8A3E4D19747AFA2143AA24EA6CA985957
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23782.jpgsave_picture_23782.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:11BFEAE72FDEF8248F1AA4884B7E7E2B54E27E97
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23783.jpgsave_picture_23783.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:FE8C072B8615518A4A6CD37F8CB34E7CFEC8BB98
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23784.jpgsave_picture_23784.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Battlefield 4 (2013) [Ru/Multi] (1.8.2.48475) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23785.jpgsave_picture_23785.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ The Witcher / Ведьмак (2007) [Ru/Multi] (1.5) Repack Wanterlude [Enhanced
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23786.jpgsave_picture_23786.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:C37B257FDF79C4B24637D616C55522E5AB3AAA6A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23787.jpgsave_picture_23787.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:C37B257FDF79C4B24637D616C55522E5AB3AAA6A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23788.jpgsave_picture_23788.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Class no Daikirai na Joshi to Kekkon Suru Koto ni Natta | Kura-Kon | Я жени
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23789.jpgsave_picture_23789.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:118DC43FF7DAD5FEC4B99126FC901C7F8C230401
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23790.jpgsave_picture_23790.jpg" />
 </div>
 
 

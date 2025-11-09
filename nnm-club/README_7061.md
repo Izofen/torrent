@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241821.jpgsave_picture_241821.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6FB170CC1040917F5EAB71008B0EFC444B8799F6
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241823.jpgsave_picture_241823.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D638367435A5C6C4F7AF1CB91DDEB3B736532D32
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241824.jpgsave_picture_241824.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:17C28A884AE79D3FC304434DBAACA0269E36E11B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241825.jpgsave_picture_241825.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Wondershare UniConverter 14.1.15.171 (х64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241826.jpgsave_picture_241826.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Phil Woods - Greek Cooking (1967) 1995, Impulse! [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241827.jpgsave_picture_241827.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Password Repository 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241828.jpgsave_picture_241828.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ IceCream Ebook Reader Pro 6.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241829.jpgsave_picture_241829.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:66758FED4D9B16A78B390284B51675EC7BEFC0D6
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241830.jpgsave_picture_241830.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Relaxing Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241831.jpgsave_picture_241831.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:B96C1301106ABB443A5393E08F49B87A917A2AD3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241832.jpgsave_picture_241832.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ TextMate 2 v2.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241833.jpgsave_picture_241833.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:21C7ECE9ED8EEE68E3F1F873D12AF5F3738E42BF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241835.jpgsave_picture_241835.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:4B4C6B00258B77AA32BC75AFB5CB4B530973A73B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241836.jpgsave_picture_241836.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Sandboxie 5.64.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241837.jpgsave_picture_241837.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:016FA48D30442F20F6CE3DC66D002907172E642E
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241838.jpgsave_picture_241838.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:F6506C69D1A4CFEB4EFD7A9CA136F7D8EA52251B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241839.jpgsave_picture_241839.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - Привал романтиков 2 (2004) [FLAC|Lossless|tracks + .cue] <�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241840.jpgsave_picture_241840.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:4E252E26C82F869EB7D1EAF53576CAC58A6449EB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241841.jpgsave_picture_241841.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Ultra Adware Killer 5.6.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241842.jpgsave_picture_241842.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Translate Tab 2.0.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241843.jpgsave_picture_241843.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:BBB63605ABCEA328F3E59D1DDAD08C8E22461C84
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241845.jpgsave_picture_241845.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Music News vol.181 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241846.jpgsave_picture_241846.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Powerwolf - Interludium (2023) 3CD, Deluxe Version [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241847.jpgsave_picture_241847.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Monkey's Audio 9.20 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241848.jpgsave_picture_241848.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:8CD25F1FE1B82BFB08A0FCD8FABC0A8BD68E2CDF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241849.jpgsave_picture_241849.jpg" />
 </div>
 
 

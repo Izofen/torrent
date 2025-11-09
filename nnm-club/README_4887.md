@@ -6,7 +6,7 @@ WinRAR 5.80 Final (х86) Portable by Deodatto [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152941.jpgsave_picture_152941.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:67F62493EFBDA8DDA904B59B9C1F7D72D8ABE4F4
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152942.jpgsave_picture_152942.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Creative Wallpapers (10.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152943.jpgsave_picture_152943.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ TG Pro (Temperature Gauge Pro) 2.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152944.jpgsave_picture_152944.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:5038E5AEF9E591227BF815252895E1C7EA94F2A3
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152945.jpgsave_picture_152945.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Larva Island  (2018) WEB-DL [H.264/1080p] (сезон 1, серии 1-13 из 13
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152946.jpgsave_picture_152946.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:67255EC3FC376D337F986BDFF0DAF9594D16FBD6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152947.jpgsave_picture_152947.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:883D8E53751D8FA64C437A82A8FFC90B9829ADDD
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152949.jpgsave_picture_152949.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:46AF688E5029CA5FF33C0051FA0A8459258A2161
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152950.jpgsave_picture_152950.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:3D11D0DCDE182CF160874B42F04019121E15709B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152951.jpgsave_picture_152951.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Small Jackets - Just Like This! (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152952.jpgsave_picture_152952.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:03AE792F0CE32FEC79E7F4017F26498769F13D09
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152954.jpgsave_picture_152954.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:B847129E83435C0BA167A0218F51F4064B7C4C09
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152955.jpgsave_picture_152955.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:9EE5AC3A38ECCBC9C8F37A5C157F2F8B90A1AE5C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152956.jpgsave_picture_152956.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Final Draft 12 v12.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152957.jpgsave_picture_152957.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Null Peta | Null & Peta | Нуль и Пета [2019, TV, 12 эп.] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152958.jpgsave_picture_152958.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Hammerfall - Live! Against The World (2020) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152960.jpgsave_picture_152960.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Super Smash Bros. Ultimate (2018) [Switch] [Region Free] 6.0 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152961.jpgsave_picture_152961.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:D6ABB2A18C8C308CFA0FFD1A5D961EA71245883C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152962.jpgsave_picture_152962.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:4A2E02835D1E82983BC45791E1E56BCDBBBAADDC
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152963.jpgsave_picture_152963.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - The Best Lounge Vol.46(Compiled by Sergio) (2016) [MP3|320 Kbps] <Lounge, C
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152964.jpgsave_picture_152964.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:A2AD2610055B9328452D1DE9721F007997438100
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152967.jpgsave_picture_152967.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Banana Fish | Рыбка-бананка [2018, TV, 24] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152969.jpgsave_picture_152969.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:335F9EF590FE5FA27F6464A926DCD02C04DEA416
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152970.jpgsave_picture_152970.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Fitify: Фитнес тренировки дома 1.60.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152971.jpgsave_picture_152971.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:B7C5531A09C6FE64F3A8DFAE706F4C47EF7367AD
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152973.jpgsave_picture_152973.jpg" />
 </div>
 
 

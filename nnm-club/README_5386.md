@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166912.jpgsave_picture_166912.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MAMP PRO 6 v.6.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166913.jpgsave_picture_166913.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Everest Queen - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166914.jpgsave_picture_166914.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ MAGIX Vegas Pro 17.0 Build 387 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166915.jpgsave_picture_166915.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Loud Solution - Throwback (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166916.jpgsave_picture_166916.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Optimizer 16.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166917.jpgsave_picture_166917.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:2AC4384ABD947867C859723DBF6E3C8CB287E17C
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166918.jpgsave_picture_166918.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:839AAE3721D4AD7E6824F6670CC8C1D84552B76D
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166919.jpgsave_picture_166919.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Fuzzerati - Zwo (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Psych, Stoner, Spac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166920.jpgsave_picture_166920.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:4D4CCD10E6DF528F4836E101CFA6B96DFD74BDA8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166921.jpgsave_picture_166921.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:1BDDE117A5725CD62FEFBAC02AD94A89B343C889
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166922.jpgsave_picture_166922.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Komunist - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hardcor
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166923.jpgsave_picture_166923.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:C20D6E04D994F8EFF0430E7BCAC6CEAE8E0C6FFD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166924.jpgsave_picture_166924.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:7CAAD752CF22B87825E6F8D2DCACFD9C693BA564
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166925.jpgsave_picture_166925.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Andra - Circle Of Fire (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166926.jpgsave_picture_166926.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:80A053764E7805D96393E4862B02F2EB883F9796
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166927.jpgsave_picture_166927.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Lordi - Lordiversity: Abracadaver (2021) [MP3|320 Kbps] <Heavy Metal, Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166929.jpgsave_picture_166929.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:2BA1AB92AE1B44CE3DC1CF41478165DDA09A9647
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166931.jpgsave_picture_166931.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Asgarth - Zeldatik (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166932.jpgsave_picture_166932.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ PotPlayer 191211(1.7.21097) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166933.jpgsave_picture_166933.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Continent Number 6 - Afromerica (1978) LP [MP3|320 Kbps] <Electronic, Disco, Fun
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166934.jpgsave_picture_166934.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Crimson Tears - The Dark Awakening (2007) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166935.jpgsave_picture_166935.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Soirée - Soiree (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166936.jpgsave_picture_166936.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:AFD5C60CBE723B57C6F4D3E3BC9F0D7DF3D9C250
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166937.jpgsave_picture_166937.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:A5572B2361920FB79513ACE0E69D0EA460EE02EE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166938.jpgsave_picture_166938.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Aneuma - Climax (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166939.jpgsave_picture_166939.jpg" />
 </div>
 
 

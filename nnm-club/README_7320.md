@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250357.jpgsave_picture_250357.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E0A764667028DF123D868EB8F034952D2AA34C3E
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250358.jpgsave_picture_250358.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:21514A854E92F7117EDF65931730E28A48FD1B4D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250359.jpgsave_picture_250359.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B2BAB054A483A4C7EA63412244F8D4C8CD241C83
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250360.jpgsave_picture_250360.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:988BDE4F03C26A28C00937EE2672D5B6D1AC0294
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250361.jpgsave_picture_250361.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:18352DC673AFBE32246FDBD8C4C3FC0D28559DD4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250362.jpgsave_picture_250362.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:2F631433ACD2BFF292446704377F03468F3C1BFD
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250363.jpgsave_picture_250363.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:07D38041FE7AFD7447481091A618845761E927D5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250364.jpgsave_picture_250364.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:813D40BB1246A42D0A144A02C211FEF64FAFFD8E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250365.jpgsave_picture_250365.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:D549962932360AB3E025819ED49E6B3CEBCFF3ED
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250366.jpgsave_picture_250366.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:BD3B107B01235AF8034FDA674ED741B2EBB5F9B2
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250367.jpgsave_picture_250367.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:FEC66D856AC21F02F2BA660CDE0F645AC0F77055
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250368.jpgsave_picture_250368.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:ECACD7FFD3295D66DE48EFDA060FC1117B7D32F4
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250369.jpgsave_picture_250369.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Spotify 1.2.75.280 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250370.jpgsave_picture_250370.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ MyLanViewer 6.6.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250371.jpgsave_picture_250371.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ VidCoder 12.12 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250372.jpgsave_picture_250372.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:66B0C734477D16A3FF73821CD6DAEFECD0D5C5F8
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250373.jpgsave_picture_250373.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:73596C0A1F459EB8D6A42E36A2CACACC7E97892A
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250374.jpgsave_picture_250374.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:1BDEA7ABA6675A9FA6E25FC44F67DAFEB3E6097E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250375.jpgsave_picture_250375.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:C6FB20A3DBE6E5BC2EC7C46FA9AAAAC68F069C41
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250376.jpgsave_picture_250376.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:C3D4EB87D98E41DDB80DB572C198AAA24218ABBF
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250377.jpgsave_picture_250377.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:ACECF7BABC15BCDFE73C9830B513E2DBD4007EBF
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250378.jpgsave_picture_250378.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:AEE0F3D2E891A7DB7F2BA1F56350B891885F9699
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250379.jpgsave_picture_250379.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:A7CECBBEBC1B1447C444D495E66093729BE11D4D
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250380.jpgsave_picture_250380.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Earthling - Radar (1995) 30th Anniversary Edition, 2025, Chrysalis Records Limit
 >>Downtempo, Ambient (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250381.jpgsave_picture_250381.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:12C05F16BB7306B64E946CD9818CA74B101516D9
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250382.jpgsave_picture_250382.jpg" />
 </div>
 
 

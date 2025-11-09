@@ -6,7 +6,7 @@
 >>Космос
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183726.jpgsave_picture_183726.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:04C0B833C60C75B41665BB3F72A9BF6DE23B1BD2
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183729.jpgsave_picture_183729.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ GeekBrains | Создатель игровой вселенной: геймди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183730.jpgsave_picture_183730.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ CGcircuit, Arihant Gupta | Houdini Essentials - Flip Rendering (2021) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183731.jpgsave_picture_183731.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Cyberwalker - Future Waves, Vol. 1-2 (2019-2022) 2CD [MP3|320 Kbps] <Synthwave, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183732.jpgsave_picture_183732.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Google Chrome 117.0.5938.132 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183734.jpgsave_picture_183734.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:88791C96B8B26DD1F15D41A6EFAE1BCA0BE3C71F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183736.jpgsave_picture_183736.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:2BFD08992C9797E3521EFA9C0BA4E2CEA2AFF250
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183737.jpgsave_picture_183737.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:1908EA5728F85518CCA354C7EE46AF37CED05A80
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183738.jpgsave_picture_183738.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Enterclass, Константин Стерхов | Путешествие в Ки
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183740.jpgsave_picture_183740.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:BFBC10E2ACF1ED6EEA0ED31C7406905E781337E6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183742.jpgsave_picture_183742.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:1B6B650D61F03318061BD6FE8068EA50F1AADC6D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183743.jpgsave_picture_183743.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Privacy Eraser Free 5.29.3 Build 4359 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183745.jpgsave_picture_183745.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ CGcircuit, Ciobanu Razvan | Advanced Particles 2 : Demon Fire Trails (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183746.jpgsave_picture_183746.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:99E98EC7509CFB41CBFCBFA608DAF90087AFBB87
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183749.jpgsave_picture_183749.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Ashampoo Driver Updater 1.5.0.0 RePack (&.Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183750.jpgsave_picture_183750.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:EA6E144B76FD448C88DC5F4D0F48EF9DD3740E14
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183751.jpgsave_picture_183751.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:D54092FCD5274C95F450042873863C8AFBD4599D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183753.jpgsave_picture_183753.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:76413399AD1FFE75DC3B819EF502931ABF188539
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183755.jpgsave_picture_183755.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - Markus Schulz pres. Dream Sequence 2022 (Uplifting Trance Mix) [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183756.jpgsave_picture_183756.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:2D76497A9BE5FAF19FA70765544600FD7AB3CAA8
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183759.jpgsave_picture_183759.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ George Michael - Rock In Rio 2 (2021) Remaster, 2023, Gossip[FLAC|Lossless|WEB-D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183760.jpgsave_picture_183760.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:85A2408CF8A40CB9FC2FF676E1500CDC05FBE689
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183761.jpgsave_picture_183761.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:F99536A01BF182036AFDC3F66C4F96734C1091C9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183764.jpgsave_picture_183764.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Microsoft Edge 107.0.1418.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183765.jpgsave_picture_183765.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ OneCommander Pro 3.53.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183766.jpgsave_picture_183766.jpg" />
 </div>
 
 

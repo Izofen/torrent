@@ -6,7 +6,7 @@ Les Discrets - Septembre Et Ses Dernieres Pensees (2010) Limited Edition [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141989.jpgsave_picture_141989.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CA8213391E7AF9C22CA2CEFA9C0D93F1C2F63879
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141991.jpgsave_picture_141991.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Music For You vol.21 (2021) [MP3|320 Kbps] <Rock, Metal, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141992.jpgsave_picture_141992.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WinTools.net Premium 18.0.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141994.jpgsave_picture_141994.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:F17814EB0110376B6E7E9C433CA87D1353C37C26
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141995.jpgsave_picture_141995.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:10DBDFD222C6302A050179EBE9988AB9D3766521
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141996.jpgsave_picture_141996.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:6C478E95A30468BE0C3A9C474E2E4FDEC7FB915B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141997.jpgsave_picture_141997.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Осенний Рэп удар русский (2012) [MP3|256 кб/с]<Rap,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141998.jpgsave_picture_141998.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Ritter Butzke: 10 Years (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141999.jpgsave_picture_141999.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:F59C018779C13996D7D00FF0FDB614CD95ADF3C8
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142000.jpgsave_picture_142000.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:59EB06A70A6075F3961C0A6C9871A3B2ECDC82A9
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142001.jpgsave_picture_142001.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ TG Pro (Temperature Gauge Pro) 2.64 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142003.jpgsave_picture_142003.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - Unknown 80's (part X) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142004.jpgsave_picture_142004.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Gothic 3 / Готика 3 (2006-2008) [Ru/En/Ge] (1.75.20108.14/2.1.17414.8/dlc)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142006.jpgsave_picture_142006.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - Новогодняя Дискотека 50/50 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142007.jpgsave_picture_142007.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Free 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142008.jpgsave_picture_142008.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:AD4AE530E737B088E9A0A2898EDA462A058395C0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142009.jpgsave_picture_142009.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:F2102BF0D9153636AD72275B85884641F28C9B99
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142010.jpgsave_picture_142010.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Bazaart: Photo Editor & Graphic Design 2.3.3 (472) Mod by Youarefinished [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142013.jpgsave_picture_142013.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:58C73E1B405AFC0CC8E5BB81DA8910FF1097A580
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142014.jpgsave_picture_142014.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) HDRip
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142015.jpgsave_picture_142015.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Gothic / Готика (2011) [Ru/En/Ge] (1.08k/1.1e/dlc) Lossless Repack R.G. Or
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142016.jpgsave_picture_142016.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:7AA163F30C80E6372DAE94E35323DD646D713CD3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142017.jpgsave_picture_142017.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:7DCEA45510F07CD7E87B576A7F5A5F635B8EA129
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142018.jpgsave_picture_142018.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:68C2FD2A116A4ACA931EA23F1E8E8D65F8F49CE8
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142019.jpgsave_picture_142019.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Magoshare Data Recovery Professional 4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142020.jpgsave_picture_142020.jpg" />
 </div>
 
 

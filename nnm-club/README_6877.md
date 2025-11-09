@@ -6,7 +6,7 @@ Supernova Plasmajets - Now Or Never (2021) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236108.jpgsave_picture_236108.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Alcotopia - It Hits the Spot (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236110.jpgsave_picture_236110.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Answer - Sundowners (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236111.jpgsave_picture_236111.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:BA688A13B6BBE5A9E9F49473453585158A744F76
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236112.jpgsave_picture_236112.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Trance Dance (2023) [MP3|320 Kbps] <Trance, Progressive, Breaks, Melodic>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236114.jpgsave_picture_236114.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Bulk Photo Watermark 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236115.jpgsave_picture_236115.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dato 3.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236116.jpgsave_picture_236116.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:142C5E43F62C372742715FEEE393A1D5BE5FC9CE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236117.jpgsave_picture_236117.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:C9436BA8AEB1E270B10D32BDB52F30F0ADACE74E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236118.jpgsave_picture_236118.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:ECEBFF653C8B4EFDE58D6BCFE8E33275B22CAEED
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236120.jpgsave_picture_236120.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:62FCC28B1D4B2ABA57CE3DD704C395BA0C469DB9
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236122.jpgsave_picture_236122.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ MacMagic 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236123.jpgsave_picture_236123.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Graphic Inspector 2 v2.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236124.jpgsave_picture_236124.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Ondfodt - Hexkonst (2014) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236126.jpgsave_picture_236126.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:CB2847AC308FF1A457AEB673C5E3D8386A7092BD
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236127.jpgsave_picture_236127.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:8B10E3F888C32784855FCAAFBF7AFAA4624DBE28
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236128.jpgsave_picture_236128.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Dark Mode for Safari 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236130.jpgsave_picture_236130.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ AudFree Spotify Music Converter for Mac 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236131.jpgsave_picture_236131.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Florian Pellissier Quintet - Rio (2021) Hot Casa Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236132.jpgsave_picture_236132.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:E528B763AD7DA549FCA7A1177DFEC2D19EA80A3E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236134.jpgsave_picture_236134.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Pandrador - Seidr (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236135.jpgsave_picture_236135.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:78E55B22B915A032FEC073B86EFE27C473BD8A7C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236136.jpgsave_picture_236136.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Nevercenter CameraBag Pro 2021.00 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236137.jpgsave_picture_236137.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Ibiza Summer Trance (2023) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236139.jpgsave_picture_236139.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Exposure X7 v7.1.0.134 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236140.jpgsave_picture_236140.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ WinSnap 6.0.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236141.jpgsave_picture_236141.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173753.jpgsave_picture_173753.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3FB0F8B41C4429EFEF26EDF19CB82A1585669E3E
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173754.jpgsave_picture_173754.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:879647D3DC9F4E6A14E947E1E97B48843D32743D
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173755.jpgsave_picture_173755.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Karen Souza - Suddenly Lovers (2023) Japan [FLAC|Lossless|image + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173756.jpgsave_picture_173756.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:3E139637E9FBCEA80CD49291BF326E125FEA7AD6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173757.jpgsave_picture_173757.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:4FB03A29A760152947378FE874BA796F009E74F2
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173758.jpgsave_picture_173758.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Revo Uninstaller Pro 4.2.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173759.jpgsave_picture_173759.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:671592B153C0E0CE4D0A13219034F947DDFC4DF9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173761.jpgsave_picture_173761.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:AE4E42C08FA05FB7113549FA7038E5133E0C6C33
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173762.jpgsave_picture_173762.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Matt O'Ree Band - 3 альбома (2013-2019) [MP3|320 Kbps] <Blues, Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173763.jpgsave_picture_173763.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:297427CE814808ABF9726547171FEE287B8EF8BC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173764.jpgsave_picture_173764.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ FileZilla Server 1.6.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173765.jpgsave_picture_173765.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ XnViewMP 1.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173767.jpgsave_picture_173767.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ BleachBit 5.0.2 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173768.jpgsave_picture_173768.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ NGW: 700 Акул / 700 Sharks (2018) WEBRip [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173770.jpgsave_picture_173770.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ GPU Caps Viewer 1.57.1.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173771.jpgsave_picture_173771.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:18BC62B5A326A60CD81E0CDB62E2A9EA120E6D2B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173772.jpgsave_picture_173772.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:069591B2310F51A848C2814E687C53258F0ED1C7
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173773.jpgsave_picture_173773.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:FFC613E6B600758EAAC7B7880753F742F489BA95
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173774.jpgsave_picture_173774.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:70A04702F9BE237333A913D2B9505E2F5321FB3B
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173775.jpgsave_picture_173775.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:03E8307AFC50A509D50EEBC6126A0A7FD9FA9331
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173776.jpgsave_picture_173776.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Tangled Audio Best Of 2015 (Mixed by Luigi Palagano) (2015) [MP3|320 кб/�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173777.jpgsave_picture_173777.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:70E9A292D4CBCD635FB5B5A60B8A87289C145AEE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173778.jpgsave_picture_173778.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:54A86C74AE7449AC1820AE6C6419D0C0C2F7AA47
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173779.jpgsave_picture_173779.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:7E3952FCDF9EBEF27899FEA9A800D5B5BD81A202
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173780.jpgsave_picture_173780.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Ambient Soundscapes (2023) [MP3|320 Kbps] <Ambient, Downtempo, Relax>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173781.jpgsave_picture_173781.jpg" />
 </div>
 
 

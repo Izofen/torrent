@@ -6,7 +6,7 @@ Dead Mountaineer Hotel / Отель "У погибшего альпиниста"
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88904.jpgsave_picture_88904.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nightlong: Union City Conspiracy [Ru] (RePack) 1998 | Kirill Games
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90518.jpgsave_picture_90518.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dragon's Lair Трилогия [En] (RePack) 1991 | Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90716.jpgsave_picture_90716.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Hauma: A Detective Noir Story (2023) [Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100577.jpgsave_picture_100577.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Anna's Quest (2015) [Ru/Multi] (1.3.4792) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100615.jpgsave_picture_100615.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ An Airport for Aliens Currently Run by Dogs (2021) [En] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100623.jpgsave_picture_100623.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Don't Starve Together (2016) [Ru/Multi] (692916/dlc) Repack Let'sРlay [MEGA PAC
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102695.jpgsave_picture_102695.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Bewitching Sinners (2024) [En] (1.9.8.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104836.jpgsave_picture_104836.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Lunar Glow Stellar Dance (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105191.jpgsave_picture_105191.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Crystal Shard Adventure Bundle (2016) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106045.jpgsave_picture_106045.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ A Memoir Blue (2022) [Ru/Multi] (Build 8901003) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106071.jpgsave_picture_106071.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ no sleep for sole (2024) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108077.jpgsave_picture_108077.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Echoes of Despair (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108444.jpgsave_picture_108444.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Harmony: The Fall of Reverie (2023) [Multi] (1.03.1485026) License GOG [Soundtra
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110903.jpgsave_picture_110903.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Lil' Guardsman (2024) [Multi] (1.0.5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111194.jpgsave_picture_111194.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ SANYA / САНЁК (2024) [Ru/Multi] (3.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114445.jpgsave_picture_114445.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Beyond the Fringe (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114567.jpgsave_picture_114567.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Invisible Fear (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114910.jpgsave_picture_114910.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534/dlc) Repack Other s [Supporter Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114934.jpgsave_picture_114934.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Nathan Morgan: Dilemma (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114947.jpgsave_picture_114947.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ The Witch of Fern Island (2023) [Multi] (1.0.0_B/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115109.jpgsave_picture_115109.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ The Expanse: A Telltale Series (2023) [Multi] (1.09) License GOG [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115274.jpgsave_picture_115274.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ DREDGE (2023) [Ru/Multi] (1.4.2/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115409.jpgsave_picture_115409.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ My Lovely Daughter (2024) [Multi] (1.27f6/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115602.jpgsave_picture_115602.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Lazaret (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115906.jpgsave_picture_115906.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Forgiveness (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116116.jpgsave_picture_116116.jpg" />
 </div>
 
 

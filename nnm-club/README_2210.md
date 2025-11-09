@@ -6,7 +6,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57827.jpgsave_picture_57827.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6B76D6A0ABE99D57BD641FE318B23DAEA4051513
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57828.jpgsave_picture_57828.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 09 (2023) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57829.jpgsave_picture_57829.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:1063CA45F40C35B95E7D5D4E900FA79F50EE1C8C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57830.jpgsave_picture_57830.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:92FDE7E226F855B0E3E6E0B441EB3502A52436D0
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57831.jpgsave_picture_57831.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Ramin Djawadi - Fallout (Original Amazon Series Soundtrack) (2024) [FLAC 24/44.1
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57832.jpgsave_picture_57832.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Topaz Gigapixel AI 7.1.4 + models Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57833.jpgsave_picture_57833.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Android Studio Jellyfish | 2023.3.1 Build #AI-233.14808.21.2331.11709847 + Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57834.jpgsave_picture_57834.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Wise Care 365 Pro 6.7.2.645 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57835.jpgsave_picture_57835.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Electronic compilation part 75 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57836.jpgsave_picture_57836.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Auslogics Duplicate File Finder 10.0.0.5 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57837.jpgsave_picture_57837.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ LibreOffice 24.2.3.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57838.jpgsave_picture_57838.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Adobe Media Encoder 2024 24.3.0.49 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57839.jpgsave_picture_57839.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ PC Cleaner Pro 9.6.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57840.jpgsave_picture_57840.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Jazz Blues (2024) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57841.jpgsave_picture_57841.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:0FC71576AE6426859E7FE5CF06FD6778195E0EF0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57842.jpgsave_picture_57842.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ GPU Shark II 2.3.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57843.jpgsave_picture_57843.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Duolingo: изучай языки 5.149.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57844.jpgsave_picture_57844.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:2556CD334D00CDF76A7153A55C27C073D1CE8B86
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57845.jpgsave_picture_57845.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Topaz Video AI 5.0.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57846.jpgsave_picture_57846.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 04 (2021) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57847.jpgsave_picture_57847.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:49E54489ACF6A7E7F084F0100FCC32097B5BE2CE
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57848.jpgsave_picture_57848.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:B6ACE85F407B43F128D63057561500BE34459494
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57849.jpgsave_picture_57849.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:2EA86580FE18CD1E4CE5197D8F5CDF9F84CE9491
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57850.jpgsave_picture_57850.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:0D5F8C5729E5FB2ACBA138C8418212330799ACF9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57851.jpgsave_picture_57851.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Auslogics Driver Updater 1.26.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57852.jpgsave_picture_57852.jpg" />
 </div>
 
 

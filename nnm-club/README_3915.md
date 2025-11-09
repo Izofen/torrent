@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122266.jpgsave_picture_122266.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:89A91B5C3757C8D9C351CA94A7D2B02EC74C541C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122268.jpgsave_picture_122268.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:47B6645AF63E5CC3F4D14DF48CD0962121654A62
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122269.jpgsave_picture_122269.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3765E72C4FFDC7960B4F1DA78655D932C0D19BD6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122270.jpgsave_picture_122270.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:953960BEA2B2D3354DDE1D6926D3BB814E255FC6
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122271.jpgsave_picture_122271.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ DefenderKiller 11.1.3 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122272.jpgsave_picture_122272.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ DU Meter 8.05 Build 4838 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122273.jpgsave_picture_122273.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E07E74F7ABF21D8F34521735C675CBFCF33B70C8
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122274.jpgsave_picture_122274.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:E842433CCF119DBB2B253778F2AAAA5395A9D63D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122275.jpgsave_picture_122275.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:D360A4DC2EFF88CA4D1F3F271479BE832E949662
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122276.jpgsave_picture_122276.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:EFAC24C8792E648E5F5A92F0DC63D71C13E5CFBB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122277.jpgsave_picture_122277.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:30C4E9DBBFA003CCC9D93701C824CD2375C74980
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122278.jpgsave_picture_122278.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ qBittorrent 4.6.3 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122279.jpgsave_picture_122279.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:65F20FC9A89D2224AD14F8FDCA47CE688FB79E45
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122280.jpgsave_picture_122280.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Windows 11 [10.0.22631.3007], Version 23H2 (Updated January 2024) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122281.jpgsave_picture_122281.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Viewfinder (2023) [Ru/Multi] (20231024) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122282.jpgsave_picture_122282.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Stardock Fences 5.0.4.1 (x64) RePack by xetrin [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122283.jpgsave_picture_122283.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:B90934C74A0C66B6F883C9A470B76AC8A06FF6D0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122284.jpgsave_picture_122284.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:CCE1D797A8E4D517F1BA40AFCF2C60C14854EC47
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122285.jpgsave_picture_122285.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ CCleaner 6.20.10897 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122287.jpgsave_picture_122287.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Microsoft Windows 10 [10.0.19045.3930], Version 22H2 (Updated January 2024) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122288.jpgsave_picture_122288.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:F2D9945325103287AD70AF532ECECF281453AC5C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122289.jpgsave_picture_122289.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:CDB47763F0FFEA5A0C7DF069DC2047D9A0500FAC
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122290.jpgsave_picture_122290.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Windows Server 2022 LTSC [10.0.20348.2227], Version 21H2 (Updated January 2024) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122291.jpgsave_picture_122291.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:CED55244FEE3D0A8389C725B746DE0F3BEE00641
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122292.jpgsave_picture_122292.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:D07AA2603B737AE07C94BD579D84B7D60A227257
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122293.jpgsave_picture_122293.jpg" />
 </div>
 
 

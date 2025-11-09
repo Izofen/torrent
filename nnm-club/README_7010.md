@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240422.jpgsave_picture_240422.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bismut - Retrocausality (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic desert
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240423.jpgsave_picture_240423.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Emurasoft EmEditor Professional 22.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240424.jpgsave_picture_240424.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Project Pain - Faster Disaster (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240425.jpgsave_picture_240425.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Wondershare PDFelement 9.5.8.2267 RePack by elchupacabra + OCR Plugin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240426.jpgsave_picture_240426.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Fort Firewall 3.8.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240427.jpgsave_picture_240427.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:D410573F7853E2CD066DE855F9D019F3912F6BB2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240428.jpgsave_picture_240428.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Windows 11 Manager 1.1.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240429.jpgsave_picture_240429.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Illvilja - Where No Sorrow Dwells (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240430.jpgsave_picture_240430.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Tyler Kamen - Artichoke Pythagorum (2022) [FLAC|Lossless|WEB-DL|tracks] <Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240431.jpgsave_picture_240431.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ GrandTotal 6 v6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240432.jpgsave_picture_240432.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:6A36DD7625F4F8FF990DFA930885E7DC332DA721
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240433.jpgsave_picture_240433.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:F7292707B13241490DBE2E25E467F1125CBD0A38
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240434.jpgsave_picture_240434.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Contacts Journal CRM 3.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240435.jpgsave_picture_240435.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ RJ TextEd 15.85.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240436.jpgsave_picture_240436.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Marcello Tonolo Trio - Lazy Afternoon (2010) Caligola [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240437.jpgsave_picture_240437.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:2A6B5FFC9140FEA7DC1540E6B1375111D3E29A5A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240438.jpgsave_picture_240438.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Vagrants - Be Consumed (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Post-H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240439.jpgsave_picture_240439.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:E2665BAEF029027CD7327CD6E030621B5523B3C3
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240440.jpgsave_picture_240440.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Soulver 3 v3.4.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240441.jpgsave_picture_240441.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ PCalc 4.10.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240442.jpgsave_picture_240442.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Vivaldi 5.7.2921.68 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240443.jpgsave_picture_240443.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:2A177BD7554D6742B7CDCED2B9838F2CE81D6B2D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240444.jpgsave_picture_240444.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:507877BA0E9A0A20B08DCF57251E873C25EA42DD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240445.jpgsave_picture_240445.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Alex Carpani - Microcosm (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240446.jpgsave_picture_240446.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ The Airmen of Note - Christmas Time Is Here (1998) Self-Released [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240447.jpgsave_picture_240447.jpg" />
 </div>
 
 

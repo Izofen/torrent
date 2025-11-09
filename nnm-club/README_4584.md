@@ -6,7 +6,7 @@ Drifters / Скитальцы [2016, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143482.jpgsave_picture_143482.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EFF1AA72F42E87CC72C5B08E9D0F2011C0DA6726
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143483.jpgsave_picture_143483.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143484.jpgsave_picture_143484.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Acoustic samples - VHorns Brass Section for 1.0 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143486.jpgsave_picture_143486.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:345C238560F2C310053A7B14C428775EB06DFBAA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143487.jpgsave_picture_143487.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Quantum Break (2016) [Ru/Multi] (1.0.126.0307) Repack R.G. Catalyst [Complete Ed
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143488.jpgsave_picture_143488.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Sexy Girls Pack Wallpapers (17.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143489.jpgsave_picture_143489.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Kendrick Lamar - DAMN (2017) Collector's Edition [FLAC|Lossless|tracks + .cue] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143490.jpgsave_picture_143490.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Paragon Hard Disk Manager for Mac 1.3.873 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143493.jpgsave_picture_143493.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:9C5708DBB8325AD7B7FB1971192705759E1FC886
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143495.jpgsave_picture_143495.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Floorp Browser 11.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143496.jpgsave_picture_143496.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Gilrs Wallpaper Collection (16.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143497.jpgsave_picture_143497.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ How to Survive 2 (2016) [Ru/Multi] (1.0/dlc/upd2) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143498.jpgsave_picture_143498.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Get Physical: Electro Bass Compilation (2021) [MP3|320 Kbps] <Drum And Bass
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143499.jpgsave_picture_143499.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Ivan Torrent - Immortalys (2017) [MP3|320 Kbps] <Instrumental, New Age,Electroni
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143500.jpgsave_picture_143500.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Open Server (Базовый, Расширенный, Максимальный) 5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143501.jpgsave_picture_143501.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ FanControl V174 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143503.jpgsave_picture_143503.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Warhammer 40,000: Dakka Squadron v1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143504.jpgsave_picture_143504.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:C27337554813900EE786377956C4F00120CA297E
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143505.jpgsave_picture_143505.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:F7F0EE6AA7DB68596DF73C7B08D65CCB3A499C80
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143506.jpgsave_picture_143506.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ GoneMAD Music Player v3.2.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143507.jpgsave_picture_143507.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ DxO ViewPoint 3.1.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143508.jpgsave_picture_143508.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:A3C199CBED3EEE2A74CAB889634DD6A481FD66B1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143509.jpgsave_picture_143509.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Billy Joel - Turnstiles (1976) SACD, Remastered 2012, Mobile Fidelity Sound Lab 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143510.jpgsave_picture_143510.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Cesar Bravo, Desilda Toska | The Art of Social Engineering (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143512.jpgsave_picture_143512.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - Top Songs of 2021: Global [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143513.jpgsave_picture_143513.jpg" />
 </div>
 
 

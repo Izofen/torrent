@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87220.jpgsave_picture_87220.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1C41910ED9B1574A636C6CBCA79FE995B03DFC92
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87221.jpgsave_picture_87221.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1D47E5D173AA33BCFE22EACD9626F7A340C66C46
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87222.jpgsave_picture_87222.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:200B728D1B8FBDBE055FC44FF4745768BA6D2885
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87223.jpgsave_picture_87223.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:DAD3D4651D5D1A3A97F09C6E58F96BA7DE8D400E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87224.jpgsave_picture_87224.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:CFDC4AF333463294A35BDED079FE398D4DDABE3B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87225.jpgsave_picture_87225.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:CFDC4AF333463294A35BDED079FE398D4DDABE3B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87226.jpgsave_picture_87226.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ ABBA - Number Ones (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87227.jpgsave_picture_87227.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ ABBA - Number Ones (2006) DVD9
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87229.jpgsave_picture_87229.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ ABBA - Number Ones (2006) DVD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87230.jpgsave_picture_87230.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:9579ED05E62C02A402F4C8C259C6FFE446BE6475
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87232.jpgsave_picture_87232.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:ED3994FAE263846F8B96FE39EF24DCADBBF561A0
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87233.jpgsave_picture_87233.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Bee Gees - The Ultimate DVD only (2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87234.jpgsave_picture_87234.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ DVD приложение к специальному выпуску журнал
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87236.jpgsave_picture_87236.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:B21181A00E2BD7FB4C8B74B2BC78D0F9CB1D9FB8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87237.jpgsave_picture_87237.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Sony Sound Forge Pro 10.0c Build 491 + Dolby Digital AC-3 Pro  + Noise Reduction
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87240.jpgsave_picture_87240.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Autodesk AutoCAD Design Suite Ultimate 2013 (x86) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87241.jpgsave_picture_87241.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Autodesk AutoCAD Design Suite Ultimate 2013 - это программный ко
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87242.jpgsave_picture_87242.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Angels vs Devils [Ru] (L) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87244.jpgsave_picture_87244.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:4430AE5B40B10ED5B54FA3445D80FF32C01D20BE
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87245.jpgsave_picture_87245.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Gadgets for windows 7 Chameleon Pack- Glass Gadgets [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87248.jpgsave_picture_87248.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ SteerMouse 4.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87251.jpgsave_picture_87251.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ SteerMouse — продвинутый драйвер для USB и Bluetooth м�
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87252.jpgsave_picture_87252.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:F76847DE77D68D7D7FA5888D0EAB26AE2B328BD8
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87253.jpgsave_picture_87253.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Kaspersky World 1.3.4.100 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87257.jpgsave_picture_87257.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Rayman Origins [WineSkin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87258.jpgsave_picture_87258.jpg" />
 </div>
 
 

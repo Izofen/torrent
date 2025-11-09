@@ -6,7 +6,7 @@ Tiny Glade (2024) [Ru/Multi] (1.8.0a) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42354.jpgsave_picture_42354.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.0.316/dlc) Repack FitGirl [Deluxe Edi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42357.jpgsave_picture_42357.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.41.0/dlc) Repack Decepticon
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42388.jpgsave_picture_42388.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0) Scene FairLight
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42460.jpgsave_picture_42460.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ DreadHaunt (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42463.jpgsave_picture_42463.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ City Bus Simulator 2024 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42465.jpgsave_picture_42465.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Multi] (1.0.0.349/dlc) 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42476.jpgsave_picture_42476.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Disney Epic Mickey: Rebrushed (2024) [Ru/Multi] (15745129/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42497.jpgsave_picture_42497.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Three Alpha One Nine (2024) [En] (1.2.5.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42541.jpgsave_picture_42541.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Abnormal1999: The Compass and the Sand / Аномалия1999: Компас и �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42543.jpgsave_picture_42543.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Emptiness (2015) [En] (1.0) Scene PROPHET [Deluxe Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42548.jpgsave_picture_42548.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Grapple Dogs: Cosmic Canines (2024) [Multi] (1.0.2) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42557.jpgsave_picture_42557.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ How We Die (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42574.jpgsave_picture_42574.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Slackers - Carts of Glory (2024) [Ru/Multi] (0.9975) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42575.jpgsave_picture_42575.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Virtual Rides 3 - Funfair Simulator (2017) [Multi] (2.6.0f2.2/dlc) License GOG [
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42579.jpgsave_picture_42579.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Copycat (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42588.jpgsave_picture_42588.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.22714s/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42631.jpgsave_picture_42631.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Internet Cafe & Supermarket Simulator 2024 (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42646.jpgsave_picture_42646.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Just a To the Moon Series Beach Episode (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42650.jpgsave_picture_42650.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Combat Mission: Battle for Normandy (2023) [En] (4.05/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42653.jpgsave_picture_42653.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42665.jpgsave_picture_42665.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Prototype (2009) [Ru/Multi] (1.0.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42670.jpgsave_picture_42670.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Perennial Order (2024) [Ru/Multi] (1.0.1 HotFix 3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42681.jpgsave_picture_42681.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Spiral (2024) [Multi] (20240920PC-01) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42684.jpgsave_picture_42684.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Broforce (2015) [Multi] (3148/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42686.jpgsave_picture_42686.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Footgun: Underground (2024) [Ru/Multi] (1.0.1.0e) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42731.jpgsave_picture_42731.jpg" />
 </div>
 
 

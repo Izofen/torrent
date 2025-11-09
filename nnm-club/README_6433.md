@@ -6,7 +6,7 @@ QuickMemoryTestOK 4.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203945.jpgsave_picture_203945.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:0A01C8AC25BCE4E116297FC2D2A4D0F259189D01
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203946.jpgsave_picture_203946.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:EF90AF790E7048563990A663A2E9DDC02572B73C
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203947.jpgsave_picture_203947.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VPN Inf - Security Fast VPN 7.5.815 Mod by ModdingUnited [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203948.jpgsave_picture_203948.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:1F710D17D732D16FA0E3FA442138140DD23200F2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203949.jpgsave_picture_203949.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:C8B2E0B94A90EAC5EE4B9C1B0CA91FA30D542047
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203950.jpgsave_picture_203950.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:B1C64D08A6A153AD72E5FBC97921279D67D4A6CF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203951.jpgsave_picture_203951.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:EE35C23D606E63FD5D3C1EA5AE80BF571DA8740D
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203952.jpgsave_picture_203952.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:6921891C276A6C1D3902BA921CA4B0A17ED2AF00
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203953.jpgsave_picture_203953.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ WinTools.net Premium 23.9.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203954.jpgsave_picture_203954.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.0.0 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203955.jpgsave_picture_203955.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - I'm Listening Now 4 (2023) [MP3|320 Kbps] <Club, House, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203956.jpgsave_picture_203956.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:411C166500A21A2097438EA52B1B470DD80ED35E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203957.jpgsave_picture_203957.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:F81853C6E6449A83F86158F4EA06C6EF69EE56BB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203958.jpgsave_picture_203958.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:06205C79305551DF1F36A151CD829EE889EAE05C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203959.jpgsave_picture_203959.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ TechSmith Snagit 2023.0.3 Build 25088 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203960.jpgsave_picture_203960.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:E7ECDA718D01A4C1F5D29BB53383E2080F86A945
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203961.jpgsave_picture_203961.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Windows 11 Debloater 1.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203962.jpgsave_picture_203962.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:B6255EB300AAF5E75EDD716C00E98D371EEFE04D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203963.jpgsave_picture_203963.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:FFE4983994B8108FAC102A55EC230BF4542051EE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203964.jpgsave_picture_203964.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:9E5527AB7B1935DD630C7D0DBEDBB3B891E198F2
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203965.jpgsave_picture_203965.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:EB3FC2238C6BCF7BCD8E68941DCA54A3A692775E
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203966.jpgsave_picture_203966.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 13.01.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203967.jpgsave_picture_203967.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:4C9B3B726CB9CAC7C4C4C8FDFBA919CC31FF7DD5
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203968.jpgsave_picture_203968.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:E355BC638CE4E4DF2B8934EFB14E593B2E886AF5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203969.jpgsave_picture_203969.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:C4FA45341F52C97415F26F8C24EFED9373FF3C92
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203971.jpgsave_picture_203971.jpg" />
 </div>
 
 

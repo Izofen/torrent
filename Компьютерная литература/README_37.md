@@ -6,7 +6,7 @@ Marten Deinum, и др. | Spring 6 Recipes: A Problem-Solution Approach to Sprin
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251949.jpgsave_picture_251949.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Junghyun Seok | Анатомия Стоунхауса / Stonehouse's Anatomy (20
 >>2D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251980.jpgsave_picture_251980.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Sveta Smirnova, Alkin Tezuysal | MySQL Cookbook, 4th Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252201.jpgsave_picture_252201.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Florian Rappl | Modern Frontend Development with Node.js (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252206.jpgsave_picture_252206.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:896BFF2A13AFF210659947816296ABBC130897ED
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252256.jpgsave_picture_252256.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:762C2AD7B9EE0C8E27299F5E228A411A196465AB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252262.jpgsave_picture_252262.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:95001E17347523590C5EE9B48FEAA47402E6DCEF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252263.jpgsave_picture_252263.jpg" />
 </div>
 
 

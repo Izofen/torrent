@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167658.jpgsave_picture_167658.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ JetBrains PyCharm Professional 2019.3 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167659.jpgsave_picture_167659.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F24B8358D37FC44F8C404D6F237AD03E27FC716A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167660.jpgsave_picture_167660.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FB34EA055E1BD5A25466218C6B91B9BF2DD67A2C
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167661.jpgsave_picture_167661.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E58D33DAC8F45C4360592BD4FAF37C31DE480A79
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167662.jpgsave_picture_167662.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Adobe Lightroom Classic 2020 9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167663.jpgsave_picture_167663.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:B32A82DFF65122BF48AE88BA2862272A89C51BEB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167664.jpgsave_picture_167664.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Boris FX Mocha Pro for Mac 2023 v10.0.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167665.jpgsave_picture_167665.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ uDock 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167666.jpgsave_picture_167666.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ CCleaner Pro: ПО для очистки 23.21.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167667.jpgsave_picture_167667.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:5A45F02A0DBC06BF8DE341F5D5502A8FB5B69353
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167668.jpgsave_picture_167668.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:CFEF705FC2934724B7AD8E7390F7E77909E01852
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167669.jpgsave_picture_167669.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ ZOAHR - Apraxia (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Bluesy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167670.jpgsave_picture_167670.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:360635F36006800E786B663580F63111097B4184
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167671.jpgsave_picture_167671.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:DB9EA362F4924931A514A75832B227B5F98DF2BB
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167672.jpgsave_picture_167672.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:7FE641EAD7E175F206B384A3E315CF5FCFA7FC84
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167673.jpgsave_picture_167673.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:3B898DBA2BBE566A6626B5395C970330B5E2E821
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167674.jpgsave_picture_167674.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Ellington Trio - Things Ain't What They Used To Be (2022) JazzSick Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167675.jpgsave_picture_167675.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:DC93B5B848210A1FFFECCFD517523A93FF452720
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167676.jpgsave_picture_167676.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Phoenix Point (2019) [Ru/Multi] (1.0.54518) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167677.jpgsave_picture_167677.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:01B8211420999A396C9CE8B9529C8572E29DA4EB
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167678.jpgsave_picture_167678.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Richard Bargel - Dead Slow Stampede (2022) [FLAC|Lossless|WEB-DL|tracks] <Delta 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167679.jpgsave_picture_167679.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:EA5E9FE0F30AD7EBEF36C016256D78DCF5C0BB5A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167680.jpgsave_picture_167680.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:A6458722E79C27383F76490DE7A6429A30E9D0DC
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167681.jpgsave_picture_167681.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:8AA5CD743B035599F3AAD2D22A248591D86B5B88
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167682.jpgsave_picture_167682.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Finder Windows 1.5.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167683.jpgsave_picture_167683.jpg" />
 </div>
 
 

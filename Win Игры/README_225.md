@@ -6,7 +6,7 @@ RIDE 5 (2023) [Multi] (20240124/dlc) Scene Rune [Special Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120755.jpgsave_picture_120755.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Magic City Detective 4: Wrath of the Ocean (2024) [Multi] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120843.jpgsave_picture_120843.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ RIN: The Last Child (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120865.jpgsave_picture_120865.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Source (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120878.jpgsave_picture_120878.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.0) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120896.jpgsave_picture_120896.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.14.2) License GOG (обновляе�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120910.jpgsave_picture_120910.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Apex Heroines (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121188.jpgsave_picture_121188.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Monster Hunter Rise (2022) [Ru/Multi] (16.0.2.0/dlc) Scene Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121219.jpgsave_picture_121219.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ GRAVEN (2021) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121224.jpgsave_picture_121224.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Luna's Fishing Garden (2021) [Ru/Multi] (1.2.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121347.jpgsave_picture_121347.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Around the World 2: Travel to Canada / Вокруг света 2: Путешес
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121349.jpgsave_picture_121349.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Eternights (2023) [Multi] (20230920) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121377.jpgsave_picture_121377.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.13.1.1/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121379.jpgsave_picture_121379.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121415.jpgsave_picture_121415.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Universim (2018) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121420.jpgsave_picture_121420.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (Build 20188271) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121441.jpgsave_picture_121441.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack FitGirl [Enhance
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121443.jpgsave_picture_121443.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack seleZen [Enhance
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121444.jpgsave_picture_121444.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack Other s [Enhance
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121447.jpgsave_picture_121447.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Serious Sam 3: BFE (2011) [Ru/Multi] (3.0.3.0.261096/dlc) Repack Other s [Gold E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121480.jpgsave_picture_121480.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (Build 20188271) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121586.jpgsave_picture_121586.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (Build 20188271/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121588.jpgsave_picture_121588.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.0501) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121626.jpgsave_picture_121626.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Sovereign Syndicate (2024) [En] (1.0.25) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121628.jpgsave_picture_121628.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Merchant of the Skies (2019) [Ru/Multi] (1.6.7) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121636.jpgsave_picture_121636.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Cliff Empire (2019) [Ru/Multi] (1.34) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121644.jpgsave_picture_121644.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161403.jpgsave_picture_161403.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Peter Weiss - Conversation With Six-String People (2022) JazzSick Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161404.jpgsave_picture_161404.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D0BED57F6E43005847D97144863AA7DA84CC1EA9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161405.jpgsave_picture_161405.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:53544C6EE57E0FB71B20945A5B63E163EECA5207
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161406.jpgsave_picture_161406.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Binary Creed - A Battle Won (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161407.jpgsave_picture_161407.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:9FE2F55373DBD98B729EF06C0FFBD66658BFC42D
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161408.jpgsave_picture_161408.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ El Mashe - Спасение утопающих (2020) [MP3|320 Kbps] <Alternativ
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161409.jpgsave_picture_161409.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ EverWeb (Standalone) 3.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161410.jpgsave_picture_161410.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:D3D0E6515D5BCD2F9FE561C0B3FC845F66000270
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161411.jpgsave_picture_161411.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Wondershare Recoverit for Mac 12.0.17.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161412.jpgsave_picture_161412.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Separation Studio 2.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161413.jpgsave_picture_161413.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:DBB3E03EA3A00F6F487C972F2EBD41244E6C606E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161414.jpgsave_picture_161414.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:434D4B62DB45AF3A1299CADC742A7C58C35167E2
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161415.jpgsave_picture_161415.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ WidsMob Montage 2.26 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161416.jpgsave_picture_161416.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Dinah Washington - 3 Essential Albums (1954 - 1956) 3CD, 2017, Universal [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161417.jpgsave_picture_161417.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Noize MC - Выход в город (2021) Deluxe Edition [MP3|320 Kbps] <Rap, H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161418.jpgsave_picture_161418.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Robert Connely Farr - Shake It (2022) [FLAC|Lossless|WEB-DL|tracks] <Marsh blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161419.jpgsave_picture_161419.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:4EEB039B24FEAAADB876513AC031690503ED2A71
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161420.jpgsave_picture_161420.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Blues from Russia (2021) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161421.jpgsave_picture_161421.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Vanessa Zamora - Tornaluna (2018) [FLAC|Lossless|image + .cue] <Latin, Indie, Fo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161422.jpgsave_picture_161422.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Tet Rishonot - Девять первых (2022) [MP3|320 Kbps] <Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161423.jpgsave_picture_161423.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:8DBFEFD83B20421DF9FDDDF6A15EA5EA97F3298B
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161424.jpgsave_picture_161424.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Matt Belsante - White Christmas (2008) [FLAC|Lossless|tracks + .cue] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161425.jpgsave_picture_161425.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ SponsorBlock for YouTube 5.4.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161426.jpgsave_picture_161426.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Blues Whale - Leaving The Blues Behind (2021) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161427.jpgsave_picture_161427.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Ulf Meyer & Martin Wind Featuring Billy Test And Alex Riel - Time Will Tell (202
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161428.jpgsave_picture_161428.jpg" />
 </div>
 
 

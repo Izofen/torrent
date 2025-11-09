@@ -6,7 +6,7 @@ Topaz Gigapixel 1.0.1 + models Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1363.jpgsave_picture_1363.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kakkou no Iinazuke Season 2 | A Couple of Cuckoos Season 2 | Обручённы�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1364.jpgsave_picture_1364.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EC0F96DD39369180C7D99B60F1AE522B68138CDF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1365.jpgsave_picture_1365.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack FitGirl [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1366.jpgsave_picture_1366.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0B8E11587C8FAB87FCBA1E9DB5A57261A04E30F3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1367.jpgsave_picture_1367.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack seleZen [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1368.jpgsave_picture_1368.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Scene Rune [Digital Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1369.jpgsave_picture_1369.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Craft The World (2014) [Ru/Multi] (1.11.007/dlc) Repack Let'sРlay [Ultimate Cra
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1370.jpgsave_picture_1370.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Yet Another Zombie Survivors (2023) [Ru/Multi] (B.0.9.0a) Repack Let'sРlay [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1371.jpgsave_picture_1371.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1372.jpgsave_picture_1372.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Reality Break (2025) [Multi] (1.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1373.jpgsave_picture_1373.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:1D265ED7707760381B6AF09330F409653C2AAC2C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1374.jpgsave_picture_1374.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:1D265ED7707760381B6AF09330F409653C2AAC2C
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1375.jpgsave_picture_1375.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Nukitashi the Animation | Нукитаси [2025, TV, 10 из 11 эп.] WEBRip 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1376.jpgsave_picture_1376.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Kizetsu Yuusha to Ansatsu Hime | Обморочный герой и принце
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1377.jpgsave_picture_1377.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.4.0) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1378.jpgsave_picture_1378.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Swordhaven: Iron Conspiracy (2024) [Multi] (0.8.0) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1379.jpgsave_picture_1379.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Star Valor (2022) [Ru/Multi] (2.2.2e/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1380.jpgsave_picture_1380.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Grand Blue Season 2 / Grand Blue Dreaming 2 / Необъятный океан [�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1381.jpgsave_picture_1381.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:7A9B7FADCB5A8ECF5FEDF95E7940D79156945109
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1382.jpgsave_picture_1382.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2014.013.003.009.008/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1383.jpgsave_picture_1383.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Hell Clock (2025) [Ru/Multi] (1.0.3 HF4/dlc) Repack Let'sРlay [Supporter Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1384.jpgsave_picture_1384.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.09.22.07.56/dlc) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1385.jpgsave_picture_1385.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Summer Pockets / Летние карманы [2025, TV, 25 из 26] WEBRip 720p 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1386.jpgsave_picture_1386.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:E31E623A859C7B7541D4D6A00B1E6028958246EE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1387.jpgsave_picture_1387.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:8BA85A7A69B75150DF3318F9A4A5F8FB21C05535
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1388.jpgsave_picture_1388.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Auslogics Windows Slimmer 4.0.0.4 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175083.jpgsave_picture_175083.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - The Forest Chill Lounge, Vol. 17 (Deep Moods Music with Smooth Ambient & Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175085.jpgsave_picture_175085.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lamb Of God - Omens (2022) [FLAC|Lossless|image + .cue] <Thrash, Metalcore, Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175086.jpgsave_picture_175086.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Macrorit Partition Expert 8.0.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175087.jpgsave_picture_175087.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Microsoft Edge 87.0.664.57 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175088.jpgsave_picture_175088.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Auslogics Driver Updater 1.26.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175090.jpgsave_picture_175090.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:BAD73045FE11E0959F8A297A9086AE8711278D70
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175091.jpgsave_picture_175091.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Vivaldi 3.5.2115.73 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175092.jpgsave_picture_175092.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VSDC Video Editor Pro 8.3.1.482 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175094.jpgsave_picture_175094.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:693B8F3D3BCD067846F01A876B22F95010A2C550
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175095.jpgsave_picture_175095.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Zoc Terminal 8.01.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175096.jpgsave_picture_175096.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:DA0F326BEFCF23493B24CFF4358AB401FE485E2A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175097.jpgsave_picture_175097.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:6E95E44E18FA8FB96D39F7CF88AE48A4F7D28282
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175098.jpgsave_picture_175098.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Balabolka 2.15.0.761 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175099.jpgsave_picture_175099.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:833BC6597867E2A6954FBE1C765AF1D5AA61F9E0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175100.jpgsave_picture_175100.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Julie Parsons - Piano Lady (1977) LP [MP3|320 Kbps] <Pop, Funk-Soul, Easy Listen
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175101.jpgsave_picture_175101.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:08F6067DF87B4AE81CF5853FC52571E529EA9036
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175102.jpgsave_picture_175102.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Menschdefekt - Recombination (2022) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro,
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175103.jpgsave_picture_175103.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ The Hong Kong Sleepover - 4 Albums (2009-2019) [MP3|320 Kbps] <Hard Rock,  Heavy
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175105.jpgsave_picture_175105.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Auslogics Anti-Malware Pro 1.23.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175106.jpgsave_picture_175106.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Cyan Kicks - Someone Like You (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175107.jpgsave_picture_175107.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Kaкoй oтпуcк! / Vaya vacaciones! (2023) WEB-DLRip [H.264/1080p] [MVO] [AD]
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175109.jpgsave_picture_175109.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Les Big Byrd - Eternal Light Brigade (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175111.jpgsave_picture_175111.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ CameraBag Pro 2023.4.0 RePack (& Portable) by elchupacabra
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175112.jpgsave_picture_175112.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:AC52A3C1C0B3A401A967BC8A1A9D0A2F3C7B5351
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175114.jpgsave_picture_175114.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Viber 21.1.0.11 (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175115.jpgsave_picture_175115.jpg" />
 </div>
 
 

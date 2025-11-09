@@ -6,7 +6,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79148.jpgsave_picture_79148.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Whitesnake - Here I Go Again: The Whitesnake Collection (2002) 2CD [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79149.jpgsave_picture_79149.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Whitesnake - Here I Go Again: The Whitesnake Collection (2002) 2CD [FLAC|Lossles
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79150.jpgsave_picture_79150.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Nat Geo Wild: Болотные львы / Swamp Lions (2011) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79153.jpgsave_picture_79153.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Noisia - Split The Atom: Special Edition (2012) [MP3|320 кб/с]<Drum & Bass, D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79171.jpgsave_picture_79171.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ magnet:?xt=urn:btih:36108F8FCF399AA08148B3C964C7B0491048B84D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79175.jpgsave_picture_79175.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:3745AB1B00B95742B7B24FA9DC201076FE08D328
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79182.jpgsave_picture_79182.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:3745AB1B00B95742B7B24FA9DC201076FE08D328
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79183.jpgsave_picture_79183.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:F16667325472656B66AD52EAFF2B83B357962FE8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79184.jpgsave_picture_79184.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:F16667325472656B66AD52EAFF2B83B357962FE8
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79185.jpgsave_picture_79185.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:F16667325472656B66AD52EAFF2B83B357962FE8
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79191.jpgsave_picture_79191.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:F16667325472656B66AD52EAFF2B83B357962FE8
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79192.jpgsave_picture_79192.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:4D45F26C99BD47255DF34497F7FD00DD05927B3A
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79197.jpgsave_picture_79197.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:8F87D7814B2C49A1304261102501673710978DCC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79205.jpgsave_picture_79205.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:8F87D7814B2C49A1304261102501673710978DCC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79206.jpgsave_picture_79206.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:B4CA16AB28C7C34A07DE4054BCDBC7542AE0B0F3
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79207.jpgsave_picture_79207.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:BFA13380D8852DF8D8B8C058A54F537E2003B64E
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79209.jpgsave_picture_79209.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:AC7B6A7C3D45399A3DDC5FDF2F27CCC1A88B4FE6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79210.jpgsave_picture_79210.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79212.jpgsave_picture_79212.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:0F5EC8528E27AE033CC9BB31863E0AEBD2860E49
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79213.jpgsave_picture_79213.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:0F5EC8528E27AE033CC9BB31863E0AEBD2860E49
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79218.jpgsave_picture_79218.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:0F5EC8528E27AE033CC9BB31863E0AEBD2860E49
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79221.jpgsave_picture_79221.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ TechTool Pro 6.0.4 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79224.jpgsave_picture_79224.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ TechTool Pro представляет собой комплексное реше
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79226.jpgsave_picture_79226.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ TechTool Pro представляет собой комплексное реше
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79227.jpgsave_picture_79227.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Nokia, Samsung | Сервис мануалы мобильных телефоно
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79228.jpgsave_picture_79228.jpg" />
 </div>
 
 

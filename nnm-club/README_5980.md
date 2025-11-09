@@ -6,7 +6,7 @@ Joshua M Willman | Beginning PyQt, 2nd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188221.jpgsave_picture_188221.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F03820A8DA3862CA398323F3F57109FD2E2E8426
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188222.jpgsave_picture_188222.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4945C1D3AE8D89E1ACBCF8C4C239EAC8801473F8
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188224.jpgsave_picture_188224.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Patrick Hall, James Curtis | Machine Learning for High-Risk Applications (2023) 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188225.jpgsave_picture_188225.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Joplin 2.12.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188226.jpgsave_picture_188226.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:33DB14EEC7075582E0001A1BED492055DA13A4B5
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188227.jpgsave_picture_188227.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Trance 100 - Best Of Summer 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188228.jpgsave_picture_188228.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:BE033077F9B0CC454C63A5F8F5FAFD0336DF9ABB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188229.jpgsave_picture_188229.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ HiBit Uninstaller 3.1.62 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188230.jpgsave_picture_188230.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Peter Royal | Building Modern Business Applications (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188231.jpgsave_picture_188231.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:4E513004599AF3E5A1DB2C35C62A9470F24AE7D6
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188232.jpgsave_picture_188232.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ SoundSource 5.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188233.jpgsave_picture_188233.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:AB9F892E78BA7A0199CA1D3CA750532B59860E27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188234.jpgsave_picture_188234.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:85F2567F895DFEE58DE1B86BC77A225D338CD423
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188235.jpgsave_picture_188235.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:0BA70E6F687781F435627419D8107140EBF7E8DD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188236.jpgsave_picture_188236.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - Black Hole House Music 09-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188237.jpgsave_picture_188237.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:657D2505FEB2CFC61AE33E4F0EF3EDFF6469AD8F
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188238.jpgsave_picture_188238.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - Ibiza Closing Party 2023 Trance [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188239.jpgsave_picture_188239.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Aiseesoft Mac FoneLab for iOS 10.3.82 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188240.jpgsave_picture_188240.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:DB7F962F69E2AFFFE13AB2DA53F105D14605A154
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188241.jpgsave_picture_188241.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Bonnie Tyler - Free Spirit (1995) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188242.jpgsave_picture_188242.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Cool Menu 1.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188243.jpgsave_picture_188243.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - KuschelRock 11 (1997) 2CD [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188244.jpgsave_picture_188244.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:4CB90D23BE790E8B9918051C1588C821E784803F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188245.jpgsave_picture_188245.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:D4AC1797CA8B665821FDC0D3C216BEE744D68E8C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188246.jpgsave_picture_188246.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Sullvation - The Beginning of the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188247.jpgsave_picture_188247.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Beast Mode Hip Hop 2 (2023) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170849.jpgsave_picture_170849.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Shazam Хит-парад World Top 200 Ноябрь (2021) [MP3|320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170890.jpgsave_picture_170890.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sardø - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170952.jpgsave_picture_170952.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Sensual Sexy Songs (2023) [MP3|320 Kbps] <Pop, R&b, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170969.jpgsave_picture_170969.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Lo-Fi Harmony vol.2 (2023) [MP3|320 Kbps] <Lounge, Downtempo, Lo Fi>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171173.jpgsave_picture_171173.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Music News vol.309 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171343.jpgsave_picture_171343.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ MENDA - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171362.jpgsave_picture_171362.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Neuron - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171367.jpgsave_picture_171367.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hussein Arbabi - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171379.jpgsave_picture_171379.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Aykan Emir - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171384.jpgsave_picture_171384.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Harmonic Electro Jazz (2023) [MP3|320 Kbps] <Electro Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171386.jpgsave_picture_171386.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Umar Keyn - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171647.jpgsave_picture_171647.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Rock For All Times (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171672.jpgsave_picture_171672.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Musica Gregoriana Catolica (2023) [MP3|320 Kbps] <New Age, Symphonic, Grego
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171674.jpgsave_picture_171674.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - The Official UK Top 100 Singles Chart 20.10.2023 [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171700.jpgsave_picture_171700.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Power Up! 2 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171704.jpgsave_picture_171704.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - 60 minutes. Old School Dance Music vol.21 (mixed by Dj V) (2023) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171707.jpgsave_picture_171707.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Relaxing Rhythms - Chill Electronic (2023) [MP3|320 Kbps] <Electronic, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171710.jpgsave_picture_171710.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Fitness Motivation Hits 2023 [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171883.jpgsave_picture_171883.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Limora - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172078.jpgsave_picture_172078.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Music News vol.307 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172079.jpgsave_picture_172079.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Music News vol.308 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172086.jpgsave_picture_172086.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Workout, Beast Mode, Aggressive (2023) [MP3|320 Kbps] <Rock, Hard Rock, Oth
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172255.jpgsave_picture_172255.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - 60 minutes. Old School Dance Music vol.20 (mixed by Dj V) (2023) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172614.jpgsave_picture_172614.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Hillbilly Moon - Compilation (2023) [MP3|320 Kbps] <Rockabilly>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172632.jpgsave_picture_172632.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Electronic compilation part 38 (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172789.jpgsave_picture_172789.jpg" />
 </div>
 
 

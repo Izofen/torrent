@@ -6,7 +6,7 @@ Ofdrykkja/Vanhelga/Psychonaut 4/In Luna - Urban Negativism (2015) Split [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169288.jpgsave_picture_169288.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vella - 3 Albums (2020-2022) [MP3|320 Kbps] <Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169295.jpgsave_picture_169295.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Stratovarius - S.O.S. (1998) Single [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Po
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169309.jpgsave_picture_169309.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bifrost - Her Den (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169312.jpgsave_picture_169312.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sutura Apparatus - 2 Albums (2020-2022) [MP3|320 Kbps] <Depressive rock, Doom me
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169319.jpgsave_picture_169319.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Drakmord - Iter (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169322.jpgsave_picture_169322.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Shaam Larein - Sticka En Kniv I Världen (2022) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169328.jpgsave_picture_169328.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:AC6854A09996E487FEFC17C38E3DDD6E1D621275
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169330.jpgsave_picture_169330.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Stratovarius - A Million Light Years Away (2000) Single [OGG Vorbis|480 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169332.jpgsave_picture_169332.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Void Vator - Stranded (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169333.jpgsave_picture_169333.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:B1AE8D3AFDA7DA1D194D496DC67C1399D0EB99CA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169335.jpgsave_picture_169335.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Anderdog - Kelgoma (2022) [FLAC|Lossless|WEB-DL|tracks] <Experimental Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169358.jpgsave_picture_169358.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bloodstone - Fight For Jerusalem (1995) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169359.jpgsave_picture_169359.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - No Ballads: Hard Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169364.jpgsave_picture_169364.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Face It - Let's Face It! (1994) [FLAC|Lossless|image + .cue] <AOR, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169371.jpgsave_picture_169371.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Maharaja - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Sto
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169384.jpgsave_picture_169384.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Forces United - 2 Studio Albums (2020-2021) 3xCD [FLAC|Lossless|image + .cue] <H
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169400.jpgsave_picture_169400.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Iron Savior - Firestar (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169418.jpgsave_picture_169418.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Asper X - Для тех, кто молчит (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169435.jpgsave_picture_169435.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Firewind - Still Raging (Live At Principal Club Theater) (2023) 2 x CD [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169449.jpgsave_picture_169449.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Forces United - Hits From Metal Musicals (2021) [FLAC|Lossless|image + .cue] <He
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169475.jpgsave_picture_169475.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:796DB5517A7424BB1480BD8FF0AB8F2576C9B2CE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169511.jpgsave_picture_169511.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Soreption - Engineering The Void (2014) [WavPack|Lossless|image + .cue] <Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169556.jpgsave_picture_169556.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Molybaron - Something Ominous (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169557.jpgsave_picture_169557.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Muse - Ghosts (How Can I Move On) [feat. Mylene Farmer] (2022) Single [FLAC|Loss
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169583.jpgsave_picture_169583.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Roger Waters - The Lockdown Sessions (2022) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169641.jpgsave_picture_169641.jpg" />
 </div>
 
 

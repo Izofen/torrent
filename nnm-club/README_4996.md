@@ -6,7 +6,7 @@ VA - Хитовая зима №1 (2015) [MP3|256-320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156096.jpgsave_picture_156096.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Autumn Lies Buried - Aristocracy (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156097.jpgsave_picture_156097.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Benny Carter - Further Definitions (1961, 1966) 2005, Impulse! [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156098.jpgsave_picture_156098.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:99A1DCC369E2E9C6D6DB1677E10BD09D94D72945
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156099.jpgsave_picture_156099.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:E4AA20145453EA2E1F6BE43500E561758040BAFB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156100.jpgsave_picture_156100.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:E4AA20145453EA2E1F6BE43500E561758040BAFB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156101.jpgsave_picture_156101.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:0EC6BE1A3C9BE81E97FBB17DA6017CE45013338A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156103.jpgsave_picture_156103.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Hoax - Conscience (1995) Maxi-Single [FLAC|Lossless|tracks + .cue] <Thrash, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156104.jpgsave_picture_156104.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Sila Slona - 3 Albums (2017-2022) [MP3|320 Kbps] <Contemporary Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156105.jpgsave_picture_156105.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:0ABE56F3745145A165C446CCAFAD6AB85163C394
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156106.jpgsave_picture_156106.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ VA - Fabulous Lounge (The Most Wanted Lounge Grooves), Vol. 1 (2021) [AAC|~329 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156107.jpgsave_picture_156107.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:EAE14E418A1A40BA1F9B05ABCB6EC8654F032DB9
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156108.jpgsave_picture_156108.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:3A96DF74112E28D8A42A34BD8D02CC5B0FC390F3
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156109.jpgsave_picture_156109.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:5C4D21D3A346AC163347216588FAD5A3504AF000
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156110.jpgsave_picture_156110.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:1AB8D38C5645AD4A3DDF680A093572EBBDB20394
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156111.jpgsave_picture_156111.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Spleen - Ocaso (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156113.jpgsave_picture_156113.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Act-3D Lumion Pro 8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156114.jpgsave_picture_156114.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Oneyed Jack - Prepare To Reactivate Sampler (2001) Single [FLAC|Lossless|tracks 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156115.jpgsave_picture_156115.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:45FB72BB30B1BAF6FE378AB2AD6BB1084ACFDA93
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156116.jpgsave_picture_156116.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ ON1 Photo RAW 2022.1 v16.1.0.11629 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156117.jpgsave_picture_156117.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:2CF0CC80CABB2BDF0DAC00B6DC46A544B4F09EEC
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156119.jpgsave_picture_156119.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:0CD1C08D4F712997F49DA38036F82F0DE759240D
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156120.jpgsave_picture_156120.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Adobe Acrobat Pro DC 2019.021.20061 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156121.jpgsave_picture_156121.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:94C50957680534F71945B684D7633C9498CB4C1B
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156122.jpgsave_picture_156122.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - Best Of Toolroom 2021 (2021) [AAC|~338 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156124.jpgsave_picture_156124.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:F0043D5118B831BE791DF90D10B71EFB7DBE7A4D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156125.jpgsave_picture_156125.jpg" />
 </div>
 
 

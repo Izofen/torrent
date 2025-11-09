@@ -6,7 +6,7 @@ AIDA64 1.93 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196005.jpgsave_picture_196005.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B1C084A6F6C94249EBD4EA1FECA554B57AC7B3AD
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196006.jpgsave_picture_196006.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D6F8CF0A433646A32454A822065E2671FDF9D53B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196007.jpgsave_picture_196007.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C217E0028E83920C8C79DC1DA1459D6B73F63810
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196008.jpgsave_picture_196008.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows 11 3in1 VL (x64) Elgujakviso Edition (v.27.05.23) [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196011.jpgsave_picture_196011.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3921BF7E8E0DCC28A0E07911E972A9B1E2BB5B39
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196012.jpgsave_picture_196012.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:816F23BA89155A3FD124380E8F3EB1C4B24B57A4
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196013.jpgsave_picture_196013.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Ravenbound (2023) [Ru/Multi] (1.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196015.jpgsave_picture_196015.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:CC7683609AD8F3A3476C47E3D1E979A5EEDA59FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196016.jpgsave_picture_196016.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:C730BBDF8FAD4DB304F758D3A7AF5FACB1E74B2E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196017.jpgsave_picture_196017.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Styx: Master of Shadows (2014) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196018.jpgsave_picture_196018.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:B5050A835C6803C323BF98146CF4290505B3B1EE
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196019.jpgsave_picture_196019.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Runn.consulting, Николай Русанов | Умный дом как биз
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196020.jpgsave_picture_196020.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:9CE0A49D05E48E50CD5DE03A830A489798FD270B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196023.jpgsave_picture_196023.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:34DC3AE58EF3D3BF8CBE2042E87E97AE6BA2F2C7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196024.jpgsave_picture_196024.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:6C05E2B746ED88171381E18736D3E4A21EE57631
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196025.jpgsave_picture_196025.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ The Shore (2021) [Ru/Multi] (19.02.2022) Scene CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196026.jpgsave_picture_196026.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:035ACB762F4E1429FB33A5A559DA530E31DB66E2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196027.jpgsave_picture_196027.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:92A8211CE718C0A6E132F394ACA19798B3ED771D
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196028.jpgsave_picture_196028.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:4D6F2F45C019963EEE1719157F7FAB7F2249A2CC
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196029.jpgsave_picture_196029.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Ubuntu*Pack 20.04 Budgie (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196030.jpgsave_picture_196030.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:B7284B450A1A2FA9CDC3A8F4158824950E91394D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196033.jpgsave_picture_196033.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:E8788D2A0352ACB8A72551B989DA60DCD03B7C6A
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196034.jpgsave_picture_196034.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:BA8C7CFF9B244739247218F8B678A22678EA85B1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196035.jpgsave_picture_196035.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:3CAC9484A3B3D6E90A5D33A219CDBE83408C68ED
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196036.jpgsave_picture_196036.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:10DD7E6F1408E7B6251680C581CC5041509E1CD1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196037.jpgsave_picture_196037.jpg" />
 </div>
 
 

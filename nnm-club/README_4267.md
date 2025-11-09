@@ -6,7 +6,7 @@ NIUBI Partition Editor 9.9.0 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132380.jpgsave_picture_132380.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:80779330D01FE0D12604BE630CB27B659D1DCAA6
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132381.jpgsave_picture_132381.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E4BB2E3400082FF773354017C3CE17F4BF3F2868
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132382.jpgsave_picture_132382.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ UltraMon 3.2.2 [Англ.\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132383.jpgsave_picture_132383.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ UltraMon - приложение, разработанное специально
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132384.jpgsave_picture_132384.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:48FFC4E24C5D17A3510F20CBE14A833673199E91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132385.jpgsave_picture_132385.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:48FFC4E24C5D17A3510F20CBE14A833673199E91
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132386.jpgsave_picture_132386.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:7A3FBA29502413613848B22A52AE95926D500382
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132387.jpgsave_picture_132387.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:8EB4A8A57632AA203A57CB48E2F8DDCD76C17203
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132388.jpgsave_picture_132388.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:AF380007DE632E6EFEC79184D166DA55B034C0CC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132389.jpgsave_picture_132389.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:1697A6DE8A4DACA47A28B59E21690DC4694760F8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132391.jpgsave_picture_132391.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ ACDSee Photo Manager 15.1 Build 197 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132392.jpgsave_picture_132392.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Angra - Cycles Of Pain (2023) [FLAC|Lossless|image + .cue] <Progressive Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132393.jpgsave_picture_132393.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Mirillis Action! 1.12.2.0 [MULTi / Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132394.jpgsave_picture_132394.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Mirillis Action! - позволяет в режиме реального вре�
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132395.jpgsave_picture_132395.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:310617A5237C6A95F1ADEDE4B9BC7F313DFF78FC
 >>Костюмы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132398.jpgsave_picture_132398.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ First Squad - The Moment Of Truth / Первый отряд. Момент ист
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132399.jpgsave_picture_132399.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Bryan Ferry - Boys And Girls (1985) /2005 Remaster/ [DST 2.0, 5.1 1bit/2822,4kHz
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132401.jpgsave_picture_132401.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:83F604A041BE5DA3B77078E7EFC28727EE033AD1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132402.jpgsave_picture_132402.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Malwarebytes Anti-Malware 1.70.0.1100 Final Portable by T_BAG [Eng(Rus)] (x86/x6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132403.jpgsave_picture_132403.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Malwarebytes Anti-Malware - новая версия программы от со
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132404.jpgsave_picture_132404.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:548AAB4C9D7BD340C5ED06AB663247F85EF6D93A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132405.jpgsave_picture_132405.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:548AAB4C9D7BD340C5ED06AB663247F85EF6D93A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132406.jpgsave_picture_132406.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:3F5AD7449E27BBCB2A39B3E7FE180821DB895BDA
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132408.jpgsave_picture_132408.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ SideQuest - The Story of No One, Pt. 1-2 (2022-2023) [MP3|320kbps] <Symphonic Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132410.jpgsave_picture_132410.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:A10152970C7C56D4761BED6841396F347CDA7B54
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132411.jpgsave_picture_132411.jpg" />
 </div>
 
 

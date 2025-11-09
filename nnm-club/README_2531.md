@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66556.jpgsave_picture_66556.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Device Noize - Reflejos (2025) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66557.jpgsave_picture_66557.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Roman Messer - Serendipity (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66558.jpgsave_picture_66558.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:39814409768FC981690AC7D110B0212C089877F0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66559.jpgsave_picture_66559.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:82081BE1369C6586978499268A2583E194B422E2
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66560.jpgsave_picture_66560.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:5A3D8979558A7F2CA069B48AF8FF0F035BF25944
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66561.jpgsave_picture_66561.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:26DD4065827C508410359FE58B699A6992954662
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66562.jpgsave_picture_66562.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:EA5AECEBE253EED783699C69F5F953FB8A5E8F41
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66563.jpgsave_picture_66563.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:DA5F54846D92A7577282142D0E7EAA3A6BA48F0C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66564.jpgsave_picture_66564.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:1BBDFCCD5516404A27FF1F343FFFB3B715351D09
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66565.jpgsave_picture_66565.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:DE5BD3D93382AF08FFCA591979593A3F9DD1253D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66566.jpgsave_picture_66566.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Fatal Embrace - Hail Down Deep MCMXCVIII (2025) [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66567.jpgsave_picture_66567.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Mikio Masuda - Smokin' Night (1988) JVC [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66568.jpgsave_picture_66568.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Rosemary Clooney & The Count Basie Orchestra - At Long Last (1998) Concord Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66569.jpgsave_picture_66569.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:8ABF192302C0427CD56587DDCC9BF70B8F660559
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66570.jpgsave_picture_66570.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Mikio Masuda - Black Daffodils (1998) JVC [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66571.jpgsave_picture_66571.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Onslaught - Origins Of Aggression (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66572.jpgsave_picture_66572.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:49C8C80EADDA23520062C15A97A2391DD2CC3CFF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66573.jpgsave_picture_66573.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:CF73A11C18E43E0DE92724B9E7A95839B1D744C2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66574.jpgsave_picture_66574.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:D23B0EDD5CA702AB222C899CE88B3A17A5822007
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66575.jpgsave_picture_66575.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Queens of the Stone Age - Queens of the Stone Age (1998) Remaster, 2024 Matador 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66576.jpgsave_picture_66576.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Kmfdm - Hau Ruck 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, In
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66577.jpgsave_picture_66577.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:4624937AF9650B732C516F2EF09780890C3D0CA7
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66578.jpgsave_picture_66578.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:E5952B188AFA024327AE34F8076B1653889BD699
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66579.jpgsave_picture_66579.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:69BD56EC01248206A59D3CFBD3F00AF87F5F254B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66580.jpgsave_picture_66580.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Amsterdam Classic Trance Festival (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66581.jpgsave_picture_66581.jpg" />
 </div>
 
 

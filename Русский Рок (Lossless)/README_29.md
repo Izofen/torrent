@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186764.jpgsave_picture_186764.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:9146FC446DF03A4BABBC1553CBC98943EB0ABD92
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186878.jpgsave_picture_186878.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Repus Tuto Matos - МЫ(НЕ)МЫ (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Indus
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186929.jpgsave_picture_186929.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:7EDD7BE102BFCA7601CE2D68755FEA9F85DFFCCB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186989.jpgsave_picture_186989.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ LOUNA - Рубикон (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187109.jpgsave_picture_187109.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Rock-сказка - Часы весны I - III (2020-2022) 3 EP [FLAC|Lossless|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187206.jpgsave_picture_187206.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Vuara - 3 Releases (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Metalcor
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187264.jpgsave_picture_187264.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ KRAIDOL - Время настало (2022) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187286.jpgsave_picture_187286.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:234C96DA5040D767BA15B649C05BF356E392F4C3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187336.jpgsave_picture_187336.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Kill City Kills - Escape Into The Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187517.jpgsave_picture_187517.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Witchcraft - V (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Gothic Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187818.jpgsave_picture_187818.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Butterfly Temple - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188524.jpgsave_picture_188524.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ The Korea - Vorratokon (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188526.jpgsave_picture_188526.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Raven Said - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Occult Wave, Go
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188856.jpgsave_picture_188856.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Snowborn - Pipe of the Peace (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, S
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188890.jpgsave_picture_188890.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:8E2C0BACA8A7415C1DAFD3E686BF4BCE11CE660C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189293.jpgsave_picture_189293.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:A17A23C7D74B961D4E2E1E4636534C2EBFC76606
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189397.jpgsave_picture_189397.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Arida Vortex - Riders Of Steel (2020) Japanese Edition [FLAC|Lossless|image + .c
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190030.jpgsave_picture_190030.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Morokh - Insomnia (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Hardcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190195.jpgsave_picture_190195.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Tears Of Mankind - Memoria (2011) [FLAC|Lossless|image + .cue] <Doom, Death, Dar
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190219.jpgsave_picture_190219.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Tyler Durdenn - Пепел космоса (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190230.jpgsave_picture_190230.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:06DDA08AD954A6C55BAE202BA9C551255FF27FFB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190542.jpgsave_picture_190542.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Thunder Volt - 4 Releases (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Sto
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190609.jpgsave_picture_190609.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:E33B31E661FA93A404F3B12929A7A2F33833094A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190650.jpgsave_picture_190650.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ The Starkillers - Пираты Японского Моря (2023) [FLAC|Lossless
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190974.jpgsave_picture_190974.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Ravanna - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190982.jpgsave_picture_190982.jpg" />
 </div>
 
 

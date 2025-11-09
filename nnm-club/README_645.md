@@ -6,7 +6,7 @@ Abrania - Back To Our Sleazy Roots (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17087.jpgsave_picture_17087.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Disembodiment - Spiral Crypts (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17088.jpgsave_picture_17088.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dianne Reeves - That Day... (1997) Blue Note [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17089.jpgsave_picture_17089.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Jigsawscapes® - Пазлы v3.8.13 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17090.jpgsave_picture_17090.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Assorted Compilation Part 7 (2025) [MP3|320 Kbps] <Electronic, Easy listeni
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17091.jpgsave_picture_17091.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:C4173364C0BDD8EE73F857A69E594CD3492BD2FF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17092.jpgsave_picture_17092.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Garmin: City Navigator North America NT 2026.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17093.jpgsave_picture_17093.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Joe Bonamassa - Drive By The Exit Sign (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17094.jpgsave_picture_17094.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:7DEC5872DF179CD6A1A169DA5D9B7D96C9C24B2D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17095.jpgsave_picture_17095.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Magic Eraser / Магический ластик v2.21.25 Mod by Maximoff⁠ [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17096.jpgsave_picture_17096.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:E50ED00C87527E6CBE1F70FB1F08255A5234D8BB
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17097.jpgsave_picture_17097.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Dance Pop Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17098.jpgsave_picture_17098.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:B4031B61A180E44D2CB9EAAC2427816932299449
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17099.jpgsave_picture_17099.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:C768EBB106E1380C4723BAC70AEB8278867FF12C
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17100.jpgsave_picture_17100.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:8D324BA0B0D48B1B4BC5B430B76EC5D702522C13
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17101.jpgsave_picture_17101.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:A64ECDF341F8FE49447623A3DD516B9F8D01E295
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17102.jpgsave_picture_17102.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:A3672EB49F12D5CA520834B29447B1D17745677C
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17103.jpgsave_picture_17103.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:1A1258BF0C8140314FEC7B354B71AD83DD57CC42
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17104.jpgsave_picture_17104.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:7E3A6FA2B72BA7FE676A5F3A1CE84C3B65F6D703
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17105.jpgsave_picture_17105.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:E388FB22F6B6AC79FCA20AF7992062DDB4F52A76
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17106.jpgsave_picture_17106.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:75D5596CA9A3A4BCFA8E714C486296847D0AD182
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17107.jpgsave_picture_17107.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Smart AudioBook Player Pro v11.4.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17108.jpgsave_picture_17108.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:27C512AA7B00041910B893CD5633ABE0589C2773
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17109.jpgsave_picture_17109.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:81A80E8CA5A91ADECC9A24FF418FAC582C066FCF
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17110.jpgsave_picture_17110.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:5731830698282B9F4DA7E1D5CA0A04C5B857592A
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17111.jpgsave_picture_17111.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Gentle Rhythms: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17112.jpgsave_picture_17112.jpg" />
 </div>
 
 

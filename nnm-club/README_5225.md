@@ -6,7 +6,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162610.jpgsave_picture_162610.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:02A61879848AFEF73C849951C1B4B6E747CDDDB3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162611.jpgsave_picture_162611.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Blocs 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162612.jpgsave_picture_162612.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Carnifex - Necromanteum (2023) [FLAC|Lossless|tracks + .cue] <Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162613.jpgsave_picture_162613.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:35E3F2B2472BBABE0A63EF3AF83E2722926278B1
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162614.jpgsave_picture_162614.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:57190D2ECEA7195A3B5A32B0FE3FD3BAEB26E286
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162615.jpgsave_picture_162615.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:3625C03DCC5215415D0288D8A0407F17CA2A197F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162616.jpgsave_picture_162616.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Adobe Premiere Pro 2020 v14.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162617.jpgsave_picture_162617.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:F514CBECF20405F023B32258E875C121EF007C73
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162618.jpgsave_picture_162618.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ NCH WavePad Audio Editor Pro 17.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162619.jpgsave_picture_162619.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - Rock/Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162620.jpgsave_picture_162620.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Black Hornet - Remove Before Flight (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162621.jpgsave_picture_162621.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - The Metal Rock Summer Festival (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162622.jpgsave_picture_162622.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Sandboxie 5.61.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162623.jpgsave_picture_162623.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Acceso Norte - Shadows of Pain (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162624.jpgsave_picture_162624.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Tidabie Tidal Music Converter 1.4.4 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162625.jpgsave_picture_162625.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Sonic Dynamite - Another World (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162626.jpgsave_picture_162626.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Amadine 1.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162627.jpgsave_picture_162627.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:39EC44DD62B58DCF54B25332D38BA99FDD533A53
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162628.jpgsave_picture_162628.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:8C38B24BAC1F46FFC82DC9EA09E5CE0782813F06
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162629.jpgsave_picture_162629.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:AF2AAA3E757FB1152623344E4E3C1BC1441DECA0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162630.jpgsave_picture_162630.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Nevercenter CameraBag Pro 2023.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162631.jpgsave_picture_162631.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:4046F8066A1BA15E8D3C441F722211C1553B4D22
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162632.jpgsave_picture_162632.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:42CCBD836C89A89F7A55815433D5BBDA90282CF6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162633.jpgsave_picture_162633.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:2A970209DF886733D5F9623CF0D36EFBD67366AC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162634.jpgsave_picture_162634.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:EBBE084E9D2E4FA37ED1834FC8545C9B2B8CF60F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162635.jpgsave_picture_162635.jpg" />
 </div>
 
 

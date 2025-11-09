@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178691.jpgsave_picture_178691.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Auslogics Registry Cleaner Pro 10.0.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178692.jpgsave_picture_178692.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ GoldWave 6.70 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178695.jpgsave_picture_178695.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:80C7F8485DCF6B91AB359A45279EC6C262949985
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178696.jpgsave_picture_178696.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Michael Rother - Solo (2019) 5×CD, Compilation [FLAC|Lossless|tracks + .cue] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178699.jpgsave_picture_178699.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:287C7AC181F961E5875F79E482A1451709A7D17E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178701.jpgsave_picture_178701.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Roger Waters - The Dark Side of the Moon Redux (2023) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178702.jpgsave_picture_178702.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bandicam 7.0.0.2117 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178705.jpgsave_picture_178705.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:4614769B4A7F196E69C4590AF0E11C1956E87C1E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178706.jpgsave_picture_178706.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ PixelLab Pro - Text on pictures 2.0.7 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178709.jpgsave_picture_178709.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Deepti Chopra | Flutter and Dart (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178710.jpgsave_picture_178710.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ WinNTSetup 5.3.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178713.jpgsave_picture_178713.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:13325F26200E7DF85B1518A5DECE7CB4356C92F6
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178714.jpgsave_picture_178714.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ The Bat! Professional 10.5.0.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178717.jpgsave_picture_178717.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:9C7F1F0B329E9E2C1D6DCFCD7C08CF0C16FFAA53
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178718.jpgsave_picture_178718.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:2689EA4C1D82C231789148C0C68741FD5F422C67
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178720.jpgsave_picture_178720.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Mark Simon | Getting Started with SQL and Databases (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178722.jpgsave_picture_178722.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:E13BCA46FB5405E144408F47494740EC1C07B0CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178725.jpgsave_picture_178725.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:81BF19E32FE073AE7F53A157D6DB519A2A7C5705
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178726.jpgsave_picture_178726.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:7F74F84C0D0DCB97CB6E73D054D22712F36B7320
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178730.jpgsave_picture_178730.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:34C3BC63F377B2CAB8B3475AA57A92229A375991
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178731.jpgsave_picture_178731.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Ram & Kommo - Delirium (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Alternativ
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178734.jpgsave_picture_178734.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:AE16279ACD8A8CCFB5C1C4C7DACE512F4F00D1D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178735.jpgsave_picture_178735.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Wise Folder Hider Pro 5.0.2.232 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178737.jpgsave_picture_178737.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:889E3D504D010E560E053BE9DBA80B5E754FD667
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178739.jpgsave_picture_178739.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:8EBAA40C8D0CAEF7EE4E4078FAB9710512BE804B
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178741.jpgsave_picture_178741.jpg" />
 </div>
 
 

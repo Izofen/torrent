@@ -6,7 +6,7 @@ Dark Funeral - Dark Funeral (30th Anniversary Edition) (1994) EP, Reissue, Remas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105589.jpgsave_picture_105589.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Siamese - Elements (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Post-Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105590.jpgsave_picture_105590.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:D00893CD45431E99DA45137536EDD081B0BA240C
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105591.jpgsave_picture_105591.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:053A515020818F949570491629D61C2DA9ECB94E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105592.jpgsave_picture_105592.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Lumen - Lumen & Orchestra (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105593.jpgsave_picture_105593.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ OpenNumismat 1.9.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105594.jpgsave_picture_105594.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:0DA51CD61653CC34D37C08FBAF2526EB7DCE5677
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105595.jpgsave_picture_105595.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ File & Image Uploader 8.4.5 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105596.jpgsave_picture_105596.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Lumen - Lumen & Orchestra (2024) [MP3|320 Kbps] <Symphonic Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105597.jpgsave_picture_105597.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ SnapEdit - AI photo editor v6.7.3 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105598.jpgsave_picture_105598.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:8A40E256A51791130AC90C99448A35D4EFEDEACB
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105599.jpgsave_picture_105599.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:88693FC4FAB35BEFEA3623770E9284C6D4E748EF
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105600.jpgsave_picture_105600.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ David Hasselhoff - Crazy For You  (1990) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105601.jpgsave_picture_105601.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Three Drives - Three Drives On A Vinyl Mini Mix 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105602.jpgsave_picture_105602.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:2D66DCD8D5372BC38920BE3BC6CF3BEB3BADF21B
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105603.jpgsave_picture_105603.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ GeoGebra 6.0.851.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105604.jpgsave_picture_105604.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Sex Magick Wizards - Death Grip (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrument
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105605.jpgsave_picture_105605.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Gods and Punks - Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105606.jpgsave_picture_105606.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:BACBD4BB2467DA498CB553035C0EB160D900A6CB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105607.jpgsave_picture_105607.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:B73F68CCA6407F1393E5428865D92303457C5D20
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105608.jpgsave_picture_105608.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Brianna Harness - Spiritual Ecstasy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105609.jpgsave_picture_105609.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Jim Peterik And World Stage - Roots & Shoots, Vol. 2 (2024) [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105610.jpgsave_picture_105610.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Frozen Land - Studio Albums (2 releases) (2018-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105611.jpgsave_picture_105611.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ The Claus Ogerman Orchestra - Gate Of Dreams (1977) 1988, Warner [APE|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105612.jpgsave_picture_105612.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Geoff Everett - The Crow Hill Roadsters (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105613.jpgsave_picture_105613.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Blue Oyster Cult (Blue Öyster Cult) - 50th Anniversary Live - Second Night (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105614.jpgsave_picture_105614.jpg" />
 </div>
 
 

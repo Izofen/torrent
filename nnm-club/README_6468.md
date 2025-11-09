@@ -6,7 +6,7 @@ Jag Panzer - Dissident Alliance (1994) [FLAC|Lossless|image + .cue] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204872.jpgsave_picture_204872.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:80428B6C732D4C195F88FEA2D82C6EBC983BF954
 >>На досуге
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204873.jpgsave_picture_204873.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Next - La Coleccion (1991) Compilation [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204874.jpgsave_picture_204874.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:80797B841CAF782D072FC823FDF3FFEE079F3305
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204875.jpgsave_picture_204875.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Omar & The Howlers - What's Buggin' You? (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204876.jpgsave_picture_204876.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:F0E4D6A813D72EBAAB0AC9D0642C6C424A1307F0
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204877.jpgsave_picture_204877.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:8F445727CF823348932A32575B913A202B94E08B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204878.jpgsave_picture_204878.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:AC88A271085C7BEC282E334936C024A0EBCE9FD4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204879.jpgsave_picture_204879.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:006E0DDB03FF1DF6BDA1ABCD27D64C7DDFDD041E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204880.jpgsave_picture_204880.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Mountain Of Power - Volume Five (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204881.jpgsave_picture_204881.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:3F19EAB6B1AC5E35C9FDC4EA2AF3CA403A13B529
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204882.jpgsave_picture_204882.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:1715DD9FFDA23DCB3F30E033AB64F15E13DA3652
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204883.jpgsave_picture_204883.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:23EE1FADB53D56C1E9C11E7F583ACD2E248D9B44
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204884.jpgsave_picture_204884.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:389F5A549ACAAABB2CA068931E2A63FCB9329ECB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204885.jpgsave_picture_204885.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ TechSmith Camtasia 2023 Studio 2023.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204886.jpgsave_picture_204886.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:E5CA629EA1779E8E4742DD9214B26E30BCF390B9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204887.jpgsave_picture_204887.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:01B376755DDD834700C66F59EBD9BB3B30AB49DF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204888.jpgsave_picture_204888.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Volatile Ways - 2 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Beatdown Har
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204889.jpgsave_picture_204889.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:B24F2903E3F3A28C9BE41F51DAADB9072740520F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204890.jpgsave_picture_204890.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:11949AEE645D5919508135678CCC070DB3A7B49C
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204891.jpgsave_picture_204891.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:290969E7C7EECCB6061B79921AF73644C5550672
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204892.jpgsave_picture_204892.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Rising Alma - Awake (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Fema
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204893.jpgsave_picture_204893.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:0D2C00F8710B402AA565E9896B74BE8E22321474
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204894.jpgsave_picture_204894.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Larry Young - Young Blues (1960) 1994, Original Jazz Classics [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204895.jpgsave_picture_204895.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:253A512CAB9DE4430998324DFEAA89154AB01BAF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204896.jpgsave_picture_204896.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:3D62D376A84F45DE562E4D8D4A5613F8C35D255A
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204897.jpgsave_picture_204897.jpg" />
 </div>
 
 

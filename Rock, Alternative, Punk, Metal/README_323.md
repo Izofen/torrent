@@ -6,7 +6,7 @@ West Alley - A Night To Remember (2023) [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186287.jpgsave_picture_186287.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Phil Martin's Drive - Days Like These (2021) EP [FLAC|Lossless|image + .cue] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186288.jpgsave_picture_186288.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Aneurisma - Carodatavermibus (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186289.jpgsave_picture_186289.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Yawning Man - Pot Head (2016) Reissue, Remastered, 2023, Ripple Music [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186290.jpgsave_picture_186290.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Moth - Frost (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186291.jpgsave_picture_186291.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Chaver - Of Gloom (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore, Metalcore, Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186292.jpgsave_picture_186292.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Aeons Of Ashes - The Wasteland Chronicles (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186293.jpgsave_picture_186293.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Rebaelliun - Under The Sign Of Rebellion (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186294.jpgsave_picture_186294.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Billy's Band - В шляпе (2023) [MP3|320 Kbps] <Rock, Alco-jazz>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186411.jpgsave_picture_186411.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Who - Tommy (1969) Super Deluxe, 2014, Geffen [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186412.jpgsave_picture_186412.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Bonfire - 3 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186415.jpgsave_picture_186415.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Guns N’ Roses - Anarchy In The Uk (2020) 2023, SMOKIN'[FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186422.jpgsave_picture_186422.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:B298067ED0845BD5CDDFA28A41C840DC01C82FCB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186426.jpgsave_picture_186426.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Who - Quadrophenia (1973) Super Deluxe, 2014, Geffen [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186441.jpgsave_picture_186441.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Grave Digger - The Forgotten Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186444.jpgsave_picture_186444.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Octavus Lupus - Octavus Lupus (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186458.jpgsave_picture_186458.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Apostolica - Animae Haeretica (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186459.jpgsave_picture_186459.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Starbenders - Take Back The Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Gla
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186461.jpgsave_picture_186461.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Samurai Pizza Cats - You're Hellcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186464.jpgsave_picture_186464.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Domino Drive - Smoke And Mirrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186468.jpgsave_picture_186468.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Corey Taylor - CMF2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186475.jpgsave_picture_186475.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Great Master - Montecristo (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186476.jpgsave_picture_186476.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:7169FBC6218A5C74BC97C946D1304654051BDF9E
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186477.jpgsave_picture_186477.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Winterstorm - Everfrost (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Folk 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186478.jpgsave_picture_186478.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Rising Wings - Reach (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AO
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186480.jpgsave_picture_186480.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Askheimr - Askheimr (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186482.jpgsave_picture_186482.jpg" />
 </div>
 
 

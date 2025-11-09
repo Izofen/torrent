@@ -6,7 +6,7 @@ CCleaner 6.34.11482 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24207.jpgsave_picture_24207.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Izure Saikyou no Renkinjutsushi? / Possibly the Greatest Alchemist of All Time /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24208.jpgsave_picture_24208.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Revo Uninstaller Pro 5.3.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24209.jpgsave_picture_24209.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sonic X Shadow Generations (2024) [Ru/Multi] (1.01/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24210.jpgsave_picture_24210.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F754CBB3B978A71C16D09DA1E8004ADC797D4B6A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24211.jpgsave_picture_24211.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Windows 11 PRO 23H2 22631.5039 Update 17 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24212.jpgsave_picture_24212.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ DSSGroup, Даниил Попов | Школа автоподбора (2024) WEB
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24213.jpgsave_picture_24213.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:7EE2CBC41011383C62631A617F90CEBEA542DE18
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24214.jpgsave_picture_24214.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Heretic: Shadow of the Serpent Riders (1994) [En] (1.3/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24215.jpgsave_picture_24215.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:C8041E457D4408DCC4E94D5995F0F55ECBDEF5DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24216.jpgsave_picture_24216.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:9C1CE9AF91CDE4AA3024DFB80825702B042962EB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24217.jpgsave_picture_24217.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Vanced Tube v5.3.80.188 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24218.jpgsave_picture_24218.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ LosslessCut 3.65.0 Standalone (x64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24219.jpgsave_picture_24219.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.5.1.366685) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24220.jpgsave_picture_24220.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ EZ CD Audio Converter 12.1.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24221.jpgsave_picture_24221.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:FE20936C06DDA0A3831CF52BCE23C15C950D9F1A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24222.jpgsave_picture_24222.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:6C5D97C267643B79700307BB870D8050206CC117
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24223.jpgsave_picture_24223.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:75AECCBDE124ECAE00083CB46F67A7F39E8E77CC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24224.jpgsave_picture_24224.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Succubus (2021) [Ru/Multi] (18354/dlc) Repack Decepticon [The Worshipper Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24225.jpgsave_picture_24225.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:BC430B93908AC6953959EEE0F59EA5E9D66B75B4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24226.jpgsave_picture_24226.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Microsoft Windows 11 [10.0.26100.3476], Version 24H2 (Updated March 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24227.jpgsave_picture_24227.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Split Fiction (2025) [Ru/Multi] (Build 17714403) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24228.jpgsave_picture_24228.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24229.jpgsave_picture_24229.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:6E7808C526AE59053CB3C0AD99FA07A138853BAC
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24230.jpgsave_picture_24230.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:672F33079198C1E484B9B9E95CC7738B7FE3CEAC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24231.jpgsave_picture_24231.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Dungeon Tycoon (2024) [Ru/Multi] (1.1.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24232.jpgsave_picture_24232.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Виниловый бублик (1901-2019) [MP3|128-320 Kbps] <Classic, Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193648.jpgsave_picture_193648.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Понемногу отовсюду by Yuridar #K (1973-2020) Compilation A
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193761.jpgsave_picture_193761.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - A Message to Myself (Relax) (2023) [MP3|320 Kbps] <Electronic, Lounge, Rela
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193950.jpgsave_picture_193950.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - 30(19) Новые Песни (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193973.jpgsave_picture_193973.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VA - Music Therapy (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, Meditation>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194000.jpgsave_picture_194000.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - Дискотека 2023 Deep House - The Best Vol. 9 от NNNB [MP3|320 Kbp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194061.jpgsave_picture_194061.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ VA - ЕвроХит Топ 40 Europa Plus 18.08.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194082.jpgsave_picture_194082.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:F8E3E420ABD5EBC2FD46C085F2C84BD2BC9C3CC9
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194182.jpgsave_picture_194182.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Дискотека 2023 Dance Club Vol. 220 от NNNB [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194270.jpgsave_picture_194270.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Сегодня на радио хиты FM Vol.13 (2023) [MP3|320 Kbps] <Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194395.jpgsave_picture_194395.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Hammond Organ - The Sweet Life (2023) [MP3|320 Kbps] <Hammond, Instrumental
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194473.jpgsave_picture_194473.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:7E56490A685022E7E108D42558586626641497BA
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194719.jpgsave_picture_194719.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 13 (2023) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194892.jpgsave_picture_194892.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Музыка для машины Vol.36 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194979.jpgsave_picture_194979.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Музыка для машины Vol.34 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195122.jpgsave_picture_195122.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Ремейки и каверы NNM 5 (2023) [MP3|320 Kbps] <Pop, Dance, Oth
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195194.jpgsave_picture_195194.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Лето на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195314.jpgsave_picture_195314.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Summer Hits (2023) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195353.jpgsave_picture_195353.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 3 (2023) [MP3|192-320 Kbps] <De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195497.jpgsave_picture_195497.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Relax FM for a Good Evening 2 (2023) [MP3|320 Kbps] <Pop, Easy Listening>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195543.jpgsave_picture_195543.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Heavy Blues (2023) 2CD [MP3|320 Kbps] <Blues, Heavy Blues, Dark Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195549.jpgsave_picture_195549.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Modern Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195643.jpgsave_picture_195643.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Summer Dance Hits 2023 [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195654.jpgsave_picture_195654.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - ЕвроХит Топ 40 Europa Plus 14.07.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195700.jpgsave_picture_195700.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Музыка для машины Vol.30 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195889.jpgsave_picture_195889.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - Tik Tok Треки выстрелили летом 2023 [MP3|320 Kbps] <Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195910.jpgsave_picture_195910.jpg" />
 </div>
 
 

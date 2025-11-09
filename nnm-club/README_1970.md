@@ -6,7 +6,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51577.jpgsave_picture_51577.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:835EB7AF379CE10B8B05115E89C7EFBDA388F52C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51578.jpgsave_picture_51578.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CRYMACHINA (2023) [Multi] (1.2.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51579.jpgsave_picture_51579.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:A0A0053083FB3083EC44969C3F368DA1D51068E5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51580.jpgsave_picture_51580.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:4E5DBF004CC10B2530ED57229F813D5DCD88C607
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51581.jpgsave_picture_51581.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ VA - Stellar Transmissions (Compiled by Fabio Leal) - 2024 [FLAC|Lossless|WEB-DL
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51582.jpgsave_picture_51582.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:3D734B32755A8A5475C735146FCFB5413F0D1D51
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51583.jpgsave_picture_51583.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Eagles - Eagles Live (1980) Japanese Edition [FLAC|24/96|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51584.jpgsave_picture_51584.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Anastacia - Our Songs (2023) Gold Deluxe Edition, 2024, Stars by Edel [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51585.jpgsave_picture_51585.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:2A9703933CAC42081948D436919C408403098422
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51586.jpgsave_picture_51586.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:DF64659A88E46956DBA9BF0841577302E49934A8
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51587.jpgsave_picture_51587.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Through Fire - Devil's Got You Dreamin' (2023) [MP3|320 Kbps] <Alternative Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51588.jpgsave_picture_51588.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ MotoGP. Этап 08 из 20. Гран-при Нидерландов. Квали�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51589.jpgsave_picture_51589.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Kasbo - The Learning of Urgency (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51590.jpgsave_picture_51590.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:4EF430FD912DC47E553B0126B4DADF6968CE2D87
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51591.jpgsave_picture_51591.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Hiatus Kaiyote - Love Heart Cheat Code (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51592.jpgsave_picture_51592.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - DJ Hits Vol. 115 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51593.jpgsave_picture_51593.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:CA5D5B49CF4FECBDEEB57424DB33C78986554994
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51594.jpgsave_picture_51594.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:67D7EECB73B5709729EB4D754BE2E53F768154FD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51595.jpgsave_picture_51595.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Nebula & Black Rainbows - In Search Of The Cosmic Tale: Crossing The Galactic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51596.jpgsave_picture_51596.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ VA - EDM Summer Party 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51597.jpgsave_picture_51597.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Madeleine Peyroux - Let's Walk (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51598.jpgsave_picture_51598.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Madness - Theatre Of The Absurd presents C'Est La Vie (2023) Enhanced Edition, 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51599.jpgsave_picture_51599.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:15ABB9751DAC3C42E3CBE4697BD81DE9F5280811
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51600.jpgsave_picture_51600.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Orbweavers - New Moon / Silver Moon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51601.jpgsave_picture_51601.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - DJ Hits Vol. 122 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51602.jpgsave_picture_51602.jpg" />
 </div>
 
 

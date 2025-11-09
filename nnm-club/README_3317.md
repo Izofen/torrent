@@ -6,7 +6,7 @@ The Chronicles of Father Robin - The Songs & Tales Of Airoea - Book III: Magical
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106603.jpgsave_picture_106603.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jimmy Page - Ohio (2021) Remaster, 2024, gOLDfISh reCORds [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106604.jpgsave_picture_106604.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ EarthView 7.9.11 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106605.jpgsave_picture_106605.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Reface: Face Swap AI Generator v4.16.0 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106606.jpgsave_picture_106606.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:97C31048A97DA3D1B714F627DB869B03C5DD1A6B
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106607.jpgsave_picture_106607.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Mega NRG Man - Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Hi NRG, Italo
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106608.jpgsave_picture_106608.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:EF3AEA28607BC69D1A554F3A754B45659E4AE886
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106609.jpgsave_picture_106609.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ YT Downloader 9.9.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106610.jpgsave_picture_106610.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Italia - Dance Music From Italy (1989) [OGG Vorbis|480 Kbps] <Electronic, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106611.jpgsave_picture_106611.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:8BAF77A4B1B854B6D9BF1FCC221CEAAB1793AEB4
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106612.jpgsave_picture_106612.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:126A878C9635BB71C1254AE61E0DD4185FBE3267
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106613.jpgsave_picture_106613.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:6553B7D8588BB80C2632758C53D8F4EEFF7626E2
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106614.jpgsave_picture_106614.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ VA - Ibiza 2024 - Armada Music [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106615.jpgsave_picture_106615.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:62FBCE58C4038552E312F872ECE9C54F0F38DA17
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106616.jpgsave_picture_106616.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.93 (0713) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106617.jpgsave_picture_106617.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Photo Lab PRO v3.13.17 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106618.jpgsave_picture_106618.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Testament - The New Order (1988) Remastered, 2024, Nuclear Blast [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106619.jpgsave_picture_106619.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Testament - The Legacy (1987) Remastered, 2024, Nuclear Blast [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106620.jpgsave_picture_106620.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Phish - Evolve (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Psy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106621.jpgsave_picture_106621.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Grand River and Abul Mogard - In uno spazio immenso (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106622.jpgsave_picture_106622.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Chris Avantgarde - Live @ Seismic Dance Event Spring Edition (The Concourse Proj
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106623.jpgsave_picture_106623.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Travis - L.A. Times (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soft rock, Britp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106624.jpgsave_picture_106624.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:E49116F861BBD5FB6B7693B46AD7EBA10CCE7A84
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106625.jpgsave_picture_106625.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:6E105D5895BB4E3C78CD625683FDCB380CB8FDAE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106626.jpgsave_picture_106626.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Seth - La France des Maudits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106627.jpgsave_picture_106627.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:71D07DC24DD3EA83C5C8E4CDD5EF0F507F91DD82
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106628.jpgsave_picture_106628.jpg" />
 </div>
 
 

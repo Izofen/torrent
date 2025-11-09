@@ -6,7 +6,7 @@ VA - Assorted Remixes Compilation Part 3 (2025) [MP3|320 Kbps] <Electronic, Inst
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25934.jpgsave_picture_25934.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Helloween - March Of Time (The Best Of 40 Years) (2025) 3 x CD [MP3|320 Kbps] <H
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25935.jpgsave_picture_25935.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:15569F7E65D29738847192ED7B14A46D49672856
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25936.jpgsave_picture_25936.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ magnet:?xt=urn:btih:284423AC75315801AF943209C9305863D48BAE1D
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25937.jpgsave_picture_25937.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:DB72A044773DEFF3EDB15F9D564487080421FD80
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25938.jpgsave_picture_25938.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Secrets of Salem: Shadow of the Witch / Секреты Салема: Тень в
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25939.jpgsave_picture_25939.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ PrivaZer Pro 4.0.100 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25940.jpgsave_picture_25940.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:35D5EBAA4EC48002DDBFC3EAD255C6A9E88B4D76
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25941.jpgsave_picture_25941.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:495077DBECE3EB7755CB779F0DC6243EA3973D89
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25942.jpgsave_picture_25942.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Solid Explorer File Manager v2.8.59 + Plugins Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25943.jpgsave_picture_25943.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:32853F481E6C7792BC330F51129D9139B6647CB2
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25944.jpgsave_picture_25944.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ PicPick Free+Pro 7.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25945.jpgsave_picture_25945.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:890CDF33F2F639D64C6493CF8E9B3FEE9C4CBAD5
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25946.jpgsave_picture_25946.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VidCoder 11.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25947.jpgsave_picture_25947.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:89E216320E5DAB4196BD86EFCDC6B6BB08BD2AA5
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25948.jpgsave_picture_25948.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:98F3B2B03D822431FEE864C10258AD548CA77023
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25949.jpgsave_picture_25949.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:8C4D1AAE3D0AFA399E3005C00CA6245409DA7244
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25950.jpgsave_picture_25950.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:B642078B6470D31E761587BB7B147D79C548E540
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25951.jpgsave_picture_25951.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Beyond Compare Pro 5.0.6.30713 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25952.jpgsave_picture_25952.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:6C61032E21EED836932B83C725799428E3F56D88
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25953.jpgsave_picture_25953.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Jet Drive (2025) [MP3|320 Kbps] <Hard, Dance, Hardstyle>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25954.jpgsave_picture_25954.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:812295660692755FEA02C8A1BE3668FFD02F7785
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25955.jpgsave_picture_25955.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Artweaver Plus 8.0.3.2875 [De/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25956.jpgsave_picture_25956.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:00B7523E25A2B8403C744552D06F063638190EBC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25957.jpgsave_picture_25957.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2.1/dlc) Repack Let'sРlay [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25958.jpgsave_picture_25958.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:B40CBE53A06CBB0E18BE68D66B41D734718EFAA1
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25959.jpgsave_picture_25959.jpg" />
 </div>
 
 

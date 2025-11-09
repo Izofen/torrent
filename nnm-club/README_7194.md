@@ -6,7 +6,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245999.jpgsave_picture_245999.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Frank Stallone - Frank Stallone (1984) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246000.jpgsave_picture_246000.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:604D8A1EDDDCAD786761D5E7267270C0BFD290FD
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246001.jpgsave_picture_246001.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Cradle of Filth - Trouble and Their Double Lives (2023) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246002.jpgsave_picture_246002.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Hidden Through Time (2020) [Ru/Multi] (1.0.9b/dlc) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246003.jpgsave_picture_246003.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:C483340D4973F1AB4BF1B69F8BBD1ED50A5BC3CF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246004.jpgsave_picture_246004.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:629B951F8E93CC50C7D5FDB55B51DF8ABFD2C793
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246005.jpgsave_picture_246005.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Just Dance 2020 Mod (2019) [PS3] [USA] 3.30 [Cobra ODE / E3 ODE PRO ISO] [Repack
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246006.jpgsave_picture_246006.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Chris Wonderful - Music for Lovers, Vol. 1 (2013) Yoola, 2020 [FLAC|Lossless|WEB
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246007.jpgsave_picture_246007.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:66FA994CB13FA31F789F9F3B235450B6F9DC60E2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246008.jpgsave_picture_246008.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:33A436EF6F3C671F305DB3192E8F47A2F20DBBCC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246009.jpgsave_picture_246009.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Zero (2022) WEB-DL [H.264/1080p] [KAZ / RU, KAZ SUB]
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246010.jpgsave_picture_246010.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ MediaHuman Video Converter азк Mac 2.0.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246011.jpgsave_picture_246011.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:D9F3E845A5C7DC37CF5D14EFCA79553EDD5A34E5
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246012.jpgsave_picture_246012.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Swingrowers - Outsidein (2018) [AAC|~316 Kbps] <Electro, Swing, Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246013.jpgsave_picture_246013.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:ED4333F9BCF931CDDA527D11CA3BCBDF3CD7533E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246014.jpgsave_picture_246014.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:1A2D3D5F19D8E45DE35251E77A0CE7AEEDB76E11
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246015.jpgsave_picture_246015.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Italo Dance Classics Volume 1 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246016.jpgsave_picture_246016.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Erdling - Bestia (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Neue De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246017.jpgsave_picture_246017.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Luminar Neo 1.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246019.jpgsave_picture_246019.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Whitney Houston - I Go to the Rock: The Gospel Music of Whitney Houston (2023) [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246020.jpgsave_picture_246020.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:6173D805159D66B11F2F2C699F13419C1FDC0F42
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246021.jpgsave_picture_246021.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:9059C0D9305E3B7695D32C04D8601FFB9C7D48DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246022.jpgsave_picture_246022.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Kandace Springs - The Women Who Raised Me (2020) [FLAC|Lossless|image + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246023.jpgsave_picture_246023.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v5.1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246024.jpgsave_picture_246024.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Jeremy Edge - Saints and Souls, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246025.jpgsave_picture_246025.jpg" />
 </div>
 
 

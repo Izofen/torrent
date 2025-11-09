@@ -6,7 +6,7 @@ Brett Walker - Highlights From The Last Parade (2023) 2xCD, Compilation [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198517.jpgsave_picture_198517.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D41538D06C115E673C300B0BD2BDA8FDAB6261A5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198518.jpgsave_picture_198518.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B8F4A517BF204330DEDC19237E5F47B1304263D3
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198519.jpgsave_picture_198519.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:645DA33C7044D71CF579A88B34913C054EFE38A8
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198520.jpgsave_picture_198520.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Subtitle Edit 3.6.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198521.jpgsave_picture_198521.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:09861200AE5C57DCA2D83117CF595B0F0EF98E04
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198523.jpgsave_picture_198523.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:85BC58C372A2DCB5DEE8A1DE4D2845F1873FCA9A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198525.jpgsave_picture_198525.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:9FCFF985BFE34721A1EC9EE9837C22E25FDCE2F5
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198526.jpgsave_picture_198526.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:5002A9A82A434D48A757C627314E0BFC38C3B86F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198527.jpgsave_picture_198527.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Stardock Fences 4.1.2.1 (x64) RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198528.jpgsave_picture_198528.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ WebBrowserPassView 2.12 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198529.jpgsave_picture_198529.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:B1D5D5C39CF32750013A7AD877F28F8B0DA99C9D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198530.jpgsave_picture_198530.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:98F426A47B69FD38D40372612CBD9DFC4F35981B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198532.jpgsave_picture_198532.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Productuniversity, Яна Чаруйская и др. | ИИ и для гене�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198533.jpgsave_picture_198533.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:7B5A2E5CEC9CCCDD02109F77DEA8B7828F49B40A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198534.jpgsave_picture_198534.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:C3DEDFA475A764378D5AE4A169366A552E008085
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198535.jpgsave_picture_198535.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:3232519872C5AB063CF61373915DCC3E8128DA66
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198536.jpgsave_picture_198536.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ DIG - Deep In Galaxies (2023) [Ru/Multi] (1.0.4.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198538.jpgsave_picture_198538.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ AOMEI Partition Assistant Technician Edition 10.0.0 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198539.jpgsave_picture_198539.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Backfirewall_ (2023) [Ru/Multi] (10567133) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198540.jpgsave_picture_198540.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Franzis SHARPEN Video #2 professional 2.27.03871 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198541.jpgsave_picture_198541.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:0001C463C51D98E33C4B8C2D720AABF904A26D5B
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198542.jpgsave_picture_198542.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:58F72C66F364905081DFEC6FD4B5048ED11FF277
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198543.jpgsave_picture_198543.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:46434D1EC60CE05AA5477109C959319017A32A17
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198544.jpgsave_picture_198544.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Enterclass, Мария Хаэт | Рисование карандашом (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198545.jpgsave_picture_198545.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Rhinoceros 3D 7.29.23107.3001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198547.jpgsave_picture_198547.jpg" />
 </div>
 
 

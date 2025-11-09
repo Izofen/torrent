@@ -6,7 +6,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 11.1.2052.0 RePack by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42373.jpgsave_picture_42373.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F93C98D773C80DBB1EB22958B0D11EA31C2D4455
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42374.jpgsave_picture_42374.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:84E04002398CA50213414BE39DD87F93159DCD75
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42375.jpgsave_picture_42375.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:BDC83789ED4675012F14C90221C128672DB6BBC8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42376.jpgsave_picture_42376.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Ookami to Koushinryou: Merchant Meets the Wise Wolf | Spice & Wolf: Merchant Mee
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42377.jpgsave_picture_42377.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:90EEF9F03F37EB166222F99D2328D7209D0D290B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42378.jpgsave_picture_42378.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:42A7CE20FA0C9E7F73727F3E405CE8F55FE90257
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42379.jpgsave_picture_42379.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:2989B78D73DF9B779552512C3B4F5714CB91D86B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42380.jpgsave_picture_42380.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:2989B78D73DF9B779552512C3B4F5714CB91D86B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42381.jpgsave_picture_42381.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:4BDD70B8D972CBC4BB44D8C037EDF83DD2238626
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42382.jpgsave_picture_42382.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:F272792E68CEC1F68445AE61F434AA0B8FDE6D38
 >>Латиноамериканские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42383.jpgsave_picture_42383.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:F9DC7E34E75C3F4860B5429E730C53939D2BAE7F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42384.jpgsave_picture_42384.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:6E32CC3F779CA7C134BDC596E1A0C137C96A296D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42385.jpgsave_picture_42385.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:1A2818BC4A525F393901680775F2271EA1DF2944
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42386.jpgsave_picture_42386.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:62E8AAD8215BA7258A47CEFE2F345F6D32140DB3
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42387.jpgsave_picture_42387.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.41.0/dlc) Repack Decepticon
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42388.jpgsave_picture_42388.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:0BD2B6061772CB5A91B3F38D97A9CF6A213EC83F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42389.jpgsave_picture_42389.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:923910130207CBE92B16B468FE1220DCCBEC6890
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42390.jpgsave_picture_42390.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Sublime Text 4 Build 4180 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42391.jpgsave_picture_42391.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:06D390C68F9E26D28881124488E75A6529402916
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42392.jpgsave_picture_42392.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mylene Farmer - RemiXXL (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42393.jpgsave_picture_42393.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:C59ABCD63DAA74F7BA5B7A192011A784AB36A208
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42394.jpgsave_picture_42394.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:29C69100D9870B4E57E3A72FB224447C83722EE0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42395.jpgsave_picture_42395.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Light Image Resizer 7.0.7.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42396.jpgsave_picture_42396.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Cher - Forever Fan (2024) Compilation, Remaster [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42397.jpgsave_picture_42397.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:09DF48DCFDDC573A71E8B08939D6DF6B50C337B0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42398.jpgsave_picture_42398.jpg" />
 </div>
 
 

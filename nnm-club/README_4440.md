@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138762.jpgsave_picture_138762.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FF572D7570E343954B7841B01ACC6DF589A52119
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138763.jpgsave_picture_138763.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:663E52C6C962D0E2B5E9C5D1E71476936A23E882
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138764.jpgsave_picture_138764.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:553C65BBAAA730AB8FEF11CC497F815FFA1B136C
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138765.jpgsave_picture_138765.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Saenai Heroine no Sodatekata Fine | Saekano: How to Raise a Boring Girlfriend.fi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138766.jpgsave_picture_138766.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:FA5093DE74F5EAF617E3DDDA05B21D7714551A7B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138768.jpgsave_picture_138768.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:FD3D84D0419B087225F0AB9831011DBE3FBF305D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138769.jpgsave_picture_138769.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:08881E74F50CF3A68CF8831C571C1EE65E97F518
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138770.jpgsave_picture_138770.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:681CB9B0BF9126C1BF926DF16828E95F7524DD4D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138771.jpgsave_picture_138771.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:9C8600F92A1DCFDE070F0C094393994DEBA3A764
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138772.jpgsave_picture_138772.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:ADB13D547EA4BCC9FD8B2B1EA9BD6F3932A9F411
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138773.jpgsave_picture_138773.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Kraken Academy!! (2021) [Ru/Multi] (1.0.12.2) License GOG [End of the World Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138775.jpgsave_picture_138775.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:BF77360895DCD3DA26E3232FF74958B4654A2545
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138776.jpgsave_picture_138776.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VSO ConvertXtoVideo Ultimate 1.6.0.47 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138777.jpgsave_picture_138777.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:2B72B44CE8B0591A5388D24B4A9E9AE0AB6A5D53
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138778.jpgsave_picture_138778.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:2C00A17313757EBEF1242AC8620A89CB83108E01
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138779.jpgsave_picture_138779.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ WinCatalog 2017 17.4 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138781.jpgsave_picture_138781.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Fausto Papetti - Compilation (2021) [MP3|320 Kbps] <Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138782.jpgsave_picture_138782.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:6B00EDDD6B84AAAF1230E52D34C73D3B97850E93
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138783.jpgsave_picture_138783.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Paint.NET 4.0.7 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138784.jpgsave_picture_138784.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:BFD795B5B0B8B4557FD9B4699BB4837F2057C6EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138785.jpgsave_picture_138785.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - De Top 100 Aller Tijden 1978 (RadioVeronica) (2017) [MP3|320 Kbps] <Pop, Ro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138786.jpgsave_picture_138786.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:D516CEA9BAF3347D90F41457B075ACEDCC615AC2
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138788.jpgsave_picture_138788.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - The Urban Rock Music (2020) [MP3|320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138789.jpgsave_picture_138789.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:A98903D428B49E17776D66E8457E3D9A67E0C62F
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138790.jpgsave_picture_138790.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:44D4A8BAEFB37527401FE7F56B6E3A65EE6C021C
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138791.jpgsave_picture_138791.jpg" />
 </div>
 
 

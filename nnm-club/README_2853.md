@@ -6,7 +6,7 @@ Xara Designer Pro 7 7.1.2.18680 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83142.jpgsave_picture_83142.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Content Pack - набор шаблонов для веб страниц, при�
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83143.jpgsave_picture_83143.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:044A333BC987EDF377B6D179286B0492FC4EEF61
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83144.jpgsave_picture_83144.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:AC3996F2C143A7BB358DCAD20F0BFEB75669F089
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83145.jpgsave_picture_83145.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:AC3996F2C143A7BB358DCAD20F0BFEB75669F089
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83146.jpgsave_picture_83146.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:0705095B424BF651EBFCA474536E6077860035D0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83148.jpgsave_picture_83148.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Judas Priest - 16 Альбомов (1974-90) 2011 Remastered / 2012, Sony Music,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83149.jpgsave_picture_83149.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Judas Priest - 16 Альбомов (1974-90) 2011 Remastered / 2012, Sony Music,
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83152.jpgsave_picture_83152.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:EBD1392C6DC470C097E2C59358D35DF875E2000B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83153.jpgsave_picture_83153.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:EBD1392C6DC470C097E2C59358D35DF875E2000B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83155.jpgsave_picture_83155.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:EBD1392C6DC470C097E2C59358D35DF875E2000B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83156.jpgsave_picture_83156.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:EBD1392C6DC470C097E2C59358D35DF875E2000B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83159.jpgsave_picture_83159.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:EBD1392C6DC470C097E2C59358D35DF875E2000B
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83160.jpgsave_picture_83160.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:2469F0A555FD5D4D4D5AAE9656E8A010528252B1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83161.jpgsave_picture_83161.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Retro Tape Deck Music Player - Реалистичный mp3 плеер аним�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83162.jpgsave_picture_83162.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bananarama - 15 альбомов + 8 синглов (1983 - 2010) [MP3|320 kbps]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83163.jpgsave_picture_83163.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Microsoft Windows Dancer + Windows XP Media Center Edition 2005 Screensavers [En
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83164.jpgsave_picture_83164.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Aquarium, Da Vinci, Space, Nature и My Pictures
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83166.jpgsave_picture_83166.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Worms: Reloaded / Worms 2: Armageddon + 7 DLC [Multi5/+] (RePack/1.0.0.475) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83168.jpgsave_picture_83168.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:5793DB6892F92FA676D86EBCC75383506B3B4085
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83169.jpgsave_picture_83169.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:6230E5C79F8AC7AA9E8B4CEC8620A5EAA8BBDDA4
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83170.jpgsave_picture_83170.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:6230E5C79F8AC7AA9E8B4CEC8620A5EAA8BBDDA4
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83172.jpgsave_picture_83172.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:D648E22151A24F724F256168F85B4B03BF87BD7C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83173.jpgsave_picture_83173.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:D648E22151A24F724F256168F85B4B03BF87BD7C
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83174.jpgsave_picture_83174.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:A58C81609577AD68C106F96032DB33E2C9AF5F15
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83176.jpgsave_picture_83176.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:646720B81A5A20FCE904A1DD5CFE7CCA0D4FC532
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83177.jpgsave_picture_83177.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249941.jpgsave_picture_249941.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CGMA, Johannes Richter | VEX in Houdini with Johannes Richter (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249942.jpgsave_picture_249942.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:89F61A7BC0A5C379649EFF5AC689682502CAB4A5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249943.jpgsave_picture_249943.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Revo Uninstaller Pro 5.0.3 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249944.jpgsave_picture_249944.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ ON1 Portrait AI 2022.5 v16.5.1.12526 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249945.jpgsave_picture_249945.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Balabolka 2.15.0.840 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249946.jpgsave_picture_249946.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:1258B7F182FA43DDE2148F00395F3154EA774524
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249947.jpgsave_picture_249947.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:C63CDB8BF92F377DCF24841914F33032BD2B08C1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249948.jpgsave_picture_249948.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ WinPaletter v1.0.7.3 Standalone [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249949.jpgsave_picture_249949.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:1FEDDC36909B7DAD187EE48026093B33B6A26C85
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249950.jpgsave_picture_249950.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:9E31A036942140A1A8FCCF017A4035358DCCEB31
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249951.jpgsave_picture_249951.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:B8928DA73873AB1BD38A1DA8D25E740A87D4D6B6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249952.jpgsave_picture_249952.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:9723846DA3C53CA786001D32DDC059CF3AB39D32
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249953.jpgsave_picture_249953.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Maze Of Realities: Flower Of Discord / Лабиринт Реальностей: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249954.jpgsave_picture_249954.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Glam Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249955.jpgsave_picture_249955.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:90E14486BFBEFD5BF067EADFDB2CB64F9715EE9B
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249956.jpgsave_picture_249956.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ CGcircuit, Steven Knipping | Applied Houdini Particles II-V (2017) PCRec [EN, RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249957.jpgsave_picture_249957.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - Lilja 4-ever OST (2002) [FLAC|Lossless|tracks + .cue] <OST>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249958.jpgsave_picture_249958.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:E96C476FEB9AE9B59D42C0901560ADCD8D1A754A
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249959.jpgsave_picture_249959.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ CCleaner 5.91.9537 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249960.jpgsave_picture_249960.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ BELOFF [dp] 2022.07.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249961.jpgsave_picture_249961.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Remote Desktop Manager Enterprise 2022.1.21.0 + portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249962.jpgsave_picture_249962.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:C276FFA550223568E997168F030DF5393998E31F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249963.jpgsave_picture_249963.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ PhotoDiva Pro 4.0 Portable by Spirit Summer [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249964.jpgsave_picture_249964.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:818DCB6CEC71A605940CEC8EFC4312D879C646A3
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249965.jpgsave_picture_249965.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Ultimaker Cura 5.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249966.jpgsave_picture_249966.jpg" />
 </div>
 
 

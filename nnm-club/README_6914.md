@@ -6,7 +6,7 @@ App Tamer 2 v.2.7.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237561.jpgsave_picture_237561.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EB4902E77EFF33C88606F6D8F09697B7F4A55016
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237562.jpgsave_picture_237562.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D0EAB3E338D4917363B7BEFD7F67014095221CA7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237563.jpgsave_picture_237563.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Café Deluxe Chillout - Nu Brazil / Lounge (2014) [AAC|~326 Kbps] <Easy Lis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237564.jpgsave_picture_237564.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:26CC07E955522243544CBE3F9A6CEBFEA485AA5C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237565.jpgsave_picture_237565.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:33B5D7F98659491F49A4C7CA3C7197BA25873C2B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237566.jpgsave_picture_237566.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Mindfar - Prophet Of The Astral Gods (2021) [MP3|320 Kbps] <Symphonic Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237567.jpgsave_picture_237567.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:58A837D9F099347BE13E5E31860046536D579276
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237568.jpgsave_picture_237568.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Contrail Architects - Guarded Cave (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237569.jpgsave_picture_237569.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Viber 19.9.0.6 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237570.jpgsave_picture_237570.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:C5CA6FB1F35AC451A652B66E4CD71452AC0E9BC1
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237571.jpgsave_picture_237571.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Röyksopp & Robyn - Do It Again (2014) [AAC|~331 Kbps] <Electronic, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237572.jpgsave_picture_237572.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:8146B1BCED7ADB515ADDE88EC4A14F26FDEAC38B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237573.jpgsave_picture_237573.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:1A4B166D184F5410FD802EA49A4EAAC550E99103
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237574.jpgsave_picture_237574.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ USBclean 3.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237575.jpgsave_picture_237575.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:4A1F9449BDBF9B0DAC2F6716969563E9128B35DB
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237576.jpgsave_picture_237576.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:22C8DE9170B72E79A65A48BF778941C4C19ADDC6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237577.jpgsave_picture_237577.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 5 (2019) [AAC|~293 Kbps] <Ea
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237578.jpgsave_picture_237578.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:A0307B1FB838D0DC4F902851CFBC6B9EE1FDB6DE
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237579.jpgsave_picture_237579.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Johnny The Boy - You (2023) [FLAC|Lossless|WEB-DL|tracks] <Black-Metal, Extreme-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237580.jpgsave_picture_237580.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:F09090E8236A98D92AA9736DA402E352A2CCDD9C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237581.jpgsave_picture_237581.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:D36E90E6FC85BCD1C515B3C4C443FA031AD31EF6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237582.jpgsave_picture_237582.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:63B2B6C90BF3C95B1783C5608A83EF7CBB619D3C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237583.jpgsave_picture_237583.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:9E80138FEFA045EBA46608E1ED328134F79B73A4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237584.jpgsave_picture_237584.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Vivaldi for Android 6.0.2980.26  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237585.jpgsave_picture_237585.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:8F1114A3E8A8DC8759BB9E3C0C9874E7AAA3638F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237586.jpgsave_picture_237586.jpg" />
 </div>
 
 

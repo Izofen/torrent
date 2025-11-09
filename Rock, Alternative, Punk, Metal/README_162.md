@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114829.jpgsave_picture_114829.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:57A5A363838A217607846E7746F65679C945620A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114832.jpgsave_picture_114832.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mike Oldfield - Opus Revisited (Live 1973) (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114837.jpgsave_picture_114837.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:3771BFF0363375C3D58F90070C41A52137E4E809
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114845.jpgsave_picture_114845.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Paul Rodgers & Projects: The Firm, The Law - 15 Albums, 1 EP (1983 - 2023) 21 CD
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114935.jpgsave_picture_114935.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:9BF02E3AF0D161D8CFEE44F6DAFF0071F1329798
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114939.jpgsave_picture_114939.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Ace Frehley (Frehley's Comet) - Discography: 14 аlbums, 22CD (1978-2024) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114940.jpgsave_picture_114940.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Firewind - Stand United (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114972.jpgsave_picture_114972.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Messiah - Christus Hypercubus (2024) [FLAC|Lossless|WEB-DL|image + .cue] <Death-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114978.jpgsave_picture_114978.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Surgical Strike - 24/7 Hate (2024) [FLAC|Lossless|WEB-DL|tracks] <Power-Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114986.jpgsave_picture_114986.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Enslaved - Heimdal (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114987.jpgsave_picture_114987.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Doro - Conqueress - Extended (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115004.jpgsave_picture_115004.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Hell Boulevard - Requiem (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115008.jpgsave_picture_115008.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Bruce Dickinson - The Mandrake Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115045.jpgsave_picture_115045.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Suldusk - Anthesis (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Dark, Folk 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115050.jpgsave_picture_115050.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Anaka - The Oblivion Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groove Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115152.jpgsave_picture_115152.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Anaka - The Unwavering (2015) [MP3|320 Kbps] <Heavy, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115154.jpgsave_picture_115154.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Traveler - Traveler (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115155.jpgsave_picture_115155.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Detraktor - Full Body Stomp (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115168.jpgsave_picture_115168.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Ace Frehley - 10.000 Volts (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115173.jpgsave_picture_115173.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Anaka - The Oblivion Call (2024) [MP3|320 Kbps] <Heavy, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115174.jpgsave_picture_115174.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Dan McCafferty - In Memory Of Dan McCafferty - No Turning Back (2023) [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115194.jpgsave_picture_115194.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Social Disorder - Time To Rise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115301.jpgsave_picture_115301.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Terra Atlantica - A City Once Divine (2017) [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115303.jpgsave_picture_115303.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Six Foot Six - The Six Foot Six Project (2018) [FLAC|Lossless|WEB-DL|tracks + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115304.jpgsave_picture_115304.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Terra Atlantica - Age Of Steam (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115307.jpgsave_picture_115307.jpg" />
 </div>
 
 

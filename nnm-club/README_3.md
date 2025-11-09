@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105.jpgsave_picture_105.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2AD76D3E86EABB0410051B2F84478288A6F4EB5A
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106.jpgsave_picture_106.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B3D755A1D52965AE1AE008ECF3D1FD63374B7510
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107.jpgsave_picture_107.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F1EF87DACCB6BBF66E5D1A3883ED6C646BA691AA
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108.jpgsave_picture_108.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109.jpgsave_picture_109.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:B7CC51921A22CC597FDC218B31DC603DA26A0519
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110.jpgsave_picture_110.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:B7CC51921A22CC597FDC218B31DC603DA26A0519
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111.jpgsave_picture_111.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Volume2 1.1.9.470 Beta + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112.jpgsave_picture_112.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:6041D2254B6673BB555868A4F9778B427C8D2588
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113.jpgsave_picture_113.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:01DFEBBFF889C43E42FCEE6E45AFBC3FB19D1F1D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114.jpgsave_picture_114.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Microsoft  Visual C++ Runtimes AIO v0.101.0 x86-x64 Repack by abbodi1406 [Multi/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115.jpgsave_picture_115.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:E463479ABA0AA8CECF537201EA70F613983F199C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116.jpgsave_picture_116.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:5D36DD124BFE7ADDE5FBF801B19DC8001066E865
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117.jpgsave_picture_117.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:E063216BEC160EE44A0AAB445FF21C34BB7DFD1B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118.jpgsave_picture_118.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:38ED354525C00D9857B2AD5EE86AA3DA743E0300
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119.jpgsave_picture_119.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack FitGirl [Ultimate Bundle]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120.jpgsave_picture_120.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:16BE895C1B4B183D161658409C884B0866854D03
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121.jpgsave_picture_121.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Deep Rock Galactic: Survivor (2024) [Ru/Multi] (1.0.40P/dlc) Repack Other s [Gol
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122.jpgsave_picture_122.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:CC067278322655298A6D9D1B083443BAB81B1F11
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123.jpgsave_picture_123.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ The House of Tesla (2025) [Ru/Multi] (Build 20154873) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124.jpgsave_picture_124.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.003.111420/dlc) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125.jpgsave_picture_125.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:66B4B9E3E60FB90DED4ADC9B83292FBCB92D15B8
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126.jpgsave_picture_126.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:FBC9292EB4125D0E6315B3AC3B163E795C047D72
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127.jpgsave_picture_127.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ AC🗲DC - Compilation (1975-2020) [MP3|320 Kbps] <Hard rock, Blues rock, Rock &
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128.jpgsave_picture_128.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Wes Montgomery - Movin': The Compete Verve Recordings (1964-1968) 5CD, 2011, Uni
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129.jpgsave_picture_129.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:04EF25A72D9DE7A6E348DEADD5E55AF21F12365B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130.jpgsave_picture_130.jpg" />
 </div>
 
 

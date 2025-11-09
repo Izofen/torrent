@@ -6,7 +6,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204450.jpgsave_picture_204450.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D20D684853C7F8821C2E39040D7959489FFDEE88
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204451.jpgsave_picture_204451.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Felix Jaehn - Happy Rave (2023) [FLAC|24/44.1|tracks|WEB-DL] <Electronic, Dance>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204452.jpgsave_picture_204452.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ R-Studio Network 9.2 Build 191115 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204453.jpgsave_picture_204453.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:F21C966A3EF83399D55C2E95C677A9E3E7937EE3
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204454.jpgsave_picture_204454.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D7673E82D9F2566F93CF4B26AA4F86F650217B8F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204455.jpgsave_picture_204455.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:FAC271B911E1229E55056B2EF332E4C17E3F4BE2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204456.jpgsave_picture_204456.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:222739F3AD6F5DB45C433E4D5E8DBA39D851E235
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204458.jpgsave_picture_204458.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:6D30BFF5511CFC72479D47C999BFCE6506B76EC3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204459.jpgsave_picture_204459.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Ryan Laley Games, Ryan Laley | Unreal Engine Tutorials  (2019-2023) WEBRip [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204460.jpgsave_picture_204460.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ TechSmith Camtasia 2023 Studio 2023.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204461.jpgsave_picture_204461.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:823C2BD2561CBFDFBFB3DE58B52C1316457AE03A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204462.jpgsave_picture_204462.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:EA3AE30BC92F8C225A78AD535510DB0078DB00FF
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204463.jpgsave_picture_204463.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Daedric - Mortal (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Industrial Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204464.jpgsave_picture_204464.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Qalculate! 4.5.1 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204465.jpgsave_picture_204465.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:B83D413E1999672C1A46B47233A1E52FD60FCB6B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204466.jpgsave_picture_204466.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:FA7E214EC57DC317757741AA54CF3FFDCA0214C5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204467.jpgsave_picture_204467.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Colibri 2.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204468.jpgsave_picture_204468.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:2DCE48B4110FA5DAB1186F77C287F90DA2CF80A8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204469.jpgsave_picture_204469.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:5178C06247E195668C8ED9EB85A6B1033B6A3E9D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204470.jpgsave_picture_204470.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:106E8BD8DBCB1A09DFFF308EF566C1170105331F
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204471.jpgsave_picture_204471.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:9C3A782A9DB5A94D9DBEB6C9CAF4C9BC67805A4A
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204472.jpgsave_picture_204472.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:5980C8E0BA886AD7D7D0BBB213084CDE17942A31
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204473.jpgsave_picture_204473.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Rutube v28.4.4 Mod by Alex.Strannik [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204474.jpgsave_picture_204474.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Topaz Photo AI 1.1.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204475.jpgsave_picture_204475.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Udemy, AR Shankar | Valaxy Technologies | DevOps Project - 2022: CI/CD with Jenk
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204476.jpgsave_picture_204476.jpg" />
 </div>
 
 

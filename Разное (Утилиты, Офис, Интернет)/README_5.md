@@ -6,7 +6,7 @@ Rainlendar Lite 2.21.3 Build 180 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47039.jpgsave_picture_47039.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ElevenClock 4.4.1.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47894.jpgsave_picture_47894.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ KMS_VL_ALL_AIO-52 Portable by abbodi1406 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48358.jpgsave_picture_48358.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WakeMeOnLan 1.91 Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48411.jpgsave_picture_48411.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Twinkle Tray 1.15.5 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48998.jpgsave_picture_48998.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ O&O DeskInfo 1.3.1347 Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49645.jpgsave_picture_49645.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:1451A6FF05F0113AA52E9E9314B0C9E31121B02D
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49857.jpgsave_picture_49857.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ ColorMania - Color Picker 14.0 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50116.jpgsave_picture_50116.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Alt SwitchER 22.1 Portable [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50537.jpgsave_picture_50537.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Abelssoft Win11PrivacyFix 2025 (4.0) 54970 (акция Abelssoft) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50560.jpgsave_picture_50560.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Folder Marker Free 4.8.1.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50573.jpgsave_picture_50573.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ High-Logic MainType Pro 12.0.0.1318 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50869.jpgsave_picture_50869.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Windows Update Viewer 0.6.1.0 + Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51297.jpgsave_picture_51297.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Windows Auto Dark Mode X 10.4.1 Maintenance Release [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52398.jpgsave_picture_52398.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ WinDynamicDesktop 5.5.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52485.jpgsave_picture_52485.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Windows and Office Genuine ISO Verifier 11.18.45.24 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52722.jpgsave_picture_52722.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ KeePassXC 2.7.9 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52724.jpgsave_picture_52724.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Abelssoft Win11PrivacyFix 2025 v4.0.54970 Portable  by FC Portables [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52814.jpgsave_picture_52814.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ SpeedyFox 2.0.30 Build 155 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52970.jpgsave_picture_52970.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ KeePass Password Safe 2.57 + Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54631.jpgsave_picture_54631.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ FanCtrl 1.7.0 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54702.jpgsave_picture_54702.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ QuickTextPaste 8.83 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54774.jpgsave_picture_54774.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ MSMG ToolKit 13.7 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55257.jpgsave_picture_55257.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Universal USB Installer 2.0.2.3 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55600.jpgsave_picture_55600.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.6 Portable
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55657.jpgsave_picture_55657.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Quick Search 6.0.1.9 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55918.jpgsave_picture_55918.jpg" />
 </div>
 
 

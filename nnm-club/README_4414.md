@@ -6,7 +6,7 @@ Flud+ 1.10.5 Mod by Derrin [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137898.jpgsave_picture_137898.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:63D0E6881D8077862F9442891B00C4EBFFB1C6B9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137899.jpgsave_picture_137899.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ iFinance 4.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137900.jpgsave_picture_137900.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0BC45304BF5CAE5BD27F5626DCA87875CA8FF946
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137902.jpgsave_picture_137902.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:BCCF30420B9BC7338DD40A5A3815198BE1C1E8DC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137903.jpgsave_picture_137903.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Privacy Eraser Free 6.1.0 Build 4789 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137904.jpgsave_picture_137904.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:1B024D892CFC2D5E2B730B62F537F407B5F9F0A6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137905.jpgsave_picture_137905.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:8C2CD3878D2268FB6EBA5831760472CE7E1C9EA8
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137906.jpgsave_picture_137906.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:20EB81FCEEEEC4DE777D67475925C7A33D9C2797
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137907.jpgsave_picture_137907.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Jack Jezzro - Christmas Jazz Guitar (2018) Green Hill Productions [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137908.jpgsave_picture_137908.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:D7ADD360BE40F75F5A9D6C1240D0406BBAB6A34F
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137909.jpgsave_picture_137909.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D0E36E745DC7F099584A482EFAC3E591EC2335B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137910.jpgsave_picture_137910.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Wondershare Repairit 5.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137911.jpgsave_picture_137911.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Waltr 2 v2.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137912.jpgsave_picture_137912.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Kabukichou Sherlock | Case File nº221: Kabukicho | Шерлок из Кабук
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137914.jpgsave_picture_137914.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:7D291E0404D371CB3BE8F69AF78E425FF5A9C38F
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137915.jpgsave_picture_137915.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:88BCAB1C1DA901A78EF89DD986A5D77BBE5A0850
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137916.jpgsave_picture_137916.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ The Puppini Sisters - Christmas At Home (2023) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137917.jpgsave_picture_137917.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:75E0BB2D64DD2F0E53073F97E8C75F7817159162
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137918.jpgsave_picture_137918.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:601CBC01D2C2B360F065915016E6A592793F18E8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137919.jpgsave_picture_137919.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:767661E106E04B86104CF8A921720CD97B6C4F32
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137921.jpgsave_picture_137921.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Sandboxie plus 1.12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137922.jpgsave_picture_137922.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Gallina - 4 Альбома (2000 - 2010) [FLAC|Lossless|image + .cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137923.jpgsave_picture_137923.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ David Wilson - Easy to Love: The Music of Cole Porter (2001) Swallowtail Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137924.jpgsave_picture_137924.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:3798AF354D56AA7617DFCD68432B2AC66DBA5370
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137925.jpgsave_picture_137925.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:B450A58BB145AC7D9032CE67546BA78976D88808
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137926.jpgsave_picture_137926.jpg" />
 </div>
 
 

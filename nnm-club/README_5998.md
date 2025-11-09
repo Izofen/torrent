@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188747.jpgsave_picture_188747.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A157ABBCC4F59BE37807143DAE42143F90C76B74
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188748.jpgsave_picture_188748.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Firefox Browser 107.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188749.jpgsave_picture_188749.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4C617EA51AE60D896BCFCF62B33D3B4650D57A13
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188750.jpgsave_picture_188750.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4E9940F144B2A6625791E09CEDD2823A4A63011A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188751.jpgsave_picture_188751.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:927B2D2F12030B18CA8616A27139A4AAEB651DF0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188752.jpgsave_picture_188752.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Hosi no Kaabi | Kirby of the Stars | Звезда Кирби [2001, TV, 100 эп
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188753.jpgsave_picture_188753.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - New Pop Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Dance, Hip Hop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188754.jpgsave_picture_188754.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:CF5263B42AA4DFBE986CE2BCAB6A84514F501920
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188755.jpgsave_picture_188755.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:5D3CE39BA1D66871449BB97D6A41D786FB5AE7B0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188756.jpgsave_picture_188756.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - 60 minutes. Old School Dance Music vol.13 (mixed by Dj V) (2022) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188757.jpgsave_picture_188757.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ ImgDrive Pro 2.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188758.jpgsave_picture_188758.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:307563DB0B6EB96B6D7B46EE7D851D02F5761EFA
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188759.jpgsave_picture_188759.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:75260B14313C2094D0BE8A6E4EB155945EFAEF6F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188760.jpgsave_picture_188760.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:52D0975282703915DDF7B4835AB9F0AE8D71C772
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188761.jpgsave_picture_188761.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Cliff Martinez & VA - Drive (Original Motion Picture Soundtrack) (2011) [FLAC 24
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188762.jpgsave_picture_188762.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Bandizip 7.32 Build 65001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188763.jpgsave_picture_188763.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:F50E16CAE73A82C6444F74DAF32824567E426632
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188764.jpgsave_picture_188764.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:BF255BCF8AF61E0DDD53B1E236DCFB9762E1F34C
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188765.jpgsave_picture_188765.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:4821CC1E43CB73585E5A54CE0F5446F89C69F144
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188766.jpgsave_picture_188766.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Tezuka Osamu no Don Dracula | Дон Дракула [1982, TV, 4 эп + 4 SP] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188767.jpgsave_picture_188767.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ AccuBattery Pro 2.1.2 Mod by Dymonyxx [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188768.jpgsave_picture_188768.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:F2D24438CA2C8D2024FFFAD44E439682F57D8F04
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188769.jpgsave_picture_188769.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:B66D2E87C34F5F0261C6333229D1C62D1E9A95E2
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188770.jpgsave_picture_188770.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:2C58342DE4BBD103CE67AFD2F1B2A44A65942D63
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188771.jpgsave_picture_188771.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:9D7F91BD089A69CDC354722D0A6570EC2E59F2D8
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188772.jpgsave_picture_188772.jpg" />
 </div>
 
 

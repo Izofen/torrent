@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15938.jpgsave_picture_15938.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ToonApp v3.1.6 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15939.jpgsave_picture_15939.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Шансон под рюмочку (2025) [FLAC|Lossless|WEB-DL|tracks] <Ш
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15940.jpgsave_picture_15940.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:79B5BC7D1CBCC7A92D41AD3131977E05F457E08D
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15941.jpgsave_picture_15941.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Bria Mobile: VoIP Softphone v6.20.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15942.jpgsave_picture_15942.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:59B25CCC9C644556120ACAA18775BF9E86E7797B
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15943.jpgsave_picture_15943.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Music News For Forum vol.096 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15944.jpgsave_picture_15944.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:0AA225971C546EAEB4BAC4C1CA7A8A9D9CA2A31D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15945.jpgsave_picture_15945.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:627D9B86757F095630A0FDC80A3F8546787BD25C
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15946.jpgsave_picture_15946.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Scooter - Live in Moscow (2020) CamRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15947.jpgsave_picture_15947.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:DFBFC81E614BA3DBA87125630FA9998F2436D55E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15948.jpgsave_picture_15948.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:A2D290F6F67A949FD3CBBE16F67E43496C6C41CC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15949.jpgsave_picture_15949.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Car Dealer Simulator (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15950.jpgsave_picture_15950.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Wayfinder (2023) [Ru/Multi] (211130/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15951.jpgsave_picture_15951.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Disney Illusion Island Starring Mickey & Friends (2025) [Multi] (1.1/dlc) Licens
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15952.jpgsave_picture_15952.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:7AAD11B013AC83E8CE54E197B8B127C02BBBF959
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15953.jpgsave_picture_15953.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:196A7057A758D8CCDC72613DF77FBAA2696F4D66
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15954.jpgsave_picture_15954.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:BAB794D4D9DD25EDD0E0B8AA5E3961EA2C8CB4BF
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15955.jpgsave_picture_15955.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:895ED3373683AB293E3DCDFDBDCBACFFFD867FAC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15956.jpgsave_picture_15956.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ FBReader Premium v3.8.13 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15957.jpgsave_picture_15957.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:331FC068703A227F54C83034DAD42D73E0593AB0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15958.jpgsave_picture_15958.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:30A1B3386AF3CCAE912DF98FAC52A4CE4567219F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15959.jpgsave_picture_15959.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ ProShot v8.31.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15960.jpgsave_picture_15960.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:75CC6C0A28B9E9D8C5034E9AA4A3FA616B515D3C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15961.jpgsave_picture_15961.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:4980A19BCA96A13DADD0F8D53EC141B747EBEA41
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15962.jpgsave_picture_15962.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Rammstein - LIVE: Stadium Tour 2024 (2025) [H.264/1080p] CamRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15963.jpgsave_picture_15963.jpg" />
 </div>
 
 

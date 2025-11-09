@@ -6,7 +6,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161507.jpgsave_picture_161507.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Skillbox, Роман Цыганов и др. | Профессия 3D-джене�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161508.jpgsave_picture_161508.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Trivax - Eloah Burns Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161509.jpgsave_picture_161509.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:5F83F884C376687819D8864D2C47544C81BDBEA7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161510.jpgsave_picture_161510.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:22BB1F835449FE430D89DA322F2A1A7490406E5E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161511.jpgsave_picture_161511.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ The Father Of Serpents - Age Of Damnation (2017) [FLAC|Lossless|image + .cue] <G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161512.jpgsave_picture_161512.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Deep House: NME Hot Electro Set (2021) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161513.jpgsave_picture_161513.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:A23759DC7B40CAEA10712B5CAA1FA386FD0F2C7B
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161514.jpgsave_picture_161514.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Wizard - Goochan (2007) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161515.jpgsave_picture_161515.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:63AF54606AB247ACBC7C0FCE389AACC6637EE333
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161516.jpgsave_picture_161516.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ WhatsApp Plus 2 v10.50 [Ru/Multi] (обновляемая)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161517.jpgsave_picture_161517.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:831D57A2350B89CB61C01EEA19EE3ADA91ED1DDF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161518.jpgsave_picture_161518.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Enchant - A Blueprint Of The World (1994) Special Edition, 2CD [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161519.jpgsave_picture_161519.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:613406B4AD43A8AADC87FD3E6BFFDBC428CD0759
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161520.jpgsave_picture_161520.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Wizard - Bound By Metal (1999) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161521.jpgsave_picture_161521.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Wise Registry Cleaner Pro 10.6.1.697 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161522.jpgsave_picture_161522.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:DAF1A768D08C628316D3B3BB3C21B67406BB94FE
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161523.jpgsave_picture_161523.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Wizard - Magic Circle (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161524.jpgsave_picture_161524.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:9E6CBF6E985090A863E3769733676347A100253A
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161525.jpgsave_picture_161525.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Skillbox, BangBang, Tagline, Илья Митрошин и др. | Скетчин
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161526.jpgsave_picture_161526.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Skiltron - Into The Battleground (2013) [WavPack|Lossless|image + .cue] <Power F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161527.jpgsave_picture_161527.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161528.jpgsave_picture_161528.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:96A0642B8FA083DE899B6B18AFF12F74DC73DC37
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161529.jpgsave_picture_161529.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ ItGid, Лущенко Александр | ООП в JS (2020) PCRec
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161530.jpgsave_picture_161530.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ FabFilter All Plug-Ins v2021.12.09 [U2B] STANDALONE, VST, VST3, DPM, AU [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161531.jpgsave_picture_161531.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Xoth - Exogalactic (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death, Black,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161532.jpgsave_picture_161532.jpg" />
 </div>
 
 

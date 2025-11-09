@@ -6,7 +6,7 @@ Darkfold - Ley Lines (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Sto
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241769.jpgsave_picture_241769.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0B115CCA666557F29D0D649AAB983415F69FBFD3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241770.jpgsave_picture_241770.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ FlippedNormals | Sculpting the Facial Features in Zbrush (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241771.jpgsave_picture_241771.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ J-Kerz - WE ARE JK (I-XXIII) (2022) [MP3|320 Kbps] <House, Tech House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241772.jpgsave_picture_241772.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:B549E957E02BD68F4FC03FBCA283DD9D31C3C500
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241773.jpgsave_picture_241773.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Otherwise - Gawdzillionaire (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Mod
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241774.jpgsave_picture_241774.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:64A5B22FD59B6BCA4DEA649EE63474525367FE14
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241775.jpgsave_picture_241775.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:4CCC3AE9F1E5A5A063AC6F5D70C9D1D9477DE94A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241776.jpgsave_picture_241776.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ SQLPro Studio 2023.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241777.jpgsave_picture_241777.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ MetaProducts Offline Explorer Enterprise 8.3.0.4936 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241778.jpgsave_picture_241778.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Aiseesoft DVD Creator 5.2.58 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241779.jpgsave_picture_241779.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ RAR Extractor  - unzi‪p‬ 9.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241780.jpgsave_picture_241780.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Primitai - The Calling (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241781.jpgsave_picture_241781.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ NHL 22 (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.30] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241782.jpgsave_picture_241782.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ McCoy Tyner - Sahara (1972) 1987, Original Jazz Classics [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241783.jpgsave_picture_241783.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:B9ED5BA4952FFD53ACA08EB95E7E8FA6541BFE38
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241784.jpgsave_picture_241784.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:379CB92D1FBA29648BA09E37C876BD59B5A2D67C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241785.jpgsave_picture_241785.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Disphoria - Чёрная Метка (2020) [MP3|320 Kbps] <Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241786.jpgsave_picture_241786.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ PortableApps.com Platform 25.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241787.jpgsave_picture_241787.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:0516BFC97B0C451E03C9E302878DD6D19DD62843
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241788.jpgsave_picture_241788.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:65947155E65120B57BC407C1D29FAEC6F78937E3
 >>Латиноамериканские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241789.jpgsave_picture_241789.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Night Spirit - The Spark (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241790.jpgsave_picture_241790.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Cascadea 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241791.jpgsave_picture_241791.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Drug Flash - Пьяный Поцелуй (2023) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241792.jpgsave_picture_241792.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:4C6899751A93A9F5F4A218BB28178FF00E01FF93
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241793.jpgsave_picture_241793.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:1247422AC2A73BCA09500EAB2321ED4AC1EBA639
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241794.jpgsave_picture_241794.jpg" />
 </div>
 
 

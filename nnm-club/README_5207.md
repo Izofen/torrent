@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162134.jpgsave_picture_162134.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kalachevaschool, Виктория Акулова | Эмоциональная а
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162135.jpgsave_picture_162135.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Piezo 1.7.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162136.jpgsave_picture_162136.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Kiwi for Gmail 2.0.40 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162137.jpgsave_picture_162137.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Smackbound - 20/20 (2020) hand made [restored, declipped] [FLAC 2.0|Lossless|44/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162138.jpgsave_picture_162138.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:6BA8EFB778CDD57152F673E677A3578F02086CCF
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162139.jpgsave_picture_162139.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ AnyMP4 Android Data Recovery for Mac 2.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162140.jpgsave_picture_162140.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:56BD05C9EE91BEBE148F70A98554835F2974BB36
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162141.jpgsave_picture_162141.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:3EFBC729E6D068D4968A56DD8A2A57A5B4582328
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162142.jpgsave_picture_162142.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VSDX Annotator for Mac 1.16.1 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162143.jpgsave_picture_162143.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Kiosc 1.15.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162144.jpgsave_picture_162144.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:475B62672AB89936E8867A831CF8FB9D3574FF59
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162145.jpgsave_picture_162145.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:8864E573DD3FA9B8426B74B025B3E2C03982821B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162146.jpgsave_picture_162146.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ SQLPro for SQLite 2022.103 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162147.jpgsave_picture_162147.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ DearS | ДиарС [2004, TV, 12 + 1] DVDRip 544p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162148.jpgsave_picture_162148.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:24D92180D4F21D2D67E55B03AC8D8D145C44C298
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162149.jpgsave_picture_162149.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:9D65C41C682C35825A9EA41DA6EA368BD677271F
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162150.jpgsave_picture_162150.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:20BF669D9837E7C1DC684CDCDDD08A9D56DFE265
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162151.jpgsave_picture_162151.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Mitti 2.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162152.jpgsave_picture_162152.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:94C6F4E1F86DFCF73D5F3006DE3BFBAB7DC90E2F
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162153.jpgsave_picture_162153.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Godwatt - Vol. III (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Doo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162154.jpgsave_picture_162154.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:BD06575E40A68F2D0F30DE61FCFE4EDC78649F25
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162155.jpgsave_picture_162155.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:84A8F58B4BBBA0BD31A1004425D4426D44A8361E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162156.jpgsave_picture_162156.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - The Chill Jazz Pleasure (2021) [MP3|320 Kbps] <Smooth Jazz, Chillout, Downt
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162157.jpgsave_picture_162157.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:943E05A0FE496DBF9571243100176C58AF01D54B
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162158.jpgsave_picture_162158.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Contacts Journal CRM 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162159.jpgsave_picture_162159.jpg" />
 </div>
 
 

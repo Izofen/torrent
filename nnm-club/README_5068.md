@@ -6,7 +6,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158466.jpgsave_picture_158466.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:194E2847B7A5D24E4F0DA8A556D0A6CFB04F9894
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158467.jpgsave_picture_158467.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:4F8AD8A4DF4557BDCA24E8E8970A135FBD5F71CE
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158468.jpgsave_picture_158468.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:67BB855747499C4A01D94B2757F2247F682725F1
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158469.jpgsave_picture_158469.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:EF77139C8FBEAD9A05DEB64F1DEF8254038457CE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158470.jpgsave_picture_158470.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ VA - Rock Dawn: Selected Rockin' Hits (2015) [MP3|320 кб/с] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158471.jpgsave_picture_158471.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:53451094CED8EFE147232E7AD57360A43F61A440
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158472.jpgsave_picture_158472.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:E5A976F2064B19A218A3A06EE0540E7E0A4239B0
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158473.jpgsave_picture_158473.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ OCRKit 15.12.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158474.jpgsave_picture_158474.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:D3EDA499C6FC0D5A8712747B0E0EED5704A28511
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158475.jpgsave_picture_158475.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Highly Suspect - Mister Asylum (2015) [MP3|320 кб/с] <Hard Rock, Stoner, Prog
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158476.jpgsave_picture_158476.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:0E5AD6615CF8EC9F0DE7B1A9A503D8E343448B16
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158477.jpgsave_picture_158477.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Skyzoo - Music For My Friends (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158478.jpgsave_picture_158478.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Cyberfox 43.0.1 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158479.jpgsave_picture_158479.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:224FD5786E1C8AA3AC2986EFD7520945A3F5C40B
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158481.jpgsave_picture_158481.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Deadwood - In the Meantime (2015) [MP3|320 кб/с] <Country Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158482.jpgsave_picture_158482.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:5CB0F5EFA37D9E66E7A49E5EC06BFB51ABFE01ED
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158483.jpgsave_picture_158483.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:CC0EA7478353682A58159A0E0C91636887512801
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158484.jpgsave_picture_158484.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:46437F941E99E6CE5A28D2F58FE274053E8582A4
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158485.jpgsave_picture_158485.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:A9CF7DE583D70C7303D51E75CFECD649ED99D99C
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158486.jpgsave_picture_158486.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Bernward Koch - Silent Star (2011) [APE|Lossless|tracks + .cue] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158487.jpgsave_picture_158487.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Typeeto 1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158488.jpgsave_picture_158488.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:9B6CC3BF7EDAF5DF50FD1FA6343503F0E7E38FE8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158489.jpgsave_picture_158489.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Уголовочка от радио Шансон. Часть 4 (2015) [MP3
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158490.jpgsave_picture_158490.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - Always Alive Recordings - Best Of 2015 (Mixed By Daniel Kandi) (2015) [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158491.jpgsave_picture_158491.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Andrea Motis, Joan Chamorro, Orquestra Simfonica del Valles - Live at Palau De L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158492.jpgsave_picture_158492.jpg" />
 </div>
 
 

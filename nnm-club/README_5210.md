@@ -6,7 +6,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162212.jpgsave_picture_162212.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F0ABC16170BC81ECD3C1B7547305E6B749B43D85
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162213.jpgsave_picture_162213.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:163321A6DD84DC0DF46409EDAD7734BB8D3F4C9B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162214.jpgsave_picture_162214.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:93905E618ABB5ABEA94F22065376258048CC176A
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162215.jpgsave_picture_162215.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Instrumental Jazz: Masters Of Improvisation (2021) [MP3|320 Kbps] <Jazz, In
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162216.jpgsave_picture_162216.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D903BED6E64292694E1D35DF46E86A9D304510DA
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162217.jpgsave_picture_162217.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:225ED8F2C22F9798FB90CA1E2038547D8132B338
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162218.jpgsave_picture_162218.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:49EBA8D97305F41D59D6E498DE18AB975FCB4218
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162219.jpgsave_picture_162219.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Firefox Browser ESR 91.4.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162220.jpgsave_picture_162220.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:9E4B6432624F2D71B2FC4375E955B899A3E9E8D1
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162221.jpgsave_picture_162221.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:712F3B3AF0CAB377E1A018205225764B891BAFDA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162222.jpgsave_picture_162222.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:6467A2411A5482069D64F1702698186E9EDF3BB5
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162223.jpgsave_picture_162223.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:0D99B36297AF443542CEEDC25480D4953330743F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162224.jpgsave_picture_162224.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Cardaclysm: Shards of the Four (2020) [Ru/Multi] (1.1.2.6_fix) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162225.jpgsave_picture_162225.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ English LinDuo HD v5.29.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162226.jpgsave_picture_162226.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Nevercenter CameraBag Pro 2024.0.1 x64 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162227.jpgsave_picture_162227.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Skillbox, Андрей Котельников, Никита Акулич | По�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162228.jpgsave_picture_162228.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ A Short Hike (2019) [Multi] (1.9_v3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162229.jpgsave_picture_162229.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Mellow Easy Chilled Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162230.jpgsave_picture_162230.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ SUPERHOT (2016) [Ru/Multi] (1.0.21b_plus_l1.1.36) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162231.jpgsave_picture_162231.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:E53FFC89378A982FCEA5996586C49AB5F54C7E86
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162232.jpgsave_picture_162232.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:1A691AC4C6990BF9CD4B5AE240347B066A17855F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162233.jpgsave_picture_162233.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:070A81E3A47A81BB2AD0CB993E52C9A7D68D2DCF
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162234.jpgsave_picture_162234.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Tropico 6 v.19_907_a7f0e5a (2019) [Ru/En] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162235.jpgsave_picture_162235.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6 fix/dlc) License GOG [Delux
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162236.jpgsave_picture_162236.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Frank Sinatra with the Red Norvo Quintet - Live In Australia (1959) 1997, Blue N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162237.jpgsave_picture_162237.jpg" />
 </div>
 
 

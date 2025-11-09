@@ -6,7 +6,7 @@ Frank Duval - Greatest Hits (2CD) (2012) [FLAC|Lossless]<Pop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131326.jpgsave_picture_131326.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Frank Duval - Greatest Hits (2CD) (2012) [FLAC|Lossless]<Pop>
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131327.jpgsave_picture_131327.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:445AA9FCC271C78EB388005D9A69E6D6CAFF72D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131329.jpgsave_picture_131329.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:6FDF01FA672A99692FC3B0266A21A474FAA009FD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131330.jpgsave_picture_131330.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ StartAllBack 3.7.1 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131331.jpgsave_picture_131331.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:4E94C7F7B478A93678B344B7E678E7869D9C3081
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131332.jpgsave_picture_131332.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VPN Inf - Security Fast VPN 7.6.301 Mod by ModdingUnited [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131333.jpgsave_picture_131333.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Indie Collection [Ru/En] (RePack) 2008 - 2011 | R.G. Catalyst
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131334.jpgsave_picture_131334.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:9DCF2B68B1CB0C3A975209168EE6C104542B5AE4
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131335.jpgsave_picture_131335.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Melon VPN - Secure Proxy VPN 7.9.633 Mod By ModdingUnited [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131336.jpgsave_picture_131336.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:AED206A970DF2C733C228676EA154BAC7B75B1F5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131337.jpgsave_picture_131337.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:C6A4415851873B40054C1D94EC194FD2FCD74D48
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131338.jpgsave_picture_131338.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ LibreOffice 7.6.4.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131339.jpgsave_picture_131339.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:F1F69F4E0A3E6E01B7469DE3133120B47B4A05DD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131341.jpgsave_picture_131341.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:7D7AF20561FC416BE96C56B93FA600E83C5A5135
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131342.jpgsave_picture_131342.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Halie Loren - 3 альбома (2010-2012) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131344.jpgsave_picture_131344.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Jean Michel Jarre - Oxygene (1976) [FLAC|Lossless]<Electro, Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131346.jpgsave_picture_131346.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Jean Michel Jarre - Oxygene (1976) [FLAC|Lossless]<Electro, Ambient>
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131347.jpgsave_picture_131347.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Jean Michel Jarre - Oxygene (1976) [FLAC|Lossless]<Electro, Ambient>
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131348.jpgsave_picture_131348.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:58F105FA232A7C87B01FB1E0236CEA1D027C3253
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131349.jpgsave_picture_131349.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:B569AD9DF83A82F168B18C7A9A555D562934F708
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131350.jpgsave_picture_131350.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:6CF8957DB3873593AC3E03C3B7160EDF3ED2E1F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131351.jpgsave_picture_131351.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:62725EC2CE761C9568DAA9B78B7E60C7B9707222
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131352.jpgsave_picture_131352.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ AmigosCode, Nelson Djalo | Functional Programming & Java Streams (2023) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131353.jpgsave_picture_131353.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Wondershare UniConverter Ultimate 15.0.7.20 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131355.jpgsave_picture_131355.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:649671814BA61D303BA94C59A9DEC41B427C950D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131357.jpgsave_picture_131357.jpg" />
 </div>
 
 

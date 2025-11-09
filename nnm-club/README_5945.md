@@ -6,7 +6,7 @@ Iron Allies - Blood In Blood Out (2022) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187196.jpgsave_picture_187196.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:6E588E7E3846F475D9DED69F6006B753DCF887B3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187197.jpgsave_picture_187197.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Saint Asonia - Extrovert (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Pos
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187198.jpgsave_picture_187198.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Trance - Metal Forces (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187199.jpgsave_picture_187199.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:B707B6FF2A35FE0665E9727EA6757147C3A3E555
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187200.jpgsave_picture_187200.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187201.jpgsave_picture_187201.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:A4C22089662F74B2DBA382F791C679DE815B41DB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187202.jpgsave_picture_187202.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Dave Liebman - Live At Smalls (2023) Cellar Music [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187203.jpgsave_picture_187203.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Devin Townsend - Lightwork (2022) 2xCD [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187204.jpgsave_picture_187204.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ The National - Laugh Track (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187205.jpgsave_picture_187205.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Rock-сказка - Часы весны I - III (2020-2022) 3 EP [FLAC|Lossless|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187206.jpgsave_picture_187206.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:3DEE281A49F53271E20D7050D1A6182068816E34
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187207.jpgsave_picture_187207.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Wildness - Resurrection (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187208.jpgsave_picture_187208.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:1E0AE155E06BB1687CD2D6937E538C7BA12F4735
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187210.jpgsave_picture_187210.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:A87C84F324BD624E703504F4D08633C4C893AC54
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187211.jpgsave_picture_187211.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:017B4CB47EFCEBAB226A511F4BD66AD17BB7BB5B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187213.jpgsave_picture_187213.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:63AF7EBF31AB4ACDEABA0231F8D2100E1CAEB6E4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187214.jpgsave_picture_187214.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ VA - Techno Club Vol.67 (Talla 2XLC & Ralphie B) 2CD (2022) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187216.jpgsave_picture_187216.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:4E9E8CCF8332490E288DF0828EA086CBD75DEE51
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187218.jpgsave_picture_187218.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:F76CAEFCEA7D5E99CC0E28DBB0881F58BE140109
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187219.jpgsave_picture_187219.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Adobe Photoshop 2024 25.0.0.37 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187221.jpgsave_picture_187221.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:A8C2AD4FFDF4F3FD8CC418FAF65417541B89C4E8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187222.jpgsave_picture_187222.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Abbsynth - Back To The Sun (2008) [MP3|320 Kbps] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187224.jpgsave_picture_187224.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Strike Force 3 (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187225.jpgsave_picture_187225.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Rebrain, Fevlake | NGINX онлайн-практикум (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187226.jpgsave_picture_187226.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:AE6692B50166991046EC848964AB334D122E3E65
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187227.jpgsave_picture_187227.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Crypt Dweller - 4 Albums (2020-2022) [MP3|320 Kbps] <Doom Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187823.jpgsave_picture_187823.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mammoth WVH - Mammoth WVH (2021) Deluxe Edition, 2022, EX1 Records [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187825.jpgsave_picture_187825.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Zack Avicenne - Time Is Not A Reason (2022) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187827.jpgsave_picture_187827.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Labor Intvs - Sunken Crucible (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187831.jpgsave_picture_187831.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Fateful Finality - Emperor Of The Weak (2022) [FLAC|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187833.jpgsave_picture_187833.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sexcrement - Genitales from the Porno Potty (2007) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188017.jpgsave_picture_188017.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Aeveris - White Elephant (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188062.jpgsave_picture_188062.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Brian Setzer - The Devil Always Collects (2023) [FLAC|Lossless|image + .cue] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188071.jpgsave_picture_188071.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Roadwolf - Unchain the Wolf (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188087.jpgsave_picture_188087.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Shade Empire - Sunholy (2023) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Symphonic In
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188102.jpgsave_picture_188102.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Aephanemer - Memento Mori (2016) [FLAC|Lossless|image + .cue] <Symphonic Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188107.jpgsave_picture_188107.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ S.O.R.M - Under My Skin (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188108.jpgsave_picture_188108.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Gotland - Rise (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188110.jpgsave_picture_188110.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Guitar Instrumentals - Deepest Guitar Blues & Stories (2023) [MP3|320 Kbps] <Ins
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188203.jpgsave_picture_188203.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Bonnie Tyler - Free Spirit (1995) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188242.jpgsave_picture_188242.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Sullvation - The Beginning of the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188247.jpgsave_picture_188247.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Manntra - Oyka! (2019) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188254.jpgsave_picture_188254.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Manntra - Meridian (2017) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188262.jpgsave_picture_188262.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Manntra - Horizont (2012) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188264.jpgsave_picture_188264.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Manntra - Venera (2015) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188266.jpgsave_picture_188266.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Tomb Mold - The Enduring Spirit (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188267.jpgsave_picture_188267.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Burner - Hittin' The Target (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188268.jpgsave_picture_188268.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Brujeria - Esto Es Brujeria (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Groove 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188271.jpgsave_picture_188271.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Ataraxie - Resignes (2019) 2 x CD, Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188276.jpgsave_picture_188276.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Roadwolf - Midnight Lightning (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188281.jpgsave_picture_188281.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Pansophic - The 2023 Massacre (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188283.jpgsave_picture_188283.jpg" />
 </div>
 
 

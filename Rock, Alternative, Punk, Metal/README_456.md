@@ -6,7 +6,7 @@ Suicide Silence - Remember... You Must Die (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241502.jpgsave_picture_241502.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Rock 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241509.jpgsave_picture_241509.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mondocane - Project One (1990) Remastered, 2013 [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241524.jpgsave_picture_241524.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Hit The Ground Runnin' - Sudden Impact (1989) 2xCD, Reissue, Remastered, 2022, A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241528.jpgsave_picture_241528.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ulcerate - Stare Into Death And Be Still (2020) [FLAC|Lossless|tracks + .cue] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241537.jpgsave_picture_241537.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rezn - Solace (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych Stoner Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241538.jpgsave_picture_241538.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Murderbait - Nostalgia Like Cancer (2022) [FLAC|Lossless|WEB-DL|tracks] <Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241545.jpgsave_picture_241545.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Argion - Lux Umbra (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241551.jpgsave_picture_241551.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:5E5FCEC577F5696424255663AFAF4D48CD66694F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241561.jpgsave_picture_241561.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Jaimee Harris - Boomerang Town (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241563.jpgsave_picture_241563.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Asphagor - Pyrogenesis (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241570.jpgsave_picture_241570.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ District 4 - Закон молчания (2023) [FLAC|Lossless|WEB-DL|tracks] <N
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241572.jpgsave_picture_241572.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Lee Kerslake - Eleventeen (2021) [FLAC|Lossless|image + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241573.jpgsave_picture_241573.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Aríht (Ariht)  - As the Leaves Settle (2022) [FLAC|Lossless|WEB-DL|tracks] <Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241578.jpgsave_picture_241578.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Raveonettes - Chain Gang Of Love (2003) [FLAC|Lossless|image + .cue] <Indie 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241581.jpgsave_picture_241581.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Maverick - Ethereality (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241583.jpgsave_picture_241583.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Arjen Anthony Lucassen's Star One - Revel In Time (2022) 2CD [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241586.jpgsave_picture_241586.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Marauder - Metal Constructions VII (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241588.jpgsave_picture_241588.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Aschmicrosa - Inferno (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241589.jpgsave_picture_241589.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Bad Ends - The Power And The Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241597.jpgsave_picture_241597.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Aphotic - Abyssgazer (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Death, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241598.jpgsave_picture_241598.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Conifer Beard - 3 Albums (2019-2022) [MP3|320 Kbps] <Stoner Rock, Grunge>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241602.jpgsave_picture_241602.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:9B4EDBF4D79ABA48FF49A8CD545AD3F78C0F94BA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241603.jpgsave_picture_241603.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Impedigon - As Desires Fade... (2001) [FLAC|Lossless|image + .cue] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241604.jpgsave_picture_241604.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Isole - Anesidora (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241611.jpgsave_picture_241611.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Black eXpression - Mundo Real (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241612.jpgsave_picture_241612.jpg" />
 </div>
 
 

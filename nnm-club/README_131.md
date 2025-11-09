@@ -6,7 +6,7 @@ Orchestra Electrecord + Grupul vocal «Cantabile» - Non Stop Dancing I (1971) [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3456.jpgsave_picture_3456.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4BD390D04CFE8A254AE87D3CE107E50B0042370C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3457.jpgsave_picture_3457.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ November - The Long Way Home (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3458.jpgsave_picture_3458.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:F5DFCBDEBA1C8B43924D7A6DD989DAE256766C04
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3459.jpgsave_picture_3459.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:157EF44FDFB95A0D0375ABBDE8BF2BD1E107FD3A
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3460.jpgsave_picture_3460.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:0ED33C0C164ACE9A61AAA5C63E10080E0550444B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3461.jpgsave_picture_3461.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:6EFF5C8CA431FAED1C539507BE5BE4AB36807E6A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3462.jpgsave_picture_3462.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - The Best of Viva Electronica Music Year One Anniversary (2025) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3463.jpgsave_picture_3463.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Static Movement - Underwater (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psy-T
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3464.jpgsave_picture_3464.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Glenn Hughes - Chosen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3465.jpgsave_picture_3465.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:6329BAD77451B3BC46781EBE531CDA81946DBBF9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3466.jpgsave_picture_3466.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:40F2B134E1B3331C2983081606CFDBB366C7DD11
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3467.jpgsave_picture_3467.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:EF50DD8F9DF08DAD80BC8D3E7D1C2BFA8938F182
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3468.jpgsave_picture_3468.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:6D56F50ABA5530523245BD97FB1A0C95B0529907
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3469.jpgsave_picture_3469.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.14 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3470.jpgsave_picture_3470.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Music News For Forum vol.134 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3471.jpgsave_picture_3471.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:7E4A5784DE9C9B35AC736CDC2E61313DF6C237F2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3472.jpgsave_picture_3472.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ IObit Uninstaller Pro 15.0.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3473.jpgsave_picture_3473.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:028D827CDBAC9E574F249A71D068A3EBBC83A53D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3474.jpgsave_picture_3474.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Xezzo - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3475.jpgsave_picture_3475.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:7AB704C46E1B42E43EF60EEEDC4CD12DE64DCF10
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3476.jpgsave_picture_3476.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:A23B894891CE7B5CE71139A10631F497DC6B6A8D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3477.jpgsave_picture_3477.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:3B88C699EE8BABFFF09D4B3EC0FC3FCD4B3BFAE5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3478.jpgsave_picture_3478.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:E7D0F221560DF7F0B3F5AB417D394D0CCE7F97F3
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3479.jpgsave_picture_3479.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:9C6EBFD7B4FF05176A79E169B1A2DA87E42DEA08
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3480.jpgsave_picture_3480.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:1078B7B066CCFA80BD6EC08D48645638326F8731
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3481.jpgsave_picture_3481.jpg" />
 </div>
 
 

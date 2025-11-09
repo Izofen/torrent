@@ -6,7 +6,7 @@ GoodTask 7.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117147.jpgsave_picture_117147.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Bike Outliner for Mac 1.18.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117148.jpgsave_picture_117148.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ David Aubaile - Trafiquants (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117149.jpgsave_picture_117149.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ The Barry Harris Sextet - Luminescence! (1967) 1997, Original Jazz Classics [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117150.jpgsave_picture_117150.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Boinx FotoMagico Pro 6 v.6.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117151.jpgsave_picture_117151.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:454EC67DC28CCA462422BED3BEE1BDD1A08F66F9
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117152.jpgsave_picture_117152.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ VA - Armin van Buuren - A State Of Trance 1160 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117153.jpgsave_picture_117153.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:159986631C01B6348E3ECFA6E58A509F2C535DBC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117154.jpgsave_picture_117154.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Sip Pro 3.3.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117155.jpgsave_picture_117155.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ GraphicConverter 12 for Mac 12.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117156.jpgsave_picture_117156.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Von Hertzen Brothers - Live At Tavastia (2024) [FLAC|Lossless|WEB-DL|tracks] <Cr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117157.jpgsave_picture_117157.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Art Of Anarchy - Let There Be Anarchy (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117158.jpgsave_picture_117158.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:275041633601C11D6B92A7A45493A8CA24782329
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117159.jpgsave_picture_117159.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ UMC - CHAPTER 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117160.jpgsave_picture_117160.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:7A8572D414A6DC34D1427A084BB779B5D91B1F8C
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117161.jpgsave_picture_117161.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Manga Saint Hilare & MoreNight - Everything Is Under Control (2024) [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117162.jpgsave_picture_117162.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:D178B08EBD186A0D595DA057D04D4C4480DFDC59
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117163.jpgsave_picture_117163.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ UMC - CHAPTER 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117164.jpgsave_picture_117164.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:91D52E377D6586EFBDACC9FCDA6796004D87E844
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117165.jpgsave_picture_117165.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ UMC - CHAPTER 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117166.jpgsave_picture_117166.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Art Of Anarchy - Let There Be Anarchy (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117167.jpgsave_picture_117167.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Witchsnake - Deathcult of the Snake (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117168.jpgsave_picture_117168.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:605E95592167EF09BCEB71FB4E47364C3CE30AAC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117169.jpgsave_picture_117169.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Illumishade - Eclyptic: Wake of Shadows (2020) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117170.jpgsave_picture_117170.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ ProFind for Mac 1.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117171.jpgsave_picture_117171.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ magnet:?xt=urn:btih:5155B1FB9E669B61F7BC6BFFFC9684B39EB2514C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117172.jpgsave_picture_117172.jpg" />
 </div>
 
 

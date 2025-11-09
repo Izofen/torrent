@@ -6,7 +6,7 @@ He Is Legend - Endless Hallway (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189201.jpgsave_picture_189201.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Herbstlethargie - Melancholie im Blattfall (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189203.jpgsave_picture_189203.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Human - A New Perception (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189204.jpgsave_picture_189204.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Zeke Sky - Intergalactic Demon King (2022) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189205.jpgsave_picture_189205.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Parish - Parish (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189206.jpgsave_picture_189206.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Hornansarvi - Grim Reaper's Greed (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189207.jpgsave_picture_189207.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Hussar - All-Consuming Hunger (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189208.jpgsave_picture_189208.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Staind - Confessions Of The Fallen (2023) [MP3|320 Kbps] <Alt.Metal, Post-Grunge
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189212.jpgsave_picture_189212.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:E1C4A2CC52A0709D59E81A05A7C58E4536C39596
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189293.jpgsave_picture_189293.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Prog Rock For Rookies (2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189304.jpgsave_picture_189304.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Roxy Music - The Thrill Of It All (1995) 4CD [MP3|320 Kbps] <Art Rock, Glam Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189305.jpgsave_picture_189305.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Massive Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189308.jpgsave_picture_189308.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Prog Rock For Rookies Vol.2 (2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189316.jpgsave_picture_189316.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Guns N' Roses - Use Your Illusion (1991) 4CD, Super Deluxe, 2022, Guns N Roses P
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189328.jpgsave_picture_189328.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Full Volume Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189348.jpgsave_picture_189348.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Welcome to My Life - Pop-Rock Anthem (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189363.jpgsave_picture_189363.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bruce Springsteen - Only the Strong Survive (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189367.jpgsave_picture_189367.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:5BF4146C04F7A3EAC43FEA40F572CDA26686D3C6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189369.jpgsave_picture_189369.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ I Am Your God - SINister (2023) [MP3|320 Kbps] <Melodic Death Metal, Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189386.jpgsave_picture_189386.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Fresh Rock Bangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189389.jpgsave_picture_189389.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Meurtrieres - Ronde de Nuit (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189396.jpgsave_picture_189396.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:BD621343C0C11C0EC3A6B86B7359783522A78686
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189397.jpgsave_picture_189397.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ I Am Your God - The Resurrection (2020) [MP3|320 Kbps] <Melodic Death Metal, Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189398.jpgsave_picture_189398.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ I Am Your God - SINister (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189401.jpgsave_picture_189401.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ DeathOrchestra - Symphony of Death (2020) [FLAC|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189412.jpgsave_picture_189412.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Bruce Springsteen - Only the Strong Survive (2022) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189413.jpgsave_picture_189413.jpg" />
 </div>
 
 

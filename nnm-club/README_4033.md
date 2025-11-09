@@ -6,7 +6,7 @@ VA - Jazz Hop #2 (Relaxing Lo-fi Jazzy Chill) (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125426.jpgsave_picture_125426.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:5ACBA4238D41D98211183B4E84DC636C8ECAE309
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125427.jpgsave_picture_125427.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Smooth Easy Going Relax Lounge Luxury Tunes (2023) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125428.jpgsave_picture_125428.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:159939337089C2A1AD83BB44DC4E283A617CEBAB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125429.jpgsave_picture_125429.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Gods of Gaia - As Daylight Dies (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125430.jpgsave_picture_125430.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:F31222425CFD084D48FEC2A9D6DEF623B79D58F3
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125431.jpgsave_picture_125431.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Eutectica - [In]human (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125432.jpgsave_picture_125432.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Souls Of Steel - Songs of Steel (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125433.jpgsave_picture_125433.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Demon - Breakout (1987) Japanese Edition, Reissue, Remastered, 2020, Rubicon Mus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125434.jpgsave_picture_125434.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:65A40FD3F7CEBC38438DFC4007AD29BCB746CFB7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125435.jpgsave_picture_125435.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Boston Brass & The Brass All-Stars Big Band - The Stan Kenton Christmas Carols (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125436.jpgsave_picture_125436.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Ordahlia Nera - Mask of Broken Glass (2023) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125437.jpgsave_picture_125437.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Ramsey Lewis - Classic Encounter (1988) CBS [FLAC|Lossless|tracks + .cue] <Cross
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125438.jpgsave_picture_125438.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Scarlett O'Hara - Overthrown (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125439.jpgsave_picture_125439.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Demolish - The Unique Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125440.jpgsave_picture_125440.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ PortableApps.com Platform 28.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125441.jpgsave_picture_125441.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:CC7608392E9DEE5F543E218D7970078E62823CA9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125442.jpgsave_picture_125442.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Fort Firewall 3.10.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125443.jpgsave_picture_125443.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:924C19FE2E415051D56DD09AD82FA5794983E5C5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125444.jpgsave_picture_125444.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:8110F0632244F7AD5457B8F8024815F1D76F87ED
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125445.jpgsave_picture_125445.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:198AA6E9CFB1736ABA8B95D27EDB983CF61508D8
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125446.jpgsave_picture_125446.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:2EA29EFB468B6A2766747A95C68102A6807F142B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125447.jpgsave_picture_125447.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Chris Rea - Herzklopfen (1986) [OGG Vorbis|480 Kbps] <Soft Rock, Rock, Pop Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125448.jpgsave_picture_125448.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Lectoroom, Мария Павлова | Разноцветные пионы в к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125449.jpgsave_picture_125449.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:15B5B6D2EBAC56435039F0B900AC2B46FF4394C7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125450.jpgsave_picture_125450.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:3837157B4044AAB9793F9B0A534CAD9B40AD9FC6
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125451.jpgsave_picture_125451.jpg" />
 </div>
 
 

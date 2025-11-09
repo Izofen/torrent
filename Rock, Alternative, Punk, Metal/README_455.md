@@ -6,7 +6,7 @@ Steve Dalton - Primitive (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241280.jpgsave_picture_241280.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Martillo Austral - Requiem (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241281.jpgsave_picture_241281.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mortillery - Murder Death Kill (2011) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241284.jpgsave_picture_241284.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Garage Dayz - Take One (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241291.jpgsave_picture_241291.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kinetic - The Chains That Bind Us (2004) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241296.jpgsave_picture_241296.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Richard Wright - Wet Dream (1978) Japanese Edition, Reissue, 1994, Sony Records 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241300.jpgsave_picture_241300.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Darking - Steal The Fire (2015) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241301.jpgsave_picture_241301.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Fatal Portrait - Adventum (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241314.jpgsave_picture_241314.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Cynthesis - ReEvolution (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241319.jpgsave_picture_241319.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Neil Young - Promise of the Real - Noise and Flowers (2022) [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241348.jpgsave_picture_241348.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Hawkwind - Days Of The Underground: The Studio & Live Recordings 1977-1979 (2023
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241360.jpgsave_picture_241360.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Santana - Santana Live In 1978: Black Magic Woman (Live) (2022) [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241374.jpgsave_picture_241374.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Van der Graaf Generator - The Bath Forum Concert (2023) Live, 2CD [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241385.jpgsave_picture_241385.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Dream Awake - Enigma (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241396.jpgsave_picture_241396.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Azaghal - Alttarimme on Luista Tehty (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241402.jpgsave_picture_241402.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ The Curse Within - Heartless (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Melodic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241405.jpgsave_picture_241405.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ B.O.S.C.H. - Parasit (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial-Metal, Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241409.jpgsave_picture_241409.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Majesty - Back To Attack (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241412.jpgsave_picture_241412.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Northlane - 6 альбомов + 1 EP (2010-2022) [MP3|320 кб/с]<Progressive 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241413.jpgsave_picture_241413.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ K.S.V. - Цикл (2021) [MP3|320 Kbps] <Hardcore Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241436.jpgsave_picture_241436.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Celestial Season - Forever Scarlet Passion (1993) Remaster, 2020, Burning World 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241453.jpgsave_picture_241453.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Dangermuffin - Heritage (2017) [FLAC|Lossless|tracks + .cue] <Folk Rock, America
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241458.jpgsave_picture_241458.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Celestial Season - Solar Lovers (1995) Remaster, 2020, Burning World Records [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241461.jpgsave_picture_241461.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Creye - III Weightless (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241471.jpgsave_picture_241471.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Paloma Faith ‎ - Do You Want the Truth or Something Beautiful? (2009) [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241492.jpgsave_picture_241492.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Guru Guru - The Three Faces Of Guru Guru 1970-2021 (2023) 3CD [MP3|320 Kbps] <Kr
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241495.jpgsave_picture_241495.jpg" />
 </div>
 
 

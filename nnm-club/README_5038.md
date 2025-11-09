@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157510.jpgsave_picture_157510.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Hit News Vol. 13 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157512.jpgsave_picture_157512.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Windows 10 Pro 20H2 b19042.685 x64 ru by SanLex (edition 2020-12-19) [Ru]
 >>20
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157513.jpgsave_picture_157513.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9DAE46E3785CFDA30C5514019DAB1E237C0AB4D0
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157515.jpgsave_picture_157515.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:0140BC349F8F0221350AC94C91EBA6F5687E2686
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157516.jpgsave_picture_157516.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:A4798A993B9D6E8D694DAC452DF5963E52A11C96
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157518.jpgsave_picture_157518.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:2A3C7898D5D504A1B7649C3F2C20B192F4F37D34
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157519.jpgsave_picture_157519.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Zoner Photo Studio X 19.2309.2.506 Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157520.jpgsave_picture_157520.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:B578BF97140F50D887B2A96E67BC9C6A6624126F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157521.jpgsave_picture_157521.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:2C7B3B4767D74BBA5066819DD9D6E2FD15BF71B3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157522.jpgsave_picture_157522.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:F0F7E74F1C7817FB6B74108E8DA87774C4DE938D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157523.jpgsave_picture_157523.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:848ABDB28C11FD17E1B5FB9437776B809889E918
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157525.jpgsave_picture_157525.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:DC7711719C599B118B1B9C9B588A0CF745571905
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157526.jpgsave_picture_157526.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:9732F260DD897544C5A56D035DD66AD0408ED695
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157527.jpgsave_picture_157527.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Hardstyle Dance Music For Workout (2018) [MP3|320 Kbps] <Hardstyle, Hard Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157528.jpgsave_picture_157528.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Arrogant Destruktor - Written In Blood From The Blade (2023) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157529.jpgsave_picture_157529.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:1DC92D6B5757B83CBE7F28E63D7675A37129AAF4
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157530.jpgsave_picture_157530.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:A47F69EA0682592DCA66737A9C811CA3495174F6
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157532.jpgsave_picture_157532.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:4ADF78F778BBF5D9808723F3F3ACCF22E64818B8
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157533.jpgsave_picture_157533.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:F900ED15EB60F83C4AEBC11E9944EA652FE276D0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157535.jpgsave_picture_157535.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA- The Hit Factory 2 - The Best Of Stock Aitken Waterman (1988) [FLAC|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157536.jpgsave_picture_157536.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ At the Gates - Studio Albums (7 releases) (1992 - 2021) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157538.jpgsave_picture_157538.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:0F95D624568EF20257BD4F6B1226F564DA8B37FC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157539.jpgsave_picture_157539.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - Winter Chillout Compilation (2018) [MP3|320 Kbps] <Chillout, Lounge, Downte
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157540.jpgsave_picture_157540.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Foghat - Sonic Mojo (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157541.jpgsave_picture_157541.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:AB092F576854262E2D8A7EDD453921D837EC6F12
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157542.jpgsave_picture_157542.jpg" />
 </div>
 
 

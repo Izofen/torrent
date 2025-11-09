@@ -6,7 +6,7 @@ Graveworm - Scourge of Malice (2001) [FLAC|Lossless|image + .cue] <Melodic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245576.jpgsave_picture_245576.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Iron Mask - Diabolica (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245577.jpgsave_picture_245577.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jen Ascending - Bleeding Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245584.jpgsave_picture_245584.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ HammerFall - Renegade 2.0 (2021) 2xCD, Compilation, Remastered, Nuclear Blast, 2
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245586.jpgsave_picture_245586.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dirch - First We Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245591.jpgsave_picture_245591.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jaggu - Rites for the Damned (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245596.jpgsave_picture_245596.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Wizard - Metal In My Head (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245597.jpgsave_picture_245597.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Dead Daisies - Ноlу Grоund (2021) [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245604.jpgsave_picture_245604.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Strider - Midnight Zen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245605.jpgsave_picture_245605.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Noctem - Haeresis (2016) [MP3|320 Kbps] <Black Metal, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245607.jpgsave_picture_245607.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Seer of the Void - Doom Metal (2020-2023) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245615.jpgsave_picture_245615.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Korpiklaani - Jylha (2021) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245634.jpgsave_picture_245634.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Robert Palmer - Riptide (1985) Remaster, 2020, UMG Recordings [FLAC 2.0|192/24|W
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245642.jpgsave_picture_245642.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Phantom Elite - Blue Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245651.jpgsave_picture_245651.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Faithful Annie - Sideways (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245653.jpgsave_picture_245653.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Power from Hell - Lust And Violence (2011) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245660.jpgsave_picture_245660.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ De Profundis - The Corruption of Virtue (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245668.jpgsave_picture_245668.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Mastodon - 8 Albums, 2 Compilation &  Live, 6 Singles & EP (2001-2021) 28CD [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245671.jpgsave_picture_245671.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Beleth - Silent Genesis (2021) [FLAC|Lossless|image + .cue] <Death Metal, Groove
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245674.jpgsave_picture_245674.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Blaze Of Sorrow - Vultus Fati (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245675.jpgsave_picture_245675.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Wojnar - Jam Synem Orlim Jest na Wieki!… (2009) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245682.jpgsave_picture_245682.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ The Black Box Revelation - Poetic Rivals (2023) [FLAC 2.0|88.2/24|WEB-DL|tracks]
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245693.jpgsave_picture_245693.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Porcupine Tree - Closure / Continuation (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245695.jpgsave_picture_245695.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Third Eye - Vengeance Fulfilled (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245700.jpgsave_picture_245700.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Tribunal - The Weight Of Remembrance (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245708.jpgsave_picture_245708.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Evil Invaders - Shattering Reflection (2022) [FLAC|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245710.jpgsave_picture_245710.jpg" />
 </div>
 
 

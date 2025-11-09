@@ -6,7 +6,7 @@ Crystal Viper - The Last Axeman (2022) Japanese Edition, Compilation [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166837.jpgsave_picture_166837.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jesse Harms - All Sides - Songwriter Demos Collection (2022) 6xCD [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166840.jpgsave_picture_166840.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dream Theater - Distant Memories - Live In London (2020) 3xCD [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166847.jpgsave_picture_166847.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:0E379809CE63CE11F0BAA7EFE56DF311D2481A59
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166864.jpgsave_picture_166864.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:DFECD4B2492DCDCA6234F765264227C04824E26D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166877.jpgsave_picture_166877.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:6A723172F41349533A5DA717AB17C0D75532B9B8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166883.jpgsave_picture_166883.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Hellraiser - Dream of Doom (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166886.jpgsave_picture_166886.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Rising Faith - The Arrival (2003) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166889.jpgsave_picture_166889.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lordi - Lordiversity: Abracadaver (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166893.jpgsave_picture_166893.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Pink Floyd - Lyon 12 June 1971 & Tokyo 16 March 1972 (2021) [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166908.jpgsave_picture_166908.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Everest Queen - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166914.jpgsave_picture_166914.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Loud Solution - Throwback (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166916.jpgsave_picture_166916.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Fuzzerati - Zwo (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Psych, Stoner, Spac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166920.jpgsave_picture_166920.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Komunist - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hardcor
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166923.jpgsave_picture_166923.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Andra - Circle Of Fire (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166926.jpgsave_picture_166926.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Lordi - Lordiversity: Abracadaver (2021) [MP3|320 Kbps] <Heavy Metal, Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166929.jpgsave_picture_166929.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Asgarth - Zeldatik (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166932.jpgsave_picture_166932.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Crimson Tears - The Dark Awakening (2007) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166935.jpgsave_picture_166935.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Aneuma - Climax (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166939.jpgsave_picture_166939.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Pink Floyd - Live In Rome Palaeur 20 June 1971 (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166946.jpgsave_picture_166946.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:B8F199CD4328096AC3A008A4A7BFA229FEC8BA33
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166949.jpgsave_picture_166949.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Loudblast - Manifesto (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166954.jpgsave_picture_166954.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Oopart - Echoes of the Shadhavar (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166963.jpgsave_picture_166963.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:BCD4C536DA27BC5E41AAD5F47F333BCB2A1239CF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166967.jpgsave_picture_166967.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Realm - Endless War (1988) Reissued 2006 [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166968.jpgsave_picture_166968.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Exhorder - Mourn The Southern Skies (2019) [FLAC|Lossless|image + .cue] <Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166972.jpgsave_picture_166972.jpg" />
 </div>
 
 

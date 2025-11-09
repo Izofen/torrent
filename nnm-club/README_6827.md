@@ -6,7 +6,7 @@ Alex Nunziati - Black Space Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Horror He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234669.jpgsave_picture_234669.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A2FB39263A79948D8AA0EBC9D51076D589129758
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234670.jpgsave_picture_234670.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234671.jpgsave_picture_234671.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:FBC342E3980B61CCBAAF4464FFB22135FF2BE120
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234672.jpgsave_picture_234672.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ NetShred X 5.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234673.jpgsave_picture_234673.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:3C75B59DD3926134647666D0718729E3CF81C379
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234674.jpgsave_picture_234674.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Cry Of Dawn - Anthropocene (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234675.jpgsave_picture_234675.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:97FC64F98B81098B5424BF16731BE2593384817E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234676.jpgsave_picture_234676.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Mean Green - Mean Green (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom, Sludg
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234677.jpgsave_picture_234677.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Exgenesis - Solve et Coagula (2020) [FLAC|Lossless|image + .cue] <Melodic Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234678.jpgsave_picture_234678.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ VA - Erotic Lounge (2015) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234679.jpgsave_picture_234679.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ FastStone Capture 10.1 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234680.jpgsave_picture_234680.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:A232E1E1E73C17DBC00B11C24CCACC8D7067EA78
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234681.jpgsave_picture_234681.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:ABA4A2922FB45B47DB083C968361CC8CB725108D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234682.jpgsave_picture_234682.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Sebia - Acceptance Of Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234683.jpgsave_picture_234683.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Massacre - Submergence: Live Beyond 2019 (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234684.jpgsave_picture_234684.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ ImageRanger Pro Edition 1.9.2.1856 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234685.jpgsave_picture_234685.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:F93AEC0CA0BAFCA0C7D4D21E6873CD4EBC9F0FDF
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234686.jpgsave_picture_234686.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:6D06B05B13486756E826FF62B39A5B76CC1F8015
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234687.jpgsave_picture_234687.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:BA27CD42618C09757FE0E9D210D0BE4B0D9CBF73
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234688.jpgsave_picture_234688.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:8A788400A3BF29080815974E7333D38299A627C9
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234689.jpgsave_picture_234689.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Caro Emerald - Deleted Scenes From The Cutting Room Floor (Acoustic Sessions) (2
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234690.jpgsave_picture_234690.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ AirMail Pro 5 v.5.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234691.jpgsave_picture_234691.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - Музыка для машины Vol.16 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234692.jpgsave_picture_234692.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:0B72A6E219EBD441F39349135352211BB076614B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234693.jpgsave_picture_234693.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Google показала очки дополненной реальности, п
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234694.jpgsave_picture_234694.jpg" />
 </div>
 
 

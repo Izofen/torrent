@@ -6,7 +6,7 @@ VA - Охота! 87 (2019) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21737.jpgsave_picture_21737.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F2E1F9E67C1825CC9754F9E3386ED1F95A5A3C1C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21738.jpgsave_picture_21738.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:C609ED88E52DEB584F62146CD823968700E1669F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21739.jpgsave_picture_21739.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:93F89A0577A370B869319E8331BF752B71EC08A5
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21740.jpgsave_picture_21740.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:3A287383DDBD4271934569F98FD95F3B8FC66C95
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21741.jpgsave_picture_21741.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:489B08A943466AEF44E2C57003216102F2809649
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21742.jpgsave_picture_21742.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:702E7474F1D5F275CCA6E78CF443844EF024F9C5
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21743.jpgsave_picture_21743.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:EC7D1DC4343D1AEC478B69501F7DB5E9536C5FF2
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21744.jpgsave_picture_21744.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:70832260465AACA7C913CC9593752DF68D035CA7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21745.jpgsave_picture_21745.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Onyx - Lower East Side (2025) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21746.jpgsave_picture_21746.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - On top of THE BLUES (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21747.jpgsave_picture_21747.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ FreeCommander XE 2025 donor v928 x64 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21748.jpgsave_picture_21748.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:9E563965D4430944CDEDB90F197EDA1373E00C8D
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21749.jpgsave_picture_21749.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - KaZantip [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21750.jpgsave_picture_21750.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ PhotoRoom v2025.15.02 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21751.jpgsave_picture_21751.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:F3C232B9633D3CA598C3E79414268E700CACB10C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21752.jpgsave_picture_21752.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Desktop Calendar 3.22.228.7082 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21753.jpgsave_picture_21753.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:C92FB97F263C0EA3BE3AFF7C6AFD4EF358043B6E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21754.jpgsave_picture_21754.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:87228DE2AB7A9663A9E74507D834D2C60F0EC11B
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21755.jpgsave_picture_21755.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:74D010D77D8C4171BF025C4C751F6756D7F2B58D
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21756.jpgsave_picture_21756.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ EF Commander 25.07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21757.jpgsave_picture_21757.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:CF7376803C148C01D04EDE9AB2ABCDBDA4EBA599
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21758.jpgsave_picture_21758.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Andre Rieu - Power of Love (Live in Maastricht 2024) (2025) [FLAC|Lossless|WEB-D
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21759.jpgsave_picture_21759.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - 12.04, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21760.jpgsave_picture_21760.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Musical kaleidoscope part 37 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21761.jpgsave_picture_21761.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Eric Clapton, John Mayall & The Bluesbreakers - Blues Anthology, Vol. 3 (REMASTE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21762.jpgsave_picture_21762.jpg" />
 </div>
 
 

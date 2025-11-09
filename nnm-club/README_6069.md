@@ -6,7 +6,7 @@ All-Black Day - 3 Albums (2022) [MP3|320 Kbps] <Alternative, Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191137.jpgsave_picture_191137.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F510F7D0D1C118C1648130ECA10C862768433651
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191138.jpgsave_picture_191138.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Drallion - New Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191139.jpgsave_picture_191139.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Notepad++ 8.5.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191140.jpgsave_picture_191140.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Cathartic - Through The Abysmal Gates Of Subconscious (2022) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191141.jpgsave_picture_191141.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Floorp Browser 11.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191142.jpgsave_picture_191142.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:A3D6774896E3F29838AB219043EE64BF8FAF2EB9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191143.jpgsave_picture_191143.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Beneath the Embers - Condemned (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191144.jpgsave_picture_191144.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:85FF7976827BBA0358899F16874454D8E98D6F87
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191145.jpgsave_picture_191145.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:DFC4C779E745C20A4AA3D1FDC0AEBD109CE717E3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191146.jpgsave_picture_191146.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Praetorian - Furialis (2022) [FLAC|Lossless|WEB-DL|tracks] <Punch Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191147.jpgsave_picture_191147.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:9E026E1091F00A908B96C4B61CC54E4C9C6AA01D
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191148.jpgsave_picture_191148.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Lik - Mass Funeral Evocation (2015) Limited edition, Reissue 2019 [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191149.jpgsave_picture_191149.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:AC22A606B5D031789650CC3FA5184F046BBADB81
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191150.jpgsave_picture_191150.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Stash - Through Rose Coloured Glasses (2022) [FLAC|Lossless|WEB-DL|tracks] <Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191151.jpgsave_picture_191151.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:F5ECD9440D70B5046A59DEA0D57F0133FB5E9447
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191152.jpgsave_picture_191152.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Diamond Cut Forensics Audio Laboratory 11.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191153.jpgsave_picture_191153.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:E66166F1C9231EB251D8B57D9AB72587B7A369E4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191154.jpgsave_picture_191154.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:7A6B24868E79D2DE712285F924ED907C0F3FF77E
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191155.jpgsave_picture_191155.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:3AAB7148BF1C940030325E2CCF42E4C3CBFDA42A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191156.jpgsave_picture_191156.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ SoundHound∞ v10.2 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191157.jpgsave_picture_191157.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:84BE05B3E5ED8906FBC73410D27A61CB1641C6C2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191158.jpgsave_picture_191158.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:70661B30A3E7FF8A94CD31A98A9FA4289C30680B
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191159.jpgsave_picture_191159.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:99DBBC31DFD656170B8600AE5B7B81EB7F1849D6
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191160.jpgsave_picture_191160.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:6DB6285B561BBBD90E2CDF65793D6023078ABD6D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191161.jpgsave_picture_191161.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:2F96E28B9324B230603C87AF22EDC5090BC83E01
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191162.jpgsave_picture_191162.jpg" />
 </div>
 
 

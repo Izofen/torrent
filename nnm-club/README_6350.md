@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199826.jpgsave_picture_199826.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:325D5260D4DC1AAFAFBC91791DD61D581C1D0EA3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199829.jpgsave_picture_199829.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Soulfly - Chama (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove Thrash Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199831.jpgsave_picture_199831.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Erdling - Mana (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Neue Deut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199833.jpgsave_picture_199833.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:CCE3FB00D58540F10704B21DE8337E136C66B3C2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199838.jpgsave_picture_199838.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:D964B2D00C8AFC1208D2DEF03C5CBF0C3C6E7A6E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199841.jpgsave_picture_199841.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:0CCDAA0867083295A9E0C701E2F7CC1034FC1ED5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199844.jpgsave_picture_199844.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:46D834AAFFD7542B6C7A798D29386AD8D06FCA18
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199847.jpgsave_picture_199847.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:D96E9FB96A97A616BAF965C2A1D5B91B600876E7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199850.jpgsave_picture_199850.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0/dlc) Repack Let'sРlay [Premium Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199853.jpgsave_picture_199853.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:43F03D7428AD44D57CA9D0C7362F1540D1249A1A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199856.jpgsave_picture_199856.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:8150534AFE6FD56422761A7572237B9C447B5F6F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199859.jpgsave_picture_199859.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:CA877E8A686C9DD3E47666C53BE44DC4D1062E8F
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199872.jpgsave_picture_199872.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:CD610ECCC392B8FB725D16F94A484913CE837351
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199874.jpgsave_picture_199874.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:6E7BD551CCF8D9A59CB91A91FD6E8676EB724D27
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199876.jpgsave_picture_199876.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:E2A5595E3B6E0A49AB795CB2F6B0D89EBB236E59
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199878.jpgsave_picture_199878.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:EDF30041226AE263826DB483C831A18AAAE4EE08
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199879.jpgsave_picture_199879.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:BDC775AB03515F8B35D0146F640620828C7FA4F0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199882.jpgsave_picture_199882.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:223643D7088F950021F52A6EFB907EBA4D0B77EE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199885.jpgsave_picture_199885.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Enigma - The Platinum Collection (2009) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_199888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_199888.jpgsave_picture_199888.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:65B2B2433555787882EF95C3CD2DF6E80CD511F3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199889.jpgsave_picture_199889.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:5EF9234E6B7AB71C9961C94860ECBE852F5F0ECE
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199892.jpgsave_picture_199892.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Chill Beach (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199899.jpgsave_picture_199899.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:D18F9C522875E0D8F739794721A2B5EDDCB52518
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199903.jpgsave_picture_199903.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:4CC4714A498C0A8C6FC78FC976D5D3C6052B37E3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199906.jpgsave_picture_199906.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:F48E63647C2B807A6432E218CAA2BAAEB5D4BD28
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199909.jpgsave_picture_199909.jpg" />
 </div>
 
 

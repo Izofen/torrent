@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71080.jpgsave_picture_71080.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:960123E4D58DC40FFAB6F4FA66B1088102E06415
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71081.jpgsave_picture_71081.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MusicBrainz Picard 2.13.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71082.jpgsave_picture_71082.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:A85BC170F61D2197A58010EA9ED4E89E30F6A1CA
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71083.jpgsave_picture_71083.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VA - Kontor Top Of the Clubs: Jan 2025 (DJ Mix) (2025) [MP3|320 Kbps] <Dance, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71084.jpgsave_picture_71084.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:B9818FD3E6A5D556900B9C5FCECEAD05D0326BEA
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71085.jpgsave_picture_71085.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:804C0C6717AD52370AA8424AFF4F2AAC375CC047
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71086.jpgsave_picture_71086.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:740BBDEA72616307294BA05C3918C9A1A9D8CB84
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71087.jpgsave_picture_71087.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Rossini & Hoffmeister - Quartets with Double Bass, Vol. 2 (2018) [DSD 2.0, DST 5
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71088.jpgsave_picture_71088.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:C85A60B75ECEAD737A35FB5D6457D72E6954E897
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71089.jpgsave_picture_71089.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Scatman John - Compilation (1995-2019) [MP3|320 Kbps] <Pop, Jazz, Scat rap, Danc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71090.jpgsave_picture_71090.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Ventusky: Прогноз погоды v40.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71091.jpgsave_picture_71091.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Vivaldi 7.1.3570.47 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71092.jpgsave_picture_71092.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:CEAE0CF3A21D8175B3DE97F5A71636131904A6A8
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71093.jpgsave_picture_71093.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Desktop Calendar 3.21.221.6970 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71094.jpgsave_picture_71094.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Spacesynth Forever 3 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71095.jpgsave_picture_71095.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Giorgio Moroder & Raney Shockne - Queen of the South (Original Series Soundtrack
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71096.jpgsave_picture_71096.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Magic Eraser / Магический ластик v2.18.2 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71097.jpgsave_picture_71097.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:A008F9676A818E56B209967D6D8B7701639988B7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71098.jpgsave_picture_71098.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Dream Theater - Parasomnia (2025) [FLAC|Lossless|tracks] <Progressive Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71099.jpgsave_picture_71099.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:0C0E004EEC667DAC623715332399B8328453EB56
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71100.jpgsave_picture_71100.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Michael Gray (Reflex) - Больше чем жизнь (2025) [FLAC|Lossless|WEB
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71101.jpgsave_picture_71101.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:11B64C2A833351C38892887C25ECA793FCAF94B4
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71102.jpgsave_picture_71102.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:2A33DC9FE858452909760BD8E7F22095427802BF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71103.jpgsave_picture_71103.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:F05E3807FFA93E45691B3808670EAFBC3B69478E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71104.jpgsave_picture_71104.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Master Spy - Maze Runner (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71105.jpgsave_picture_71105.jpg" />
 </div>
 
 

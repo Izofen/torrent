@@ -6,7 +6,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171025.jpgsave_picture_171025.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Zoner Photo Studio X 19.2309.2.502 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171026.jpgsave_picture_171026.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F0115D2F55BC3BBB4272557806BE68893378CDEC
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171027.jpgsave_picture_171027.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Native Instruments Reaktor 6 v.6.5.0 Rev2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171028.jpgsave_picture_171028.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Duplicate File Finder Pro for Mac 7 v.7.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171029.jpgsave_picture_171029.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Doro - Conqueress - Forever Strong and Proud (2023) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171030.jpgsave_picture_171030.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Pastebot 2.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171031.jpgsave_picture_171031.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Native Instruments FM8 1.4.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171032.jpgsave_picture_171032.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Balsamiq Mockups For Desktop 4.7.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171033.jpgsave_picture_171033.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Doro - Conqueress - Forever Strong and Proud (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171034.jpgsave_picture_171034.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ In This Moment - Godmode (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171035.jpgsave_picture_171035.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:F27B1D5CCD8EEA43B7C642B6D90A909C428DB573
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171036.jpgsave_picture_171036.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Disk Space Analyzer Pro 4.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171037.jpgsave_picture_171037.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ n-Track Studio Suite 10.0.0.8118 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171038.jpgsave_picture_171038.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Al Kooper - The Complete MusicMasters Recordings (2023) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171039.jpgsave_picture_171039.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:800474922C4CF9179DF877DDD25D56001A1DDF0C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171040.jpgsave_picture_171040.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Opera GX 102.0.4880.112 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171041.jpgsave_picture_171041.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ WinX HD Video Converter for Mac 6.8.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171042.jpgsave_picture_171042.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:ED020F0C93CF456CFA6D376E6C011284D4BC9F31
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171043.jpgsave_picture_171043.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Alessiee - Дежавю (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171044.jpgsave_picture_171044.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:0D893D2082F7517C46D1DACAA3DA045816C36916
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171045.jpgsave_picture_171045.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Transmit 5.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171046.jpgsave_picture_171046.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Keyboard Maestro 11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171047.jpgsave_picture_171047.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:0FD444D2A85AF5320FBAAAB70ABA2DC5994EC937
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171048.jpgsave_picture_171048.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Theatres Des Vamires - Moonlight Waltz (2011) [FLAC|Lossless|image + .cue] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171049.jpgsave_picture_171049.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:78638C935672B2B7B0B96DA3EE7F68522BCE9DC3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171050.jpgsave_picture_171050.jpg" />
 </div>
 
 

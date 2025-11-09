@@ -6,7 +6,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack West4it [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1389.jpgsave_picture_1389.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6/dlc) Repack seleZen 
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1390.jpgsave_picture_1390.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9529278670827669AB95719D27CC29D039BED8D2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1391.jpgsave_picture_1391.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Way of the Hunter (2022) [Ru/Multi] (1.28a/dlc) License GOG [Elite Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1392.jpgsave_picture_1392.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Against the Storm (2022) [Ru/Multi] (1.8.12r/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1393.jpgsave_picture_1393.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:73D46AEAFA095AAF4D2D831B0D3C73A2D1794FB4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1394.jpgsave_picture_1394.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4.1/dlc) Repack Let'sРlay [Go
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1395.jpgsave_picture_1395.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:F2608A5FCC436A71458E5F8F3D6C45E0209BF4DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1396.jpgsave_picture_1396.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ctrl Alt Ego (2022) [Ru/Multi] (1.5.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1397.jpgsave_picture_1397.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hell is Us (2025) [Ru/Multi] (1.4.22.43941/dlc) Repack Let'sРlay [Deluxe Editio
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1398.jpgsave_picture_1398.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:C22DC96429EE29DACF8083AB9839082343D08AE1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1399.jpgsave_picture_1399.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ POSTAL: Brain Damaged (2022) [Multi] (1.10.4/dlc) License GOG [Connoisseur Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1400.jpgsave_picture_1400.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Orcs Must Die! Deathtrap (2025) [Ru/Multi] (2.1.1/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1401.jpgsave_picture_1401.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.04.08/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1402.jpgsave_picture_1402.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:E3BB2E770383DEC240EE4BDE045F62A587F4A7EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1403.jpgsave_picture_1403.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1404.jpgsave_picture_1404.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1405.jpgsave_picture_1405.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:4764EFBC5FC882C922213FE4CCDD9491298680DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1406.jpgsave_picture_1406.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Do No Harm (2025) [Ru/Multi] (1.2.1) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1407.jpgsave_picture_1407.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:FE5FFA1B8ACC08060A27ED0F7B3FC38C3C01CAA5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1408.jpgsave_picture_1408.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ City Game Studio: a tycoon about game dev (2019) [Ru/Multi] (1.24.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1409.jpgsave_picture_1409.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ The Crown (ex-Crown of Thorns) - Studio Albums (12 releases) (1995-2024) hand ma
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1410.jpgsave_picture_1410.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Siege Of Power - Warning Blast (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1411.jpgsave_picture_1411.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Malevolence - Studio Albums (4 releases) (2013-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1412.jpgsave_picture_1412.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Velial Squad - Бельмо (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Ho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1413.jpgsave_picture_1413.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:9667BFEB9F459595F14BF7A8394AE644C87189FC
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1414.jpgsave_picture_1414.jpg" />
 </div>
 
 

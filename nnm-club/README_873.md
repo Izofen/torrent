@@ -6,7 +6,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23037.jpgsave_picture_23037.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Rosetta Stone: Изучение языков 8.32.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23038.jpgsave_picture_23038.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23039.jpgsave_picture_23039.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:487A840AF796CFB4A532AC89CB58B413679FEFDF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23040.jpgsave_picture_23040.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ The Riftbreaker (2021) [Ru/Multi] (Exe:1033 Data:640/dlc) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23041.jpgsave_picture_23041.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:8D1E81AE8C02598BDACA9A7472809362DFD38BA4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23042.jpgsave_picture_23042.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Skype 8.138.0.214 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23043.jpgsave_picture_23043.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:DE9E8D9CA4B857E326BB37903AD1884D3464900D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23044.jpgsave_picture_23044.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Resource Hacker 5.2.8.448 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23045.jpgsave_picture_23045.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Shotcut 25.03.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23046.jpgsave_picture_23046.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Akuyaku Reijou Tensei Ojisan | From Bureaucrat to Villainess | Перерожд�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23047.jpgsave_picture_23047.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:143FE458A03A586D27E0AE8D71301586407A7F78
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23048.jpgsave_picture_23048.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:41F38C6CCA694A4F519E48D8EAA2155103B32EF9
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23049.jpgsave_picture_23049.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ ON и Она (2024) WEBRip [H.264/720p-LQ]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23050.jpgsave_picture_23050.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Nihon e Youkoso Elf-san. / Welcome to Japan, Ms. Elf! / Добро пожало�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23051.jpgsave_picture_23051.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:24291CC222D8047DBFDD13642F83BD32CCAC3103
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23052.jpgsave_picture_23052.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ OpenVPN 2.6.13 (30.03.2025) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23053.jpgsave_picture_23053.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Orcs Must Die! Deathtrap (2025) [Ru/Multi] (1.1.2/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23054.jpgsave_picture_23054.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Wanterl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23055.jpgsave_picture_23055.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:95BB4187EB459042AEDC9009C6D1D2F67C7FA00C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23056.jpgsave_picture_23056.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:DA0BC2CEAF06D554C65D72C8E41BBAC320A0C1E8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23057.jpgsave_picture_23057.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo 2 / Сто деву
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23058.jpgsave_picture_23058.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:05A01EFB7539D0B2948E3005611D376B0A42D854
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23059.jpgsave_picture_23059.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:05A01EFB7539D0B2948E3005611D376B0A42D854
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23060.jpgsave_picture_23060.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:8A780A1C010C302097F18743B97A8484B1BD653E
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23061.jpgsave_picture_23061.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1h) Repack Wanterlude
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23062.jpgsave_picture_23062.jpg" />
 </div>
 
 

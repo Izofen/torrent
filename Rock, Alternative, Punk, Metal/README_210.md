@@ -6,7 +6,7 @@ Queen - The Platinum Collection: Greatest Hits I, II & III (2011) 3xCD Super Jew
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132910.jpgsave_picture_132910.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - 100 from the 90's - Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132977.jpgsave_picture_132977.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Hinder - 5 альбомов (2003-2012) Дискография [FLAC|Losless] <H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133003.jpgsave_picture_133003.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Paul Lidel’s Scream Therapy - Paul Lidel’s Scream Therapy (2023) [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133010.jpgsave_picture_133010.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Immortal - Дискография (1992 - 2009) [FLAC|Losless]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133033.jpgsave_picture_133033.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Best of ROAD TRIP Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133035.jpgsave_picture_133035.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Covers the Rock Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133052.jpgsave_picture_133052.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Black Sabbath - Deep Black (The Massachusetts Broadcast 1983) (2023) Live [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133078.jpgsave_picture_133078.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Forever Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133082.jpgsave_picture_133082.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Billy's Band - В шляпе (2023) [WavPack|Lossless|image + .cue] <Rock, Jazz,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133084.jpgsave_picture_133084.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Steely Dan - Gaucho (1980) Reissue, 2023, UMG [FLAC 24/192|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133115.jpgsave_picture_133115.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Bruce Springsteen - The Live Series: Songs on Keys (2023) [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133117.jpgsave_picture_133117.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Elvis Presley - If Every Day Was Like Christmas (1994) [FLAC|Lossless]<Rock, Bal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133124.jpgsave_picture_133124.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - Crate Digging - Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133147.jpgsave_picture_133147.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Serenity - Nemesis AD (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133154.jpgsave_picture_133154.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:A9BADD56A7DFD3759161AB5303CFF874FFF40DFD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133155.jpgsave_picture_133155.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Citizen Soldier - ICU (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133157.jpgsave_picture_133157.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Brian Durbin - Only Jams (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam, Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133160.jpgsave_picture_133160.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ S-VOX feat. Давид Тодуа, Вадим Самойлов - Моя звез
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133165.jpgsave_picture_133165.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Hellfrost - Hellfrost (2023) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133173.jpgsave_picture_133173.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Greydon Fields - Otherworld (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133175.jpgsave_picture_133175.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Sebasteion - Tales +1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133179.jpgsave_picture_133179.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Presto Ballet - 5 CD (2005 - 2012) [FLAC|Lossless]<Crossover Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133180.jpgsave_picture_133180.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Kelakos - Hurtling Towards Extinction (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133187.jpgsave_picture_133187.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Dissection - Live Legacy (1997) Live album, 2003, Nuclear Blast [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133189.jpgsave_picture_133189.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Night In Gales - Sylphlike (1995) EP [FLAC|Lossless|image + .cue] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133195.jpgsave_picture_133195.jpg" />
 </div>
 
 

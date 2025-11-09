@@ -6,7 +6,7 @@ MAX Desktop 25.12.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52256.jpgsave_picture_52256.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VCap Downloader 0.1.36.6705 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52306.jpgsave_picture_52306.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows Auto Dark Mode X 10.4.1 Maintenance Release [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52398.jpgsave_picture_52398.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Speccy 1.33.075 Professional | Business | Technician Edition RePack (& Portable)
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52404.jpgsave_picture_52404.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ WinDynamicDesktop 5.5.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52485.jpgsave_picture_52485.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Process Monitor 4.01 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52564.jpgsave_picture_52564.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Error Lookup 2.6 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52582.jpgsave_picture_52582.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ PowerOff 6.4-05beta build 0111 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52644.jpgsave_picture_52644.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Windows and Office Genuine ISO Verifier 11.18.45.24 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52722.jpgsave_picture_52722.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ KeePassXC 2.7.9 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52724.jpgsave_picture_52724.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Abelssoft Win11PrivacyFix 2025 v4.0.54970 Portable  by FC Portables [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52814.jpgsave_picture_52814.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ SpeedyFox 2.0.30 Build 155 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52970.jpgsave_picture_52970.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Waterfox Current G6.0.16 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53372.jpgsave_picture_53372.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ AntiPlagiarism.NET 4.132.0.0 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53544.jpgsave_picture_53544.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:C31DB1C66946345B0ABC1B733BC72693BC256A22
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53633.jpgsave_picture_53633.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Change MAC Address 24.06 Portable by FC Portables [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53770.jpgsave_picture_53770.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Ashampoo WinOptimizer 27.00.03 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54053.jpgsave_picture_54053.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Folder2ISO 1.1 [Multi]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54191.jpgsave_picture_54191.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ IObit Driver Booster Pro 11.5.0.83 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54376.jpgsave_picture_54376.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Ungoogled Chromium 125.0.6422.112-1.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54601.jpgsave_picture_54601.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ KeePass Password Safe 2.57 + Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54631.jpgsave_picture_54631.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ FanCtrl 1.7.0 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54702.jpgsave_picture_54702.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ QuickTextPaste 8.83 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54774.jpgsave_picture_54774.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ UninstallView 1.51 Portable [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54800.jpgsave_picture_54800.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:7E1E503EAB8CC6555A99C4B59233D31B59B63E18
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54811.jpgsave_picture_54811.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ cFosSpeed 12.51.2533 / 13.1.3001 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54838.jpgsave_picture_54838.jpg" />
 </div>
 
 

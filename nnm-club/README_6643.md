@@ -6,7 +6,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221280.jpgsave_picture_221280.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221287.jpgsave_picture_221287.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Downie 4 v.4.6.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221289.jpgsave_picture_221289.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Duff McKagan - Lighthouse: Live from London (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221294.jpgsave_picture_221294.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Nevercenter CameraBag Photo 2023.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221296.jpgsave_picture_221296.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Professional Recorder & Editor 6.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221299.jpgsave_picture_221299.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Nevercenter CameraBag Pro 2023.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221305.jpgsave_picture_221305.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Yate 6.16.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221314.jpgsave_picture_221314.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Herbie Nichols - Love, Gloom, Cash, Love (1957) 1994, Bethlehem [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221319.jpgsave_picture_221319.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Stats 2.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221323.jpgsave_picture_221323.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Carthus - Images of Tyranny (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221327.jpgsave_picture_221327.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ BatchOutput PDF 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221334.jpgsave_picture_221334.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:47E21033074690B2300DD9253DDBB0C9A7CE6B4C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221460.jpgsave_picture_221460.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Windows 10 Enterprise LTSC (x64) Elgujakviso Edition (v.05.08.23) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221478.jpgsave_picture_221478.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:29891F2AFB6A96834B5C21631033661553E76BB3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221527.jpgsave_picture_221527.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Microsoft искусственно замедляет установку Windows
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221535.jpgsave_picture_221535.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Microsoft искусственно замедляет установку Windows
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221610.jpgsave_picture_221610.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:884110DF154C709ABC1D8DC67E192BE9DAC80349
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221620.jpgsave_picture_221620.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:277D70E5D9A4546A4209D8FBC13F64F67C5564C1
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221637.jpgsave_picture_221637.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:5644E8A40FCB2348277B666B2769445FC06F621D
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221645.jpgsave_picture_221645.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ HiBit Uninstaller 3.1.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221655.jpgsave_picture_221655.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:16D708FF3AAD166F25E21239C1333EF64576B7DC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221666.jpgsave_picture_221666.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:9AED867E87D0D1197E69259F20A3124EF4C8626C
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221676.jpgsave_picture_221676.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:0430FF7DAC4B843B5036C0022005166F296F4D11
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221683.jpgsave_picture_221683.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:EB927D0D7E6285C202CEE664A71037DF75E15063
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221689.jpgsave_picture_221689.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ K-Lite Codec Pack Update 17.7.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221698.jpgsave_picture_221698.jpg" />
 </div>
 
 

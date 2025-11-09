@@ -6,7 +6,7 @@ BitComet 1.97 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183590.jpgsave_picture_183590.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Alfred 4 Powerpack 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183593.jpgsave_picture_183593.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ The Fanimatrix: Run Program (2003) DVDRip [EN]
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183594.jpgsave_picture_183594.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:72C83366E95DD44CC85F26198ECC55F0F4576AD4
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183597.jpgsave_picture_183597.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Multitouch 1.19.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183598.jpgsave_picture_183598.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Integrity Pro 9.13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183600.jpgsave_picture_183600.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ IObit Uninstaller Pro 13.1.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183602.jpgsave_picture_183602.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:F143831888FDC7E5DFB55E9B6F3C6DB8BBC2C55A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183605.jpgsave_picture_183605.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Loudblast - Manifesto (2020) [AAC|~337 Kbps] <Death Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183606.jpgsave_picture_183606.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Bookends 13.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183608.jpgsave_picture_183608.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ DxO PhotoLab Elite 7.0.0 build 68 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183610.jpgsave_picture_183610.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Scrutiny 9 v9.13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183612.jpgsave_picture_183612.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Ayane-chan High Kick | Ayane's High Kick | Высокий удар Аянэ [199
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183614.jpgsave_picture_183614.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ MediaHuman YouTube Downloader 3.9.9.86 (2809) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183615.jpgsave_picture_183615.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Telegram Desktop 4.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183617.jpgsave_picture_183617.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Liveclasses, Виталий Новиков | Клиентский сервис
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183618.jpgsave_picture_183618.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Mystery Case Files 24: The Last Resort (2022) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183619.jpgsave_picture_183619.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:6041FE35EB72D0FEE7B7AD5657A7755CAD6E959D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183621.jpgsave_picture_183621.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:D3FD39742255F89E8C2F392E512930F069583319
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183623.jpgsave_picture_183623.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Bandizip Pro 7.29 Build 58577 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183624.jpgsave_picture_183624.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:298E7A50EE94E8BC5A1E3CB5FEC4B734D9A70B19
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183626.jpgsave_picture_183626.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2020.11.24 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183628.jpgsave_picture_183628.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:96552B1C9200254EA232C62FFAF5FC87F771782A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183630.jpgsave_picture_183630.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:6261E166148504A8011BE26106E1DDB07E29B7D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183631.jpgsave_picture_183631.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Tensei Shitara Slime Datta Ken | That Time I Got Reincarnated as a Slime | О м
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183634.jpgsave_picture_183634.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Run-Command 6.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183635.jpgsave_picture_183635.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ A Stroke Of Fate [WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151016.jpgsave_picture_151016.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sombria - Chirographon Dei (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Dark Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151017.jpgsave_picture_151017.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2FB46C50EECC1D8E1E0E3A524664BB6614375A21
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151019.jpgsave_picture_151019.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Warhammer 40,000: Dawn of War II Chaos Rising (2009-2010) [Ru/Multi] (2.6.0.1024
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151020.jpgsave_picture_151020.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:C8C466D5E1397FA6ED77E3C72CDA0FCAC2264667
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151021.jpgsave_picture_151021.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:51133ED623D52346EB2ACA81FEF7E228ECBBE577
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151022.jpgsave_picture_151022.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Clubhits Top 200 Vol. 13 (2019) [FLAC|Lossless|tracks] <Club, Future House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151023.jpgsave_picture_151023.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:3705706F189884C4C4FC775D6C339C8B82DE2620
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151024.jpgsave_picture_151024.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Doomocracy - Visions & Creatures of Imagination (2017) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151026.jpgsave_picture_151026.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:8F451F1C19B13BCAA5F44C06216BACA97797FE28
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151027.jpgsave_picture_151027.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:D27C0BAF5CD30D883A180E75BCE1ADC3E58798B2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151029.jpgsave_picture_151029.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Ulrich Ellison - Power Of Soul (2021) A Tribute to Jimi Hendrix [MP3|320 Kbps] <
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151030.jpgsave_picture_151030.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Vivaldi 6.4.3160.44 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151031.jpgsave_picture_151031.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:069E3B0D34EBF41ADE8C798AB204FC83BE7DA14F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151032.jpgsave_picture_151032.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:F3466A91F7AFC67D8D2F486248048E294C669E4E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151034.jpgsave_picture_151034.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:267A6DDFAD139931E2E8D995BDCD80368DB3DF4B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151035.jpgsave_picture_151035.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:EA5E7E34A7A1A3D5007BF390596268DA5A989C3A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151036.jpgsave_picture_151036.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:3EE86363705018DE086089E9812D43D8676E98E0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151037.jpgsave_picture_151037.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:D0D67AEB3B67E52899F079B9E722E6A7B5C6C33B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151038.jpgsave_picture_151038.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ William Gard Gaffney - You Can't Take it With You (2025) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151039.jpgsave_picture_151039.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Maxthon Cloud Browser 4.9.0.2400 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151040.jpgsave_picture_151040.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ R.U.S.E. (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] [En] [MO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151041.jpgsave_picture_151041.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Street Fighter V 2017 (2016) [Ru/Multi] (2.0/dlc) Repack Other s [Deluxe Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151042.jpgsave_picture_151042.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Microsoft Windows 10.0.19042.1415, Version 20H2 (Updated December 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151043.jpgsave_picture_151043.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:5956DDC26D9401E4A1EF0C604780A92B81690D71
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151044.jpgsave_picture_151044.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:EF2D05EFD9E2C5EF83D8B2F65F93B4A8B4370F0F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151046.jpgsave_picture_151046.jpg" />
 </div>
 
 

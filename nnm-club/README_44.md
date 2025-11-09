@@ -6,7 +6,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1181.jpgsave_picture_1181.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - National Pop Dance Music - Premium Playlist [!!, nr, a] (2020-2025) [MP3|32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1182.jpgsave_picture_1182.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.16 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1183.jpgsave_picture_1183.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Amanda Lear - Premium Playlist (1976-2011) [MP3|320 Kbps] <Pop, Dance, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1184.jpgsave_picture_1184.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:B8B2F5EB0D574B6D750C3C1E39C1B9312BE7F14F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1185.jpgsave_picture_1185.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:B8B2F5EB0D574B6D750C3C1E39C1B9312BE7F14F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1186.jpgsave_picture_1186.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Purvpn 9.5 [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1187.jpgsave_picture_1187.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:49CB05D33D75580A189FB0195480C95423A29612
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1188.jpgsave_picture_1188.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:1F566F2BDFFEFFAB8AC78ADB86E7839C59CE6CBD
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1189.jpgsave_picture_1189.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:97CECF3AB20F9DCE80418E990232B374801F3E9E
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1190.jpgsave_picture_1190.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Google Chrome 140.0.7339.208 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1191.jpgsave_picture_1191.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:696BDFD6C91BC4524B90D045DCB5B363780ED728
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1192.jpgsave_picture_1192.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ leManoosh, Mohamed Basil | The Blender Material Mastery - Cracking The Code Of P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1193.jpgsave_picture_1193.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Gumroad, CrossMind Studio | Procedural Thinking - Blender 3D - Small Steps to Bi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1194.jpgsave_picture_1194.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:0DB061D0A95CE934D03387056C03FC58F29718A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1195.jpgsave_picture_1195.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:5A14910B9E5265C429198F514034B8825F15B792
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1196.jpgsave_picture_1196.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ MassTube Ultra 21.0.2.166 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1197.jpgsave_picture_1197.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Advanced Renamer 4.16.1 + Portable (x64) [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1198.jpgsave_picture_1198.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:E5266F17BDCCAD698721E40642416F8CB0EE0F59
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1199.jpgsave_picture_1199.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ ArtStation, Vizyon Designers | 50 Hard Surface Kitbash + Full Process Tutorial (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1200.jpgsave_picture_1200.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:EEF978FBC13A98A22D6F06A8F2B1125D08278009
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1201.jpgsave_picture_1201.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:789321419F0E61B3CECCDD0D180CA42D43931636
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1202.jpgsave_picture_1202.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.3.10 RePack (& Portable) by KpoJIu
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1203.jpgsave_picture_1203.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:FF6CAB23AD43E6A89485E4E036DA698AE4A8E6B2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1204.jpgsave_picture_1204.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Topaz Photo 1.0.0 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1205.jpgsave_picture_1205.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ IObit Driver Booster Pro 13.0.0.143 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1206.jpgsave_picture_1206.jpg" />
 </div>
 
 

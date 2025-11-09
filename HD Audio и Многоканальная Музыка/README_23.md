@@ -6,7 +6,7 @@ Arch Enemy - Дискография (17 albums) (1996-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20958.jpgsave_picture_20958.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Giovanni Pierluigi da Palestrina, Czech Philharmonic Chorus, Josef Veselka - The
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21109.jpgsave_picture_21109.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nightsteel - Nightsteel (2024) Remastered, 2025, Cosmic Fire Records [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21212.jpgsave_picture_21212.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ OK Go - And the Adjacent Possible (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21216.jpgsave_picture_21216.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Darkness - Dreams on Toast (2025) Members' Edition, 2025, Cooking Vinyl Limi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21239.jpgsave_picture_21239.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Epica (& Simone Simons) - Studio Albums (13 releases) (2003-2025) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21792.jpgsave_picture_21792.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:CEE55D1D117A0951BA575A8AB0A4F50CAD457BF0
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21866.jpgsave_picture_21866.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sunstorm - Studio Albums (8 releases) (2006-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21968.jpgsave_picture_21968.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Gary Moore - Ballads & Blues 1 & 2 (1995/1996) [FLAC 2.0|48/24|image+.cue|MC-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22104.jpgsave_picture_22104.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Elton John, Brandi Carlile - Who Believes In Angels? (2025) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22258.jpgsave_picture_22258.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Haddaway - The Album (1993) Remastered, 2025, Craft Recordings [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22262.jpgsave_picture_22262.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Primal Scream - Come Ahead: The Remixes Vol 1 (2024) Vocals, 2025, BMG[FLAC 24/9
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22268.jpgsave_picture_22268.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Allegaeon - Studio Albums (8 releases) (2008-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22281.jpgsave_picture_22281.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ polnalyubvi - Прощай и люби меня (2025) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22285.jpgsave_picture_22285.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Gotthard - Studio Albums (14 releases) (1992-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22308.jpgsave_picture_22308.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:63B50B54A45430716A89AED40DAB49AD0110795A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22347.jpgsave_picture_22347.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Benediction - Studio Albums (10 releases) (1990-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22601.jpgsave_picture_22601.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:7875F548A12F81B7A6107745DD918008BCCF48F8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22656.jpgsave_picture_22656.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Magic Kingdom - Studio Albums (6 releases) (1999-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22898.jpgsave_picture_22898.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ W.E.T. - Studio Albums (5 releases) (2010-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22937.jpgsave_picture_22937.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Helloween - March of Time (The Best of 40 Years) (2025) Remastered, Compilation 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23216.jpgsave_picture_23216.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:1A3B2BEA004963274B92C2409C02FE182205DF6C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23632.jpgsave_picture_23632.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Adriano Celentano - Mr. Celentano (2025) Remaster [FLAC 24/44.1|Lossless|image +
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23729.jpgsave_picture_23729.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Whitney Houston - Whitney (2023) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Pop>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23851.jpgsave_picture_23851.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Cradle Of Filth - The Screaming Of The Valkyries (2025) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23948.jpgsave_picture_23948.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Moby - Everything Is Wrong Non-Stop Dj Mix By Evil Ninja Moby (1996) digital re-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24178.jpgsave_picture_24178.jpg" />
 </div>
 
 

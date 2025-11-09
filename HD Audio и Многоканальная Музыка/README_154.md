@@ -6,7 +6,7 @@ Brother Dege - Aurora (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112819.jpgsave_picture_112819.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A5ADA44B6701DAE14DF0D570E056004816B48591
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112823.jpgsave_picture_112823.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ TC Tom Comfort - Slave To The Stupid Still (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112824.jpgsave_picture_112824.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The End Machine - The Quantum Phase (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112825.jpgsave_picture_112825.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ratzlaff & Webb - Delta Badhand (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112827.jpgsave_picture_112827.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ D4oesz - Lucid Strings (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112828.jpgsave_picture_112828.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Nils Lofgren Band - Spares (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112829.jpgsave_picture_112829.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:1B3F37C34E360673B7A3905C6BC8B4A5C3B81AFB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112830.jpgsave_picture_112830.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lorenzo Sanchez Band - Blue Avenida (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112831.jpgsave_picture_112831.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sol - Mall Gig (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112835.jpgsave_picture_112835.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Stevie & the Blue Flames - Destination Blues (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112836.jpgsave_picture_112836.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:47A152DE7543EAB973F113EE908E8D3B6ED8A365
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112844.jpgsave_picture_112844.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Steve Howell & The Mighty Men - 99 1/2 Won't Do (2024) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112848.jpgsave_picture_112848.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Almanac (Victor Smolski) - Studio Albums (6 releases) (2000-2023) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112852.jpgsave_picture_112852.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Bruce Dickinson - Tyranny of Souls (2005) Reissue, 2017, BMG [FLAC|24/192|tracks
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112855.jpgsave_picture_112855.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Aktarum - Ragnatroll (2018) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112859.jpgsave_picture_112859.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dordeduh - Dar de duh (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112860.jpgsave_picture_112860.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Dordeduh - Har (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Bl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112863.jpgsave_picture_112863.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:19FEDA8EAC7E3492346DE230196B56C9576FABCF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112873.jpgsave_picture_112873.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:B7462D3649E060AE80A92746330BB9E9DBDEC4A4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112882.jpgsave_picture_112882.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:0C0437C4D1D4AA70B628BC6045518493B76C3E4E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112902.jpgsave_picture_112902.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Duff McKagan - Lighthouse(Expanded Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112904.jpgsave_picture_112904.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Nathan Allen - Songs About Love (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smoo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112905.jpgsave_picture_112905.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Samson - Before the Storm (1982) [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112907.jpgsave_picture_112907.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Celso Salim & Darryl Carriere - About Time (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112909.jpgsave_picture_112909.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ I Shot A Man - Dues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112910.jpgsave_picture_112910.jpg" />
 </div>
 
 

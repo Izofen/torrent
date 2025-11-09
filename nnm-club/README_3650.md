@@ -6,7 +6,7 @@ SуперКопы: Миссия «Бабушка» / 3 jours max (2023) WEBRip [
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115275.jpgsave_picture_115275.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SуперКопы: Миссия «Бабушка» / 3 jours max (2023) WEBRip [
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115276.jpgsave_picture_115276.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Stepik, Александр Шибаев | Многозадачность в Pyth
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115277.jpgsave_picture_115277.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:4133BD41D7061E5A95B77D463AA97A24545BDB11
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115278.jpgsave_picture_115278.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:7BB12DF64500D0A8476CF0483C983CEC1CDDB4CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115279.jpgsave_picture_115279.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:7BB12DF64500D0A8476CF0483C983CEC1CDDB4CD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115280.jpgsave_picture_115280.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Ivideon Server 1.3.2 / Client 3.4.1 [Multi/Rus]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115281.jpgsave_picture_115281.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Dire Straits - 13 Albums, 2 Box Set, Promo, Single, EP, CDVideo (1978 - 2023) 73
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115282.jpgsave_picture_115282.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:F2FAA9C275FA2F2F6F5B4FF56770B57CF4085ADA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115283.jpgsave_picture_115283.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Myth of Empires (2024) [Ru/Multi] (1.7.6/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115284.jpgsave_picture_115284.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:FBC477084BAEFCE44F6649B08447A18FD4A50D4F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115285.jpgsave_picture_115285.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:EAF71D3AC1991D8A683D87E926E1F50AC41151CF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115286.jpgsave_picture_115286.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:CE41618A818855C7EE990922D3468C32826A7515
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115287.jpgsave_picture_115287.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:CE41618A818855C7EE990922D3468C32826A7515
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115288.jpgsave_picture_115288.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:B86020B1986B57F9E19483D4D32F11D90A8FAE1C
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115289.jpgsave_picture_115289.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ WinRAR 7.00 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115290.jpgsave_picture_115290.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:C9A3E5350FF8B25824551DEC77F5163A31B88E29
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115291.jpgsave_picture_115291.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ QA.GURU, Артём Eрошенко, Aлексей Виноградов, Ром�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115292.jpgsave_picture_115292.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Alex Klimov | Основы Python для алготрейдинга (2023) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115293.jpgsave_picture_115293.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:F45348A922D8D003DDC189A5B7120C50C020CAD6
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115294.jpgsave_picture_115294.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:243C8023A7D888B82F6D9F8FA4E88C7DD1507C88
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115295.jpgsave_picture_115295.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VMware Workstation 17 Pro 17.5.1 Build 23298084 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115296.jpgsave_picture_115296.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:5DF90F8363927365965A95B3E2FD083A667773E3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115297.jpgsave_picture_115297.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Restaurant Music, Calming Jazz Relax Academy - Jazz for Dinner and Wine (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115298.jpgsave_picture_115298.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:839326F8DE59AC8B5C336CAD07C987436520D918
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115299.jpgsave_picture_115299.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Relaxing Instrumental Jazz Ensemble - Beautiful Jazz Instrumental Collection (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115300.jpgsave_picture_115300.jpg" />
 </div>
 
 

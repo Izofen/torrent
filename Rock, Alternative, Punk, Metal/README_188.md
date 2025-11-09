@@ -6,7 +6,7 @@ Krabathor - Lies & The Rise of Brutality (2014) Compilation [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124028.jpgsave_picture_124028.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Krabathor - Orthodox (1998) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124029.jpgsave_picture_124029.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Krabathor - Unfortunately Dead (2000) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124030.jpgsave_picture_124030.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Krabathor - Dissuade Truth (2003) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124031.jpgsave_picture_124031.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Atomic Freak - Nuclear Meltdown (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124034.jpgsave_picture_124034.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mursic - Oblivion (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124048.jpgsave_picture_124048.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Immortal Guardian - Unite and Conquer (2023) [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124049.jpgsave_picture_124049.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Krabathor - Orthodox & Mortal Memories (2014) Compilation [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124051.jpgsave_picture_124051.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Militia - Fiend of Misery (2010) Compilation [FLAC|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124152.jpgsave_picture_124152.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Krabathor - Lies (1995) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124153.jpgsave_picture_124153.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Morning Dead - Desde el otro Lado (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124154.jpgsave_picture_124154.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sun Of The Endless Night - Symbols Of Hate And Deceitful Faith (2019) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124155.jpgsave_picture_124155.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Enforced - War Remains (2023) [FLAC|Lossless|image + .cue] <Thrash Metal, Crosso
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124156.jpgsave_picture_124156.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Whorehouse - Execution Of Humanity (2009) [FLAC|Lossless|image + .cue] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124157.jpgsave_picture_124157.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Necrophthysis - Diminution of Flesh (2023) [FLAC|Lossless|WEB-DL|tracks] <Techni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124158.jpgsave_picture_124158.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Krabathor - Only Our Death Is Welcome (1992) [APE|Lossless|image + .cue] <Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124159.jpgsave_picture_124159.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Krabathor - Cool Mortification (1993) [FLAC|Lossless|image + .cue] <Death, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124160.jpgsave_picture_124160.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:EAC1B9210E8E805DA217070A683E98B82C772AA1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124175.jpgsave_picture_124175.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Adramelch - Irae Melanox (1988) 2CD Remaster, 2010, Underground Symphony [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124180.jpgsave_picture_124180.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ DGM - Life (2023) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124327.jpgsave_picture_124327.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Spirit Adrift - Ghost At The Gallows (2023) [FLAC|Lossless|image + .cue] <Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124335.jpgsave_picture_124335.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:321FAA9FC038522A351FE360DDC045B87BC5993F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124337.jpgsave_picture_124337.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Peyton Parrish - Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Al
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124345.jpgsave_picture_124345.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ LOUNA - Обратная сторона. Часть 2 (2023) [MP3|320 Kbps] <Alt
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124366.jpgsave_picture_124366.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ LOUNA - Обратная сторона. Часть 2 (2023) [FLAC|Lossless|WEB-
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124370.jpgsave_picture_124370.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ John Lennon and Yoko Ono Plastic Ono Band with Elephant’s Memory - Power To Th
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124400.jpgsave_picture_124400.jpg" />
 </div>
 
 

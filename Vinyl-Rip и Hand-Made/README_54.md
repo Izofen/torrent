@@ -6,7 +6,7 @@ Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204616.jpgsave_picture_204616.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kreator - Violent Revolution (2001) Nuclear Blast, Reissue 2022 [FLAC 24/192|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205122.jpgsave_picture_205122.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Manowar - Battle Hymns (1982) Japanese Edition [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205144.jpgsave_picture_205144.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Warlock - Burning the Witches (1984) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205374.jpgsave_picture_205374.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Quo Vadis (Canada) - Studio Albums (4 releases) (1996-2004) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205759.jpgsave_picture_205759.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ozzy Osbourne - Patient Number 9 (2022) [WavPack|32/192|image + .cue|Vinyl-Rip]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205984.jpgsave_picture_205984.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ ELO (Electric Light Orchestra) - Time (1981) [FLAC 2.0|24/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206046.jpgsave_picture_206046.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Eleine - Studio Albums (5 releases) (2015-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206467.jpgsave_picture_206467.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - In Love - Greatest Love 5 (1991) Compilation, Gatefold [FLAC|24/96|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207678.jpgsave_picture_207678.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - K-Tel's 40 Super Greats (1975) 2 x LP, Compilation, Gatefold [FLAC|24/96|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207751.jpgsave_picture_207751.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - 22 Superhits (1976) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Glam, Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209153.jpgsave_picture_209153.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Bars Of Gold (1977) Compilation, Gatefold [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209223.jpgsave_picture_209223.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:FAD8D4E54EAE979C637F7A47C69564A37CD4CC0F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210315.jpgsave_picture_210315.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:E57C4B6B7ECC3820126283DEC211B08B454D5722
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210780.jpgsave_picture_210780.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Alice Cooper - Легенды Зарубежного Рока (2000) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211108.jpgsave_picture_211108.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Bathory & Quorthon - Studio Albums (8 releases) (1994-2003) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211409.jpgsave_picture_211409.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Uriah Heep - Легенды Зарубежного Рока (1999) Compilation, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211473.jpgsave_picture_211473.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Janis Joplin - Легенды Зарубежного Рока (2001) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211804.jpgsave_picture_211804.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Axel Rudi Pell - Легенды Зарубежного Рока (2001) Compilati
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211934.jpgsave_picture_211934.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Sweet - Легенды Зарубежного Рока (2000) Compilation, Unoff
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212054.jpgsave_picture_212054.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Alkonost - Studio Albums (15 releases) (2004-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213540.jpgsave_picture_213540.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Asia - Astra (1985) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Prog Rock, Symphon
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213667.jpgsave_picture_213667.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Kreator - Endorama (1999) AFM Records, Reissue 2022 [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213671.jpgsave_picture_213671.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ ELO (Electric Light Orchestra) - Discovery (1979) [FLAC 2.0|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214043.jpgsave_picture_214043.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Asia - Asia (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214264.jpgsave_picture_214264.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Asia - Alpha (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Symphoni
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214374.jpgsave_picture_214374.jpg" />
 </div>
 
 

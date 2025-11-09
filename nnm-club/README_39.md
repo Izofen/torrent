@@ -6,7 +6,7 @@ VLC Media Player 3.0.22 RC1 + Portable [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1051.jpgsave_picture_1051.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CD092D7B1C4AF2ACB03B1D1F6B8A45F8F625200F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1052.jpgsave_picture_1052.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.526/dlc) Repack Other s [The Galactic Te
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1053.jpgsave_picture_1053.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:94146C276335D522E7361DD4FB79071AE4050525
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1054.jpgsave_picture_1054.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.1 Build 6 RePack by KpoJIuK [Multi
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1055.jpgsave_picture_1055.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A417FA66850B1F5451ABEE97B81EEBFD9D49AB30
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1056.jpgsave_picture_1056.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:7C32F0800FBBD557D39C09496D61D92722DC5344
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1057.jpgsave_picture_1057.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C7ABE1E71271E0BC25F593C9425E0423943F9ADA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1058.jpgsave_picture_1058.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Driver Store Explorer 0.12.127 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1059.jpgsave_picture_1059.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Google признал: Белый дом диктовал, кого блокир
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1060.jpgsave_picture_1060.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Google признал: Белый дом диктовал, кого блокир
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1061.jpgsave_picture_1061.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:DAB952AAA261D5924839BD0B5BF773D1CFE0F3D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1062.jpgsave_picture_1062.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Tensei Shitara Dai Nana Ouji Datta no de, Kimamani Majutsu o Kiwamemasu Dai 2 Ki
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1063.jpgsave_picture_1063.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:EF86399D76E90BF25157E9CB3FD0F882CE665603
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1064.jpgsave_picture_1064.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:5A79E1F6E95182261F0D42AA4E72776153015628
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1065.jpgsave_picture_1065.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Dr. Stone: Science Future | Доктор Стоун [ТВ-4] [2025, TV, 24 эп.
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1066.jpgsave_picture_1066.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:EADE3F7DAC348263CFC3A84BC8AD4004AAF175FC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1067.jpgsave_picture_1067.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:90E0E344C109CA1949C417410856ADF30F697675
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1068.jpgsave_picture_1068.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:D5E83B5FBC10EF9D675C1C6ABB0C17980F77393B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1069.jpgsave_picture_1069.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:0D98AA8B144A902E1672FCA778DC2CDD8221F018
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1070.jpgsave_picture_1070.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:3A023DEAD2FD73439FF4A893EAACF2F83614BF89
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1071.jpgsave_picture_1071.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:F42860D362F552327ABE54EAEEC0651F4750B43E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1072.jpgsave_picture_1072.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:BA74581F503C43E36D9DC98E1D7D78245A0DAEC4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1073.jpgsave_picture_1073.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:D3D9D38D394EE6758C3B2EE05D668F743D76A53A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1074.jpgsave_picture_1074.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:C5EEBBBEBA47E0A056F303178639349FBDC2E0BA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1075.jpgsave_picture_1075.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:B4BCED796D0B6E0FA8F31656F413922FAD88CF20
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1076.jpgsave_picture_1076.jpg" />
 </div>
 
 

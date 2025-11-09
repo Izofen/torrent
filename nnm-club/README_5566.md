@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171703.jpgsave_picture_171703.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Power Up! 2 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171704.jpgsave_picture_171704.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:74684A3077E0692C5789FBA6483D8AB23D13D266
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171705.jpgsave_picture_171705.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Lounge Sex Tribal Ethnic Sensual Atmospheres, Sounds for Sex (2023) [MP3|32
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171706.jpgsave_picture_171706.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ VA - 60 minutes. Old School Dance Music vol.21 (mixed by Dj V) (2023) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171707.jpgsave_picture_171707.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Frank Zammetti | Modern Full-Stack Development, 2nd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171708.jpgsave_picture_171708.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:1D87D4419C11A89013D40371CCCDF42515C06E9F
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171709.jpgsave_picture_171709.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Relaxing Rhythms - Chill Electronic (2023) [MP3|320 Kbps] <Electronic, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171710.jpgsave_picture_171710.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Strawberry 1.0.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171711.jpgsave_picture_171711.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:C4AACC0DDAF616970638600D7A6F66CEE923BD54
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171712.jpgsave_picture_171712.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:2EC9E72C3148012FE73761315DEDE0DC8880C837
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171713.jpgsave_picture_171713.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Malte Marten, Yatao, Leander Greitemann - To the Stars (Studio Live Sessions) (2
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171714.jpgsave_picture_171714.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:1DB4ECF692B644B03D87B852AE0290DFD35A7B6D
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171715.jpgsave_picture_171715.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Gina T. - Tokyo By Night (1990) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171716.jpgsave_picture_171716.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ VA - Trance: The Vocal Session 2024 Playlist by ZYX Music! (2023) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171717.jpgsave_picture_171717.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:9AB5BC72E1D286C914915D300920867E31C33887
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171718.jpgsave_picture_171718.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:040D9B774CA7D87B58797B5538A13BA4B813C7DF
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171719.jpgsave_picture_171719.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Astral Projection - In the Mix (2000) [AAC|329-362 kbps] <Goa Trance, Progressiv
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171720.jpgsave_picture_171720.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:86FB799F5CF4EEC497C23EAA06D5ECA114791A40
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171721.jpgsave_picture_171721.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:D687BFB578C8B8A5952A449E3C9BC4AB55D0A67A
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171722.jpgsave_picture_171722.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Vorso - Holonomy (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Dubstep, Bre
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171723.jpgsave_picture_171723.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:064C4B1497AA0B5DF904565F65084AAD7EC4F5DD
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171724.jpgsave_picture_171724.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:D2AE04FBBE659E610FF1825E58D382F47B61F64A
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171725.jpgsave_picture_171725.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:206461032DE5F360FFEDE0000228D01B29C8AA53
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171726.jpgsave_picture_171726.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Atlas - Built To Last (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171727.jpgsave_picture_171727.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:341C3DFA3E66EB7CF2FDFD2FC615D27145F91DD0
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171728.jpgsave_picture_171728.jpg" />
 </div>
 
 

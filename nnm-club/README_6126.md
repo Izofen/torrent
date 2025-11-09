@@ -6,7 +6,7 @@ This Is Not Real - Evanescent (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192649.jpgsave_picture_192649.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PrivaZer 4.0.57 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192650.jpgsave_picture_192650.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:DA37917ADF14639804968C8E96872A8B1F20DFE6
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192651.jpgsave_picture_192651.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E939D1D0FCBFA5F340FF095FBFBD0FE8C03E7331
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192652.jpgsave_picture_192652.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:020B106B61B56907F5F3D4CFD39A23F65640973A
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192653.jpgsave_picture_192653.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Paul McCartney - The 7" Singles (2023) 2CD, Unofficial Release [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192654.jpgsave_picture_192654.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:34984CB3687BAA81CFCE85D7AD32F600C3402DBC
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192655.jpgsave_picture_192655.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:3E38C9E659B0932C5765470F76DB50B000C1784F
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192656.jpgsave_picture_192656.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:E99D59CBE97ABC2FBCF2CF280568555794706F46
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192657.jpgsave_picture_192657.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:35486D1C98B76B1FFA523A5A76F6144DFA25AE7F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192658.jpgsave_picture_192658.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ MeinPlatz 8.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192659.jpgsave_picture_192659.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:B389C4819174BF8EF8F9ED8021E5A57E9AD45776
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192660.jpgsave_picture_192660.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:60D6025EF07F4D9D646D60F284A157BB59573FD8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192661.jpgsave_picture_192661.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:CB2CDD4204379FC4F0B22EB33A29CB71D7365954
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192662.jpgsave_picture_192662.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Asia – Resonance / The Omega Tour (2010) DVD5 (Live In Basel, Switzerland)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192663.jpgsave_picture_192663.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ FFmpeg Медиа-кодер v6.0.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192664.jpgsave_picture_192664.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Battery HD Pro 1.99.05 (Google Play) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192665.jpgsave_picture_192665.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:219E8A78ED650AA3C63025C688E44008C2CDC863
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192666.jpgsave_picture_192666.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:32E0E020E7C7FD6109189CCCE5BD2CB6337B5031
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192667.jpgsave_picture_192667.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:F386A275422ED517DDC1BA5DBF06B59A4F86D765
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192668.jpgsave_picture_192668.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ about : river - 24 Years Apart (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192669.jpgsave_picture_192669.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Unfiltered Audio - Instant Delay 1.3.0 VST, VST3, AAX RePack by TeamCubeadooby [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192670.jpgsave_picture_192670.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:AD2E7064D05373EDEFE6661C6793CC4B7FAE9274
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192671.jpgsave_picture_192671.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:05444348A1CCF87A6FFE586A9D05D57E4060E700
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192672.jpgsave_picture_192672.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:BB1DEC75CF0C5B770F6FF540A1BF50A0FA98231D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192673.jpgsave_picture_192673.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Duolingo: изучай языки 5.118.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192674.jpgsave_picture_192674.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111465.jpgsave_picture_111465.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ S-Tool (Severing Tool) - Studio Albums (2 releases) (2017-2020) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111466.jpgsave_picture_111466.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Blues Celebration (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111467.jpgsave_picture_111467.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:9C4056D10E6A3826C92148EA569462E94704265E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111468.jpgsave_picture_111468.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:A08BCDFC9687370621191860289F5977BC518BDF
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111469.jpgsave_picture_111469.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:A7D58162A6ED78E491F0266EC91052AB9F2A2EC9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111470.jpgsave_picture_111470.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Photo Lab PRO v3.13.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111471.jpgsave_picture_111471.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Armin van Buuren - Breathe In (2024) Extended Edition [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111472.jpgsave_picture_111472.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ PdfX 1.0.8 Mod by vadj [En/Es]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111473.jpgsave_picture_111473.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ The Dead Daisies - Resurrected, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111474.jpgsave_picture_111474.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:34E1FBEB2459F504273C0CB383E3BFDE62139701
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111475.jpgsave_picture_111475.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ RSAC - LIVE (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111476.jpgsave_picture_111476.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:2FE87D67C6274373A802B4B2AED4A5A9130993BD
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111477.jpgsave_picture_111477.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Macrorit Partition Expert 8.1.6 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111478.jpgsave_picture_111478.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Stickman: рисовать мультики v5.2s Mod by HexonMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111479.jpgsave_picture_111479.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:84E7636589CD8CCE9C28A3D088608D1733A951A8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111480.jpgsave_picture_111480.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Sumatra PDF 3.6.16019 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111481.jpgsave_picture_111481.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:E73B9AA407FEDE6AA3AC91BB66FD48249753B9A7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111482.jpgsave_picture_111482.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:D0B963D9CE8426F0C0ABCDA44294156343AB1AD4
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111483.jpgsave_picture_111483.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Kitaro - Warme-Cosmic Love (1985) [FLAC|Lossless|tracks + .cue] <New Age, Ambien
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111484.jpgsave_picture_111484.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:9063C5E57EFCD1A6E398F8A38691186580CFDD80
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111485.jpgsave_picture_111485.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ ASC - Reflections (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Jungle>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111486.jpgsave_picture_111486.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ OfficeSuite Pro + PDF 14.4.51666 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111487.jpgsave_picture_111487.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Hidden Object Secrets 2: The Whitefield Murder (2024) [En] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111488.jpgsave_picture_111488.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:2A8081A142BB9E72BC1D71436442DD84A954F32B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111489.jpgsave_picture_111489.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Aural Imbalance - Infinity Spectrum (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum &
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111490.jpgsave_picture_111490.jpg" />
 </div>
 
 

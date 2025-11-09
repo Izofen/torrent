@@ -6,7 +6,7 @@ Garmin: Дороги России Топо 6.48 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17609.jpgsave_picture_17609.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ AOMEI Backupper Technician Plus 7.5.0 Repack (& Portable) by elchupacabra [Multi
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17610.jpgsave_picture_17610.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17611.jpgsave_picture_17611.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ ON1 Photo RAW MAX 2025.2 19.2.0.16851 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17612.jpgsave_picture_17612.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ NEET Kunoichi to Nazeka Dousei Hajimemashita | Somehow, I Started Living With a 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17613.jpgsave_picture_17613.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0B Build 47 Public Beta 4 RePack by 
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17614.jpgsave_picture_17614.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tales and Tactics / Tales & Tactics (2023) [Ru/Multi] (1.1.03) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17615.jpgsave_picture_17615.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Capture One 23 Enterprise 16.6.0.2923 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17616.jpgsave_picture_17616.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Paint.NET 5.1.8 Final + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17617.jpgsave_picture_17617.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17618.jpgsave_picture_17618.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Tenkuu no Shiro Laputa | Laputa: Castle in the Sky | Небесный замок
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17619.jpgsave_picture_17619.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.8/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17620.jpgsave_picture_17620.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VA - Mixed by DJ Юrkanik (2025) [MP3|320 Kbps] <Progressive House, Trance, Drum
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17621.jpgsave_picture_17621.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Zoria: Age of Shattering (2024) [Ru/Multi] (1.1.8/dlc) Repack Let'sРlay [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17622.jpgsave_picture_17622.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:528C4582D97165D570896D6A8BCF1FF978997037
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17623.jpgsave_picture_17623.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:9C1E6BC14A898A98EEA9CC0B9181CA53AE7ACCE3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17624.jpgsave_picture_17624.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Diamond Head - Lightning To The Nations (1980) 2XCD, Reissue, Remastered, 2022, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17625.jpgsave_picture_17625.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:26A841D85E098C141F550C5C34760F1AD5AABF06
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17626.jpgsave_picture_17626.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:F0BBF9976A06A3DFA640CE8EDA051DDA74B4AEC4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17627.jpgsave_picture_17627.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:27409691DE18ECC73D851CE7DAB2039DB65137C7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17628.jpgsave_picture_17628.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:65E0A34E132B172444CB331ACD03A3238A1E13FD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17629.jpgsave_picture_17629.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:C3DED04EF1F7F8C7C29BCB3E7A0F0B79F6BE9FF1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17630.jpgsave_picture_17630.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:C7652FED12222E288118AD0C60829AEBA130CC25
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17631.jpgsave_picture_17631.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:9F218921207E4DF2433FD2807D78F74812046F5F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17632.jpgsave_picture_17632.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:6E2991903991F314F2B8F8C5B6BC797D2FD734DB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17633.jpgsave_picture_17633.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:D6D0838A4ADB6723D23225B65CB844200EC846E5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17634.jpgsave_picture_17634.jpg" />
 </div>
 
 

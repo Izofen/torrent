@@ -6,7 +6,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195047.jpgsave_picture_195047.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DECB010F8159ADB0F6CE908265FCC4564F6E1DC8
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195048.jpgsave_picture_195048.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DC0EC618617B5442D75BAB6473892F7386812F8C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195049.jpgsave_picture_195049.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5: Car Rendering for Beginners (2022) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195050.jpgsave_picture_195050.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Unch
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195051.jpgsave_picture_195051.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:E3F2E59BA725FB92AF5CE3F7248B0281735E7F6A
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195052.jpgsave_picture_195052.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Archviz Artist, Agnieszka Klich | 3ds Max Exterior & Interior Animations (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195053.jpgsave_picture_195053.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:0313E39D16684B206EA19A3E524D63103CE693D1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195054.jpgsave_picture_195054.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Adobe Audition 23.5 U2B [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195055.jpgsave_picture_195055.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:42D8122EED1D82BEDCF68800230FA19970281942
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195056.jpgsave_picture_195056.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:5537FA8FF36C269E443F3DA4528148EF902A83A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195057.jpgsave_picture_195057.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:F41C279C09A7764C66082190B544F05A92E2FD99
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195058.jpgsave_picture_195058.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:A08CD24E5613F1FDF9E4F6518BEB7B9E7F7B8150
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195059.jpgsave_picture_195059.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ LibreCAD 2.2.0.2 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195060.jpgsave_picture_195060.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:1844B6545D050E0789E6D758125F1B4A82B2DE58
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195061.jpgsave_picture_195061.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:2C55FFB53D244E533A2198412D47D6762B0A5412
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195062.jpgsave_picture_195062.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Podlodka Crew | Записи Go Crew #1 - «Внутренний тулинг» 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195063.jpgsave_picture_195063.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:D0832F165506C61B9D9080EF4E6EDB808A06543E
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195064.jpgsave_picture_195064.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:FA03D6B1C8F1295E0585F1527A7147F155A29B85
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195065.jpgsave_picture_195065.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Windows 11 (v22h2) x64 PRO by KulHunter v5 (esd) [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195066.jpgsave_picture_195066.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - A Tribute To Ария. XXV (2010) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195067.jpgsave_picture_195067.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:1A917243B9FE49032573E467DEE6EE1280DDB90F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195068.jpgsave_picture_195068.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ NG. Линии Наски: Раскрытые тайны / Nasca Lines: Unlockin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195069.jpgsave_picture_195069.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:62AD487F0C2016AE7DEB06A9470A5EA7918BA421
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195070.jpgsave_picture_195070.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Avast Premium Security 23.7.6074 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195072.jpgsave_picture_195072.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:DCD793140695116DCF3DED0923BFB2EEBB08397B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195073.jpgsave_picture_195073.jpg" />
 </div>
 
 

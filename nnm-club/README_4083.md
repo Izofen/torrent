@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126733.jpgsave_picture_126733.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kalmah - Studio Albums (9 releases) (2000-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126734.jpgsave_picture_126734.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ PhotoRoom 4.7.9 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126735.jpgsave_picture_126735.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:5EF3F3AC57748A50156144C1DD49B7D0B299608E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126736.jpgsave_picture_126736.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:DDD8DD417487322605810336EB37FC67AE3E2DA4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126737.jpgsave_picture_126737.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:FA8F8CFB3D88F5D1D68E79855C61F7A7760A1C46
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126738.jpgsave_picture_126738.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:0AB00DC7D3533E338A1D5080734D8300A23746B6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126739.jpgsave_picture_126739.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:95B07D899F454F779118684AFFEEA59C104AD7E3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126740.jpgsave_picture_126740.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Demon - The Plague (1983) Japanese Edition, Reissue, Remastered, 2020, Rubicon M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126741.jpgsave_picture_126741.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:5896102D0F1FF029B20BA2DF8CF6096474373DF3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126742.jpgsave_picture_126742.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:F6E43CEB0DA96A31A7BAC80ADE75317BF9B35D71
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126743.jpgsave_picture_126743.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ DGonemanband - Clown Show (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126744.jpgsave_picture_126744.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Darnell Cole & The Vibe - A Man Of Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126745.jpgsave_picture_126745.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ David Place - Lyrics for Pauline (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126746.jpgsave_picture_126746.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:B0E0FFA7444C7D2C5A8A77BD9AA2AF8188FCEE8C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126747.jpgsave_picture_126747.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Lisa Hilton - Underground (2011) Ruby Slippers Productions [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126748.jpgsave_picture_126748.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Benny Goodman - Undercurrent Blues (1940 - 1949) 1995, Capitol Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126749.jpgsave_picture_126749.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:CAA5EEE0B4B34C572B4D42A43DF7F5A7342A8E02
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126750.jpgsave_picture_126750.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Atomkraft - Queen of Death (1986) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBH
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126751.jpgsave_picture_126751.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:A600B9E64E2C32BB536B9F258DB90918870998AE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126752.jpgsave_picture_126752.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:18F059BC6F57C11AB2F3CFC60A070072CDBB06CA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126753.jpgsave_picture_126753.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:0380BC76D6294F230E81E9DE7F842737D8DF6F65
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126754.jpgsave_picture_126754.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - Music News vol.325 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126755.jpgsave_picture_126755.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:D1D840E1E52AEA6EFB1B1A9F018E8E2A4D0AA78D
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126756.jpgsave_picture_126756.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Animal ДжаZ - Корни (2023) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126757.jpgsave_picture_126757.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Waterfox Current G6.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126758.jpgsave_picture_126758.jpg" />
 </div>
 
 

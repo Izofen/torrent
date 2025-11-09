@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96860.jpgsave_picture_96860.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:183E96CDFDAA3D13E86C448D88255FBA1816BC75
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96861.jpgsave_picture_96861.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ magnet:?xt=urn:btih:751A38E25E1D55217F2AEFBA08D4D97F66592B48
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96863.jpgsave_picture_96863.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ magnet:?xt=urn:btih:AACFD3758354D1AF96A1F3DCA89302E5F5B290DA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96864.jpgsave_picture_96864.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ magnet:?xt=urn:btih:0038CDFD545C0638F4FD4E2320C15A9B62F92DA2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96865.jpgsave_picture_96865.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ magnet:?xt=urn:btih:AB37C2D4DB04527F9C86C4CC3569178ABBB2E88E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96866.jpgsave_picture_96866.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ magnet:?xt=urn:btih:445968FC57DF32BAC3DC417B8407EB5B6711C6C5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96867.jpgsave_picture_96867.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:48633E7B795982B8995877898438FC0F4F499657
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96869.jpgsave_picture_96869.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:03D4855959CF304904400ACED07879B69B627B1A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96870.jpgsave_picture_96870.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:7C479F400A815C6E8997DE7318B6ED18DC263F8F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96871.jpgsave_picture_96871.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - TMP : Vanilla Dreams 062 (2012) [MP3|320 kbps]<Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96872.jpgsave_picture_96872.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:2B27F1D00C06382687101C333BFBF80BFE0BD83C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96874.jpgsave_picture_96874.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:AA395318E05FA2606C98564DE300F1F902AE3AFB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96875.jpgsave_picture_96875.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:7FE9F4006378F4E354C6A8969C8790214A1FF8D9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96876.jpgsave_picture_96876.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:27165C807B44472C913B16A56ECC418A594F652E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96877.jpgsave_picture_96877.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:B99732C9C27862A302394A0722906E749813A3D8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96878.jpgsave_picture_96878.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VA - Trance Maniacs Party: Progressive Session #34 (16.03.2012) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96879.jpgsave_picture_96879.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:905356BE28F680FA47A6E9F275F94679D71983D2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96880.jpgsave_picture_96880.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:2A9D4ADAE8C14D2E17450B1289DB58A688130CA9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96883.jpgsave_picture_96883.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:718ED7AF2F4BC43B1D3C552CBD3A51073EDCB943
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96885.jpgsave_picture_96885.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:9647169CC53D487BD7CD087DD52A8244574D31AD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96886.jpgsave_picture_96886.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:BC6DC7D0A5C79C06907CA6F0DD73BAB9B1529DA5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96888.jpgsave_picture_96888.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Супер Микс Продвинутых Хитов (2012) [MP3|256 кб/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96889.jpgsave_picture_96889.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Gorod - A Perfect Absolution (2012) [MP3|320 кб/с]<Death Metal,Technical Deat
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96890.jpgsave_picture_96890.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ VA - TMP: Clear Sky 062 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96891.jpgsave_picture_96891.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Maxximum Trance Tunes, Vol. 8 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96893.jpgsave_picture_96893.jpg" />
 </div>
 
 

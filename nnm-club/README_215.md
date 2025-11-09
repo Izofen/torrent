@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5664.jpgsave_picture_5664.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:97E4E8C7FE4463DE4D681B350A58993CC986080C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5665.jpgsave_picture_5665.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:17EC42EECC5907F4F137859D5807ABF236A2D3AF
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5666.jpgsave_picture_5666.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:5D7D824EEB966FCECCC37993EFDABE3919BEBDDC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5667.jpgsave_picture_5667.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:13ECB1D9CF9CA598825208F1E83EB3A42DFA8418
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5668.jpgsave_picture_5668.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - In Search Of Sunrise 21 Mix 2: Nirvana (Mixed by Markus Schulz) (2025) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5669.jpgsave_picture_5669.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:C0ED6A79C65ACE7148664AFEC73C89F43600A52C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5670.jpgsave_picture_5670.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:1A70B9956C6603B45C08CFB2B00E50FAFC2D50B1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5671.jpgsave_picture_5671.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:21B0059A1CC34F141B7616C8F4B84251886BAA19
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5672.jpgsave_picture_5672.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:948400278DC57D4E496DE463E3410CF25755F989
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5673.jpgsave_picture_5673.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:43EAE4BB0AED25F5EF16E76B0929FD6A6C1CD23D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5674.jpgsave_picture_5674.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:BF550B111ED69B9DAEFA95ED07BFA8ADC14A07EC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5675.jpgsave_picture_5675.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:B26AD3A460F6CCA6341CAC3CD2D9290E2313BCB6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5676.jpgsave_picture_5676.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:BED06FEF414FB878B76C6DEEFBE5EBD00B2EC696
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5677.jpgsave_picture_5677.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:E39F5F56B6D27141F93167E08573728C77055FB2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5678.jpgsave_picture_5678.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:7B7FB18E461FA683A257AE7351B8CE8C79744858
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5679.jpgsave_picture_5679.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:3465CDBC11BC73F40DF0CE21365C1605984F6D7D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5680.jpgsave_picture_5680.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Sacred Will - Into the Realm (2025) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5681.jpgsave_picture_5681.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:72A877E54E7D70720A6E2D95C552AF4F817E5ECF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5682.jpgsave_picture_5682.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:8900CEE7E8518841E3F174AFA171716CBA3B0A24
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5683.jpgsave_picture_5683.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:9E0CD4B316519352DDA9E48E55D6D0A534DDBEF9
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5684.jpgsave_picture_5684.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ The Drifter (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5685.jpgsave_picture_5685.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:088B7099A9F13B4BF4721A48838B33B48FDAAB48
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5686.jpgsave_picture_5686.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:49AFE77D1F67F53D27DBD8276153AF14B84F3ADF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5687.jpgsave_picture_5687.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:DB8131EA83BA16CC2A3E84D4B3251B7D6B79302F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5688.jpgsave_picture_5688.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Grim Chronicles: Superior Sorcery / Мрачные летописи: Высше�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5689.jpgsave_picture_5689.jpg" />
 </div>
 
 

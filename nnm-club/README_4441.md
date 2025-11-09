@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138792.jpgsave_picture_138792.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1C3C1D219A54346AEBBF3FAD59BECAEB1CF27711
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138793.jpgsave_picture_138793.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Topaz DeNoise AI 3.4.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138795.jpgsave_picture_138795.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:BADD8F23BFA444702E5DA11E29D59435CAC17C04
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138796.jpgsave_picture_138796.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:A1B7FB03DA0C71DA48D24353E9F19E7896719186
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138797.jpgsave_picture_138797.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Monamour: Любовь моя / Monamour (2005) HDRip [H.264]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138798.jpgsave_picture_138798.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - I Love Tocata 80's (2012) 2CD [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Hi N
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138799.jpgsave_picture_138799.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Marinko Spasojevic, Vladimir Pecanac | Ultimate ASP.NET Core Web API First & Sec
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138800.jpgsave_picture_138800.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:DB8DCCB6FD6584CF642FCD12E1F4F9296D626C04
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138802.jpgsave_picture_138802.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:29F5555E4C606D25A7507924DFFF23CD8E815AE5
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138803.jpgsave_picture_138803.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:CB43D74F80D947159049542ADC252E3D61852735
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138806.jpgsave_picture_138806.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:C4A07A00983EBC2DE5726D74E3041DC3973873B0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138807.jpgsave_picture_138807.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Rock Collection 1988 (2015) [MP3|320 кб/с] <Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138808.jpgsave_picture_138808.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:8B9271A04310E45F697C71498566A5A23CCFF1B7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138810.jpgsave_picture_138810.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Dante Fox - Six String Revolver (2017) [FLAC|Lossless|tracks + .cue] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138811.jpgsave_picture_138811.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:AE9EAA3B3C675819B8E5DAAEECA33E35A49E1DA6
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138812.jpgsave_picture_138812.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Angel Delacruz | Эпидемия. All Inclusive (2018) [FB2]
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138814.jpgsave_picture_138814.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:DBC14C9D2427C8F835DD2073EEA23E6B7B362A04
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138815.jpgsave_picture_138815.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:B4CC2E3AEC3E85BFBB986762ABCB81C9D00454AB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138816.jpgsave_picture_138816.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:3035EE894375CC233900C9BE3377D9809D85006C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138817.jpgsave_picture_138817.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Paul Mauriat - Compilation (2021) [MP3|320 Kbps] <Instrumental, Paul Mauriat>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138818.jpgsave_picture_138818.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:DF35D4281A371D295729E1AB4365AD74A6FDBA22
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138820.jpgsave_picture_138820.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ XMedia Recode 3.3.8.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138821.jpgsave_picture_138821.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:E4F58F0B77CBF5B8424701EFA86A74C902488B4F
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138822.jpgsave_picture_138822.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Adobe After Effects 2024 24.0.3.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138824.jpgsave_picture_138824.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Discovery. Опасная работа / Hard to Kill (2018) HDTVRip [H.264/720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138825.jpgsave_picture_138825.jpg" />
 </div>
 
 

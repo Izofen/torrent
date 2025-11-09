@@ -6,7 +6,7 @@ Tom Booth | English for Everyone. Teacher's Guide (2018) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53953.jpgsave_picture_53953.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Plugin Alliance - MEGA Bundle Effects 2024 VST, VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53954.jpgsave_picture_53954.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:1701775A5C4D7DB24EB19D007D5F7FD57639B592
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53955.jpgsave_picture_53955.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:1701775A5C4D7DB24EB19D007D5F7FD57639B592
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53956.jpgsave_picture_53956.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:2A48FC137A491D381522DFA79E500262095F03C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53957.jpgsave_picture_53957.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:2A48FC137A491D381522DFA79E500262095F03C2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53958.jpgsave_picture_53958.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:1B5F143E893E257512C2C2EBD5DB9C94430048CA
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53959.jpgsave_picture_53959.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:3640DC1D1D687F67239F446B38457D36B0F1612C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53960.jpgsave_picture_53960.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:8D587FF3FC0BD84DE9CC56F825E9753828E3D42D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53961.jpgsave_picture_53961.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - Biker Blues, Hard Times (2024) vol.2 [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53962.jpgsave_picture_53962.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:EF578E2CC813E452447553B83A33E62680535F90
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53963.jpgsave_picture_53963.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:157FECF20A117788224D95F9CA2310EBAC578796
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53964.jpgsave_picture_53964.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:0A89EEC5ECB235F10C9A574487B1523AE081B947
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53965.jpgsave_picture_53965.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:0A89EEC5ECB235F10C9A574487B1523AE081B947
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53966.jpgsave_picture_53966.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ ALTF42 (2023) [Multi] (2.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53967.jpgsave_picture_53967.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:00D04959F3230EDCC037827D5F5880678BA291E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53968.jpgsave_picture_53968.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:00D04959F3230EDCC037827D5F5880678BA291E2
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53969.jpgsave_picture_53969.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:E73A60E1B277964D541F239BA6B9637A7B00D51A
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53970.jpgsave_picture_53970.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:64F845F6AB85028B925D7C2472E2EB328F7A7090
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53971.jpgsave_picture_53971.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ FUBG: FIGHT UNKNOWN BATTLEGROUND (2024) [En] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53972.jpgsave_picture_53972.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:177267EFB14D4E771FCDDD0131FB9C4AC06FF8ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53973.jpgsave_picture_53973.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:6A7F9ACB50D74230429A4105B91708E80FFFD376
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53974.jpgsave_picture_53974.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:B482DD0FA89B21B8AE4691189FFCDA80182C24F3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53975.jpgsave_picture_53975.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:975B9EE6D3899CB14660375D90E1844A0B31DB39
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53976.jpgsave_picture_53976.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ iZotope - Ozone 11 Advanced 11.0.1 VST 3, AAX, NKS (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53977.jpgsave_picture_53977.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:47A1872C1DBD746742D7F4DE00C0E523CC8D5058
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53978.jpgsave_picture_53978.jpg" />
 </div>
 
 

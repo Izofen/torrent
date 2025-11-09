@@ -6,7 +6,7 @@ ReThink 5 (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49074.jpgsave_picture_49074.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ HexoCity (2024) [Multi] (1.1.1.1199) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49075.jpgsave_picture_49075.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SCHiM (2024) [Ru/Multi] (1.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49093.jpgsave_picture_49093.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Dawning Clocks of Time: Remake (2024) [En] (1.0.0.0701.12) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49094.jpgsave_picture_49094.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Fortress Challenge: Fort Boyard (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49105.jpgsave_picture_49105.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Songs of Steel: Hispania (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49115.jpgsave_picture_49115.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Zet Zillions (2024) [Ru/Multi] (1.0.4) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49118.jpgsave_picture_49118.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Ducky: The Brave (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49128.jpgsave_picture_49128.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ In Search Of You (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49131.jpgsave_picture_49131.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Blacksad: Under the Skin (2019) [Ru/Multi] (20270705) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49142.jpgsave_picture_49142.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Guns Demons (2024) [En] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49220.jpgsave_picture_49220.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Crow Country (2024) [Multi] (20240525) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49253.jpgsave_picture_49253.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ SANABI (2023) [Ru/Multi] (1.3.35) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49267.jpgsave_picture_49267.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Serpent in the Staglands (2015) [En] (19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49268.jpgsave_picture_49268.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Anger Foot (2024) [Ru/Multi] (1.3) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49303.jpgsave_picture_49303.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Until Then (2024) [Multi] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49308.jpgsave_picture_49308.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Pacific Drive (2024) [Ru/Multi] (1.6.2/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49319.jpgsave_picture_49319.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ USC: Counterforce (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49326.jpgsave_picture_49326.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ ReRoad (2020) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49339.jpgsave_picture_49339.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Superscout (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49352.jpgsave_picture_49352.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Stories from the Outbreak (2024) [En] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49361.jpgsave_picture_49361.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.051) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49380.jpgsave_picture_49380.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ STAR WARS: Dark Forces Remaster (2024) [Multi] (1.0.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49381.jpgsave_picture_49381.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Apollo Justice: Ace Attorney Trilogy (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49390.jpgsave_picture_49390.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Burnout Paradise Remastered (2018) [Ru/Multi] (1.0.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49400.jpgsave_picture_49400.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Braid (2024) [Ru/Multi] (20240603) Repack dixen18 [Anniversary Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49404.jpgsave_picture_49404.jpg" />
 </div>
 
 

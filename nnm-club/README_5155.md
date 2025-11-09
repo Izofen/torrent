@@ -6,7 +6,7 @@ ABBA - Gold (Greatest Hits) 40th Anniversary Edition [3 CD] (1992/2014) hand mad
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160770.jpgsave_picture_160770.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:35A540D5D0BA4B8AAEBEA5521BAF83520A045F99
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160771.jpgsave_picture_160771.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B3BE064477C66C4F72670CCB460DB8EB14887171
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160772.jpgsave_picture_160772.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Planet VPN 2.1.26.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160773.jpgsave_picture_160773.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Soft Shades Of Deep House (2023) [MP3|320 Kbps] <Deep-House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160775.jpgsave_picture_160775.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Little Goody Two Shoes (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160776.jpgsave_picture_160776.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Luxion KeyShot 2023.2 Pro 12 v.12.2.0 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160777.jpgsave_picture_160777.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:A1FDE3C99B26559D33641132E8C63C7A18DB6AC2
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160778.jpgsave_picture_160778.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:CD8B1CFA233C2E2EEF943EDCEFE854A7B5250C3D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160779.jpgsave_picture_160779.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:8F3E8DB193A805B60A97BCA813A40AD84C60B04A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160780.jpgsave_picture_160780.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:7F683772F5E9F7F973006C9DB7018FFB40946A53
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160781.jpgsave_picture_160781.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:0ED132C64B800848ADD08F307460516E1E4523BE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160782.jpgsave_picture_160782.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:988BC7E5237EBE039E89710AB99E6AD15192DD2C
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160783.jpgsave_picture_160783.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Enypnion Redreamed (2023) [Multi] (1.06a1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160784.jpgsave_picture_160784.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:7D8D0AE71D6B40D9A47BAD41A3942FC2C82D3057
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160785.jpgsave_picture_160785.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:A0FF9E57EDEF5BB78AF376F8B6ACC7CCE06A219D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160786.jpgsave_picture_160786.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ PotPlayer 231102 (1.7.22032) RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160787.jpgsave_picture_160787.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:22886C7EEB53C088D61BB214994E207AA6D04F6A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160788.jpgsave_picture_160788.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:FC6A307C864A465E0C46B769DF7E3D3B7D9E66B5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160789.jpgsave_picture_160789.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:B25C3E847ECCCB3E1C3F54E53E51A32C7A9D9FF9
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160790.jpgsave_picture_160790.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ BleachBit 4.6.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160791.jpgsave_picture_160791.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ StartAllBack 3.6.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160792.jpgsave_picture_160792.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ nthLink 6.2.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160793.jpgsave_picture_160793.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:1F6D6FCC098EA773318F4E1E808614795A6999D3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160794.jpgsave_picture_160794.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:F3494ECCA6CF0C249700387EA57ACE7F3F1073D7
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160795.jpgsave_picture_160795.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ AOMEI Partition Assistant Standard Edition 10.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160796.jpgsave_picture_160796.jpg" />
 </div>
 
 

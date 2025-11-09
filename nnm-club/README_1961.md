@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51343.jpgsave_picture_51343.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BB636C9695F68325979E870AB3A86DA39376FCF8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51344.jpgsave_picture_51344.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windstorm: Start of a Great Friendship - Remastered (2024) [Multi] (0.7.3) Repac
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51345.jpgsave_picture_51345.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:EAAEFE61C9D34F9E4725A85A86344CDD4F98835C
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51346.jpgsave_picture_51346.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EAAEFE61C9D34F9E4725A85A86344CDD4F98835C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51347.jpgsave_picture_51347.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:EAAEFE61C9D34F9E4725A85A86344CDD4F98835C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51348.jpgsave_picture_51348.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:8018822E636D97FECD387FD2CBC009C54A0F763B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51349.jpgsave_picture_51349.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:023FB0C4086D0AFECA13DBADD90C980CD42B35BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51350.jpgsave_picture_51350.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:8F538AC74908B12A83F273BF2AC7A0E364B71AE8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51351.jpgsave_picture_51351.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ K-Lite Codec Pack 18.4.5 Mega/Full/Standard/Basic [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51352.jpgsave_picture_51352.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:4807DDC735E5B8315CA584ABE1D4DB2778930749
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51353.jpgsave_picture_51353.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:E975031CB7550683806399BA1042D64E72E49210
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51354.jpgsave_picture_51354.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ludus Mortis (2024) [Multi] (1.0.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51355.jpgsave_picture_51355.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:12B5B21E9F9A4E2608FF4C9CCDF6C8CEF61D033C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51356.jpgsave_picture_51356.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (0.9.1) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51357.jpgsave_picture_51357.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:DC1B06398248CB12611D2AB2578E61C73CFCD3A5
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51358.jpgsave_picture_51358.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:93A399D5260AEEDFBB44629B581284C725E4EDD2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51359.jpgsave_picture_51359.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:93A399D5260AEEDFBB44629B581284C725E4EDD2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51360.jpgsave_picture_51360.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:DD2B3BBA7998E3DE880CE8BF4342BFA066DA293B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51361.jpgsave_picture_51361.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51362.jpgsave_picture_51362.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:30328B5DCCF9B099EBF98482333BC6015B1CADDF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51363.jpgsave_picture_51363.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:1A9126F1D2B30EDA5ED714256F128C905B91DF97
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51364.jpgsave_picture_51364.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:AC603E310AF91F3B2FC6045431BAFC75391D3EFF
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51365.jpgsave_picture_51365.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:E3B4B9E1D14C08C4785951ABB954E84451B51F05
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51366.jpgsave_picture_51366.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Houdini-course.com, Christian Bohm | Houdini FX Course (2024) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51367.jpgsave_picture_51367.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:C0D805BF7109E32AE871D49F133C6C81B2513388
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51368.jpgsave_picture_51368.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Tower Hill - Deathstalker (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Old Scho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170463.jpgsave_picture_170463.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A45D609771C0892F12B8745E5E07676319A579A2
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170464.jpgsave_picture_170464.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sound Studio 4 v4.9.6 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170465.jpgsave_picture_170465.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Gaslight Anthem - History Books (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170466.jpgsave_picture_170466.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Sensei 1.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170467.jpgsave_picture_170467.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Merry Christmas/Dance Music Party (2019) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170468.jpgsave_picture_170468.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:43140B671E812C43B2E1DF6011B8FF339B1B2A12
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170469.jpgsave_picture_170469.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:A2974EF711F35528251B27129CDB5D030ED54F83
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170470.jpgsave_picture_170470.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Typora 1.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170471.jpgsave_picture_170471.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Kazumi Tateishi Trio - Ghibli Meets Jazz: Beautiful Songs (2011) Victor [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170472.jpgsave_picture_170472.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:54B8545BA94C13A7687917A2FEA4A9841F0E82B1
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170473.jpgsave_picture_170473.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ ReviverSoft Driver Reviver 5.31.4.2 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170474.jpgsave_picture_170474.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Nisus Writer Pro 3.2.2 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170475.jpgsave_picture_170475.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:B71B487B3481B07F50AF6B0FE57CD55BE13726C5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170476.jpgsave_picture_170476.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:74F0219822D1C8F9AA36C7CFFFC4BE44146CF403
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170477.jpgsave_picture_170477.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ SILKYPIX Developer Studio Pro 11 v.11.0.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170478.jpgsave_picture_170478.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:601C7BC54800F09BF07706D1A45D5211171C992B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170479.jpgsave_picture_170479.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Psygressive Vol. 7 (2019) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170480.jpgsave_picture_170480.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:EBDAF36B25695F5A13870454981522BBFDE4BE06
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170481.jpgsave_picture_170481.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Udemy, Murtez Alrohani | Модульное тестирование Node.js / N
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170482.jpgsave_picture_170482.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Jeff Berlin - Jack Songs (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170483.jpgsave_picture_170483.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ OmniPlayer Pro - Media Player 1.4.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170484.jpgsave_picture_170484.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Vinegar 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170485.jpgsave_picture_170485.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Pale Moon 28.8.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170486.jpgsave_picture_170486.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ SnapNDrag Pro Screensho‪t‬  4.5.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170487.jpgsave_picture_170487.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:C1A389F6562E642A1D9D072256BB946B92D34A6F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170488.jpgsave_picture_170488.jpg" />
 </div>
 
 

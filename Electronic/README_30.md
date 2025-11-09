@@ -6,7 +6,7 @@ VA - Best Melodic Techno Hype SFR (2024) [MP3|320 Kbps] <Melodic-House, Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62685.jpgsave_picture_62685.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Combichrist - 3 EP (2022-2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Techno, Elect
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62756.jpgsave_picture_62756.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Armin van Buuren - A State Of Trance 1245 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63853.jpgsave_picture_63853.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Trance Fusion, Vol. 12 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64539.jpgsave_picture_64539.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Trancendence, Vol. 03 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64542.jpgsave_picture_64542.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 12 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64544.jpgsave_picture_64544.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Keep It Trance Vol. 30 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64546.jpgsave_picture_64546.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Nothing But... Trancetopia, Vol. 28 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64551.jpgsave_picture_64551.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64558.jpgsave_picture_64558.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Summer Music House Furia 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64587.jpgsave_picture_64587.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Erasure - ABBA-Esque (CDM) (1992) 1st UK Press [APE|Lossless|image + .cue] <Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64603.jpgsave_picture_64603.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Ori Uplift - Uplifting Only Episode 651 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64634.jpgsave_picture_64634.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Anjunadeep Explorations Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Me
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64648.jpgsave_picture_64648.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Armin van Buuren - A State Of Trance 1236 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64650.jpgsave_picture_64650.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Rimini Summer Party, Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Melod
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64651.jpgsave_picture_64651.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - 25 Years Of Anjuna Mixed By Dom Donnelly (2025) [MP3|320 Kbps] <Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64652.jpgsave_picture_64652.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - On the Beach: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64664.jpgsave_picture_64664.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Summer Jam 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Club, House, E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64671.jpgsave_picture_64671.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Deep Reflections: Summer Edition 2025 (2025) [MP3|320 Kbps] <Deep House, Or
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64674.jpgsave_picture_64674.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Folamour - Movement Therapy (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disc
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64708.jpgsave_picture_64708.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - 25 Years Of Anjuna Mixed By Bart Claessen (2025) [MP3|320 Kbps] <Trance, Pr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64724.jpgsave_picture_64724.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - A State of Trance - Classics Top 10, Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64729.jpgsave_picture_64729.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - A State of Trance - Classics Top 10, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64735.jpgsave_picture_64735.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Chill & Seduce  - The Sensual Lounge Collection (2025) [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64737.jpgsave_picture_64737.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - A State of Trance - Classics Top 10, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64751.jpgsave_picture_64751.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Lounge Avenue, Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill O
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64809.jpgsave_picture_64809.jpg" />
 </div>
 
 

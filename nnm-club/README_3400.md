@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108761.jpgsave_picture_108761.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Andrew William | ESL Classroom Games: 180 Educational Games and Activities for T
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108762.jpgsave_picture_108762.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5997703CF08B402DED99BA614728EE10A4947FB9
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108763.jpgsave_picture_108763.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5101F83151A62F77C88531D9C304D429D6228C30
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108764.jpgsave_picture_108764.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ John Hughes | ETpedia: 1,000 Ideas for English Language Teachers (2017) [PDF] [E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108765.jpgsave_picture_108765.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Photo Lab PRO v3.13.10 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108766.jpgsave_picture_108766.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Hotel & SPA Best Background Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108767.jpgsave_picture_108767.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Smart AudioBook Player 10.9.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108768.jpgsave_picture_108768.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Chromium 125.0.6422.113 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108769.jpgsave_picture_108769.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Alex Forero | ESL Conversation Lessons (2016) [EPUB] [EN]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108770.jpgsave_picture_108770.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Firefox Browser 126.0.1 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108771.jpgsave_picture_108771.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:C8E0F3A60724C29D062ABD2B0923D1EC7987E7AB
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108772.jpgsave_picture_108772.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Lorne Lofsky - Lorne Lofsky (1992) Jazz Inspiration [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108773.jpgsave_picture_108773.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Lyle Lovett - Pontiac (1987) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108774.jpgsave_picture_108774.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Tezza F - Key To Your Kingdom (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108775.jpgsave_picture_108775.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Horace Parlan - Blue Parlan (1978) 1987, SteepleChase [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108776.jpgsave_picture_108776.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Wizzard - Back and Alive (Live) (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108777.jpgsave_picture_108777.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Dave Stryker Quartet - Blue Degrees (1993) SteepleChase [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108778.jpgsave_picture_108778.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Cypecore - Take the Consequence (2010) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108779.jpgsave_picture_108779.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Dawn of Perception - Fragments (2005) Demo [FLAC|Lossless|tracks + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108780.jpgsave_picture_108780.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Cypecore - Identity (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108781.jpgsave_picture_108781.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Dead Head - Dream Deceiver (1993) [FLAC|Lossless|image + .cue] <Thrash, Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108782.jpgsave_picture_108782.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Vlado Grizelj - Purple Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108783.jpgsave_picture_108783.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Greg Wilson - It's My Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108784.jpgsave_picture_108784.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Stellar Circuits - Ways We Haunt (2018) Remaster, 2024, Stellar Circuits [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108785.jpgsave_picture_108785.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Ilan Kunik - The Casino Club - Positive & Funky Comedy Grooves (2024) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108786.jpgsave_picture_108786.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Smart Launcher 6.3 build 036 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134885.jpgsave_picture_134885.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Dance Hits Winter Selection (2023) [MP3|320 Kbps] <Dance, Club, House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134886.jpgsave_picture_134886.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:22E384A53172EE96697334CC7AE70C4075C5F726
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134887.jpgsave_picture_134887.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Easy Data Transform for Mac 1.45.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134888.jpgsave_picture_134888.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:0CE7304C4EF4DF6F24F1E0888928B6DB98155499
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134889.jpgsave_picture_134889.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VectorStyler for Mac 1.1.111 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134890.jpgsave_picture_134890.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Best HD Wallpapers Pack (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134891.jpgsave_picture_134891.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:6273F6EBF1A75DB9707D1309CAE17C350DC3100A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134892.jpgsave_picture_134892.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:FFCC749155149FAD92A024CCF2EDED59D5F8F7FB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134894.jpgsave_picture_134894.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:4D4A1B4A0A637B1C1908425AA627922AF3167B7C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134895.jpgsave_picture_134895.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Модная VIP тусовка Зимний выпуск 4 (2012) [MP3|128
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134899.jpgsave_picture_134899.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Desktop Wallpapers (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134900.jpgsave_picture_134900.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Arty - Together We Are 027 (22.12.2012) [MP3|320 кб/с]<Trance, Progressive Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134902.jpgsave_picture_134902.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Fort Firewall 3.10.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134903.jpgsave_picture_134903.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Tears For Fears - Hammersmith Odeon London 1983 (live) (2023) [MP3|320 Kbps] <Ne
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134905.jpgsave_picture_134905.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Birds Wallpapers (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134906.jpgsave_picture_134906.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:168A17E1819BE79C6DAA41D1E1BB09E13AF3799E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134907.jpgsave_picture_134907.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Nature Wallpapers (23.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134908.jpgsave_picture_134908.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ CADintosh X 8.8.6 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134909.jpgsave_picture_134909.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:05972FAF8553DBD38F6E99E8A627CDEF28DC20B5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134911.jpgsave_picture_134911.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Ghost Train Orchestra & Kronos Quartet - Songs & Symphoniques: The Music of Moon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134912.jpgsave_picture_134912.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ France Wallpapers (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134914.jpgsave_picture_134914.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:AFCA4093339ED66A96EEC325F67F8E8C6C9896C3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134915.jpgsave_picture_134915.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Rodents wallpaper (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134918.jpgsave_picture_134918.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:3DF92542D465BEF08B0264797F7D0A4704FFA467
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134919.jpgsave_picture_134919.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Animal Wallpapers (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134920.jpgsave_picture_134920.jpg" />
 </div>
 
 

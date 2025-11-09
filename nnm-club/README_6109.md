@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192198.jpgsave_picture_192198.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E748A8D24E98985E94837C56624DF5115ABD916B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192199.jpgsave_picture_192199.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Moon+ Reader Pro 8.3 (803001) Mod by Lucky Las [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192200.jpgsave_picture_192200.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:DACCC0FD8AE8A915B772244ADD827E2EB4A77702
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192201.jpgsave_picture_192201.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Factorio (2022) [Switch] [US] 14.1.2 [eShop / 1.1.0] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192202.jpgsave_picture_192202.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:AAD54B383FC83ECE6E0B159A6CCDC997EDBE3469
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192203.jpgsave_picture_192203.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:45D22E0910221E76BCB0909AC1602616C0FEE7F1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192204.jpgsave_picture_192204.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:1E529D761A565DB3AC50B9913AE93E040A72E736
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192205.jpgsave_picture_192205.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:1F5DFFD2BDBD764C2F4851A81D14F745612519F9
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192206.jpgsave_picture_192206.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Skype 8.103.0.208 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192207.jpgsave_picture_192207.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:E00BE69348A5C608429C13295FC2E222D31A82A6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192208.jpgsave_picture_192208.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:9F5D0A92C2B24550401E858AA3C4F3491C52A763
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192209.jpgsave_picture_192209.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Foxit PDF Reader 12.0.2.12465 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192210.jpgsave_picture_192210.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ HDCleaner 2.057 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192211.jpgsave_picture_192211.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Node Video - Pro Video Editor 6.6.0 (build 451) Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192212.jpgsave_picture_192212.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:5A64562589F22546C7C1EFF54E6C14023717E5B4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192213.jpgsave_picture_192213.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:DA6A526F6BCFA9DCFE55F16DA3A110D4CB984671
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192214.jpgsave_picture_192214.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VPN Inf - Security Fast VPN 7.5.824 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192215.jpgsave_picture_192215.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:5EA9B0345E17483D19977CF31BEF4312618337B7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192216.jpgsave_picture_192216.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:874D78CC09914A4FA16EE20DEFE35CE4543356AE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192217.jpgsave_picture_192217.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:8E6395083E6B54E68F685AD955C13EF6924CD2EA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192218.jpgsave_picture_192218.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Joe Satriani / G3 / Chickenfoot - 25 albums, 1 ЕР, 1 Box-set, 41 CD (1986-2022
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192219.jpgsave_picture_192219.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:FF335A72354F7C8D63FA6E3B72E4947737C318CA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192220.jpgsave_picture_192220.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:525A58EDD5C90E2F87BCDD2674BC54107A458B71
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192221.jpgsave_picture_192221.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:02EC1B460C0AC3B7424B8F90C5610DFF0953C4DB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192222.jpgsave_picture_192222.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Q-Dir 11.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192223.jpgsave_picture_192223.jpg" />
 </div>
 
 

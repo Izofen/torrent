@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106785.jpgsave_picture_106785.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Supersoul Brothers - By The Way (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106786.jpgsave_picture_106786.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ DS Caw - Nothing To Fight For (2024) [MP3|320 Kbps] <Classic Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106787.jpgsave_picture_106787.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:10C03E0E32B36EC4EFA163D984A59BE51E7A11D5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106788.jpgsave_picture_106788.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Mr. Big - Mr. Big (1989) Remastered, 2023, evoXS [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106789.jpgsave_picture_106789.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Allavsoft Video Downloader Converter 3.27.3.8952 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106790.jpgsave_picture_106790.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Q-Dir 11.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106791.jpgsave_picture_106791.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Altair Compose 2023.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106792.jpgsave_picture_106792.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Vov Sticky Notes 9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106793.jpgsave_picture_106793.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:485E38299D5461902995BB236033A71D78F6A735
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106794.jpgsave_picture_106794.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Mullvad Browser 13.5.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106795.jpgsave_picture_106795.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ DesktopOK 11.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106796.jpgsave_picture_106796.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - Trance In Motion Vol.378 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106797.jpgsave_picture_106797.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:2896BBEBF09F7C7510D0BF31D587BBF350B9A7C7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106798.jpgsave_picture_106798.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:DE84215F3BC8481CF9269EC4B8D88716697337D0
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106799.jpgsave_picture_106799.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Altair Embed 2023.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106800.jpgsave_picture_106800.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ eM Client Pro 10.0.3123.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106801.jpgsave_picture_106801.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Aiseesoft Video Converter Ultimate 10.8.50 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106802.jpgsave_picture_106802.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ PDF Shaper Ultimate 14.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106803.jpgsave_picture_106803.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ reaConverter Pro 7.818 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106804.jpgsave_picture_106804.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:B8D01441040B1A98169C54EA7E36FB58EACE7F5E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106805.jpgsave_picture_106805.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Zucchero - Overdose D' Amore Tour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106806.jpgsave_picture_106806.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Summer Chillout & Lounge Music (Best Session) (2024) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106807.jpgsave_picture_106807.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Moody Blues - In Search Of The Lost Chord (1968) Box Set, Deluxe Edition, 3x
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106808.jpgsave_picture_106808.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Loomer - Aspect 2.0.3 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106809.jpgsave_picture_106809.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ AIMP 5.30 Build 2560 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106810.jpgsave_picture_106810.jpg" />
 </div>
 
 

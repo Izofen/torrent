@@ -6,7 +6,7 @@ Who's at the door? (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10506.jpgsave_picture_10506.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4528/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10518.jpgsave_picture_10518.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dust Raiders (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10561.jpgsave_picture_10561.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10590.jpgsave_picture_10590.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10635.jpgsave_picture_10635.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10641.jpgsave_picture_10641.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Animal Shelter (2022) [Ru/Multi] (1.3.19-38.257/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10656.jpgsave_picture_10656.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.17) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10669.jpgsave_picture_10669.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Jacksmith: Weapons and Warriors (2025) [En] (1.0.1) Repack Necros1404
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10692.jpgsave_picture_10692.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10710.jpgsave_picture_10710.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Rangers In The South (2025) [Ru/Multi] (3.0.3) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10715.jpgsave_picture_10715.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Bloodshed (2024) [Ru/Multi] (1.0.15) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10722.jpgsave_picture_10722.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Solium Infernum (2024) [Ru/Multi] (1.1.3P2_85055/dlc) Repack FitGirl [Collector'
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10724.jpgsave_picture_10724.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9.1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10727.jpgsave_picture_10727.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) License GOG [Bundle]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10736.jpgsave_picture_10736.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.3/dlc) Repack FitGirl [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10821.jpgsave_picture_10821.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Who's at the door? (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10830.jpgsave_picture_10830.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2.2489/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10837.jpgsave_picture_10837.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Call to Arms - Gates of Hell: Ostfront (2021) [Ru/En] (1.053.0/dlc) Repack Let's
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10840.jpgsave_picture_10840.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.17.30088/dlc) Repack Le
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10849.jpgsave_picture_10849.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Submersed 2 - The Hive (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10900.jpgsave_picture_10900.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.6/dlc) Repack Let'sРlay [Complete Collection
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10919.jpgsave_picture_10919.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Kingdom Ascension (2025) [Ru/Multi] (1.0.0.4) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10921.jpgsave_picture_10921.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (1.2.0.0/dlc) Repack
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10922.jpgsave_picture_10922.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Strike Mission (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10926.jpgsave_picture_10926.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Xeno Rangers (2025) [Ru/Multi] (1.0.19B) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10930.jpgsave_picture_10930.jpg" />
 </div>
 
 

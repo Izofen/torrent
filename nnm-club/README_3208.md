@@ -6,7 +6,7 @@ The Hu - The Trooper (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103751.jpgsave_picture_103751.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - The Orient Collective: Journey to the Soul (2024) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103754.jpgsave_picture_103754.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:4E7E7D4B6B31FE72D529BB21E789A80462731B01
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103755.jpgsave_picture_103755.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:D9A104180490282258783E0854B1B4D06FB99DF8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103756.jpgsave_picture_103756.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Shakira - She Wolf (2009) Expanded Edition, 2009, Epic [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103758.jpgsave_picture_103758.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Cyclone B - War (2024) [MP3|320 Kbps] <Dark Electro, EBM, Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103759.jpgsave_picture_103759.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ London Grammar - The Greatest Love (2024) Deluxe, 2024, Ministry of Sound Record
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103761.jpgsave_picture_103761.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Chicago - Chicago At The John F. Kennedy Center For The Performing Arts, Washing
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103762.jpgsave_picture_103762.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Babbba - Smooth jazz club (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103763.jpgsave_picture_103763.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ VA - Just Blues (Soulful Groovy Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103764.jpgsave_picture_103764.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - Always Progressive, Vol. 1 (2024) [MP3|320 Kbps] <Progressive House, Melodi
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103765.jpgsave_picture_103765.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Frank Sinatra - A Superb 2CD Collection Of Ol' Blue Eyes Classics (2002) 2CD, Ai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103766.jpgsave_picture_103766.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Country Blues: The Ultimate Collection, Vol. 1 (2024) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103767.jpgsave_picture_103767.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - Pretty Little Deep-House Friends, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103768.jpgsave_picture_103768.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:123CC63196131AEE55D2A1C90CA21071379DC564
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103769.jpgsave_picture_103769.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:2C1AD89F2ABF9D116FD12C50BAFCAD3231B353F3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103770.jpgsave_picture_103770.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:B1B2F8A28C2A02038427C6E135B82BEEF29C7973
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103771.jpgsave_picture_103771.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:EFAE332CF58711047F53E43E08C18D48FB9115F8
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103772.jpgsave_picture_103772.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ MotoGP. Этап 16 из 20. Гран-при Японии. Гонка (06.10.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103773.jpgsave_picture_103773.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:EF945C6E8F93D1244EF478B0593E057FFB05EDF5
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103774.jpgsave_picture_103774.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Lemon Pepper Hangover - Lemon Pepper Hangover (2024) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103775.jpgsave_picture_103775.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Twelve Foot Ninja - Studio Albums (6 releases) (2008-2024) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103776.jpgsave_picture_103776.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Airborne Blues Virus - Get on Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103777.jpgsave_picture_103777.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Travis Bowlin - Hooks & Grooves (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103778.jpgsave_picture_103778.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Harlem Lake - The Mirrored Mask (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103779.jpgsave_picture_103779.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:B93B6E4D9A7C3EDB051E6DB865FF0A63FCD942B1
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103780.jpgsave_picture_103780.jpg" />
 </div>
 
 

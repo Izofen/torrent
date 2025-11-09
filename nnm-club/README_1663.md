@@ -6,7 +6,7 @@ MARVEL vs. CAPCOM Fighting Collection: Arcade Classics (2024) [Ru/Multi] (1.0) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43595.jpgsave_picture_43595.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:316B4D32F09E492CCF271E11A2824829F5B3DF3F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43596.jpgsave_picture_43596.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2F449EDE81B2195085B3B625EC054F4D4409F833
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43597.jpgsave_picture_43597.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3F498D09109F5D616420096CFCE9D388DFE48030
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43598.jpgsave_picture_43598.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CE1E5F32115B2F4632EEBCA4F8EB92769B1672CF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43599.jpgsave_picture_43599.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Forts (2017) [Ru/Multi] (2.34/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43600.jpgsave_picture_43600.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:52E203B66D33A7FEDAF403DA7D76F4F35FE3B0AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43601.jpgsave_picture_43601.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:52E203B66D33A7FEDAF403DA7D76F4F35FE3B0AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43602.jpgsave_picture_43602.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:52E203B66D33A7FEDAF403DA7D76F4F35FE3B0AA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43603.jpgsave_picture_43603.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ VA - compilation musical kaleidoscope (2024) [MP3|320 Kbps] <Electronic, Instrum
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43604.jpgsave_picture_43604.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:B747468307EC7820175B1AA41D5D052C1F4505F8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43605.jpgsave_picture_43605.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:CBB68EBB551689899FA5602027BFBD5CCE58616C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43606.jpgsave_picture_43606.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Telegram Desktop 5.5.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43607.jpgsave_picture_43607.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:0B258E4569D75874927D0333B9AF58E5C2097DD8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43608.jpgsave_picture_43608.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.0.56/dlc) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43609.jpgsave_picture_43609.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:141527882C344B55C16F2A8C7E70743ACA3A5D19
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43610.jpgsave_picture_43610.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:48B415774EE95A14F00CE066BE4642E7378DE0F5
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43611.jpgsave_picture_43611.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Mob kara Hajimaru Tansaku Eiyuutan / A Nobody's Way Up to an Exploration Hero / 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43612.jpgsave_picture_43612.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Far Cry (2004) [Ru/En] (1.04) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43613.jpgsave_picture_43613.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Boku no Tsuma wa Kanjou ga Nai | My Wife Has No Emotion | У моей жены �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43614.jpgsave_picture_43614.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43615.jpgsave_picture_43615.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:8411E7CE917A5365C3804ED227598C9098375237
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43616.jpgsave_picture_43616.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:6C7D85DEA470E9BA3A7B132B2B6C3510F2CD4B56
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43617.jpgsave_picture_43617.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Stardiver (2024) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43618.jpgsave_picture_43618.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:57F03B46E2DB403B546B423AB2EB9731179CA6FE
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43619.jpgsave_picture_43619.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:DA3EA9781E660FFA39044ACD3A4EDEFC5E8F4A1D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43620.jpgsave_picture_43620.jpg" />
 </div>
 
 

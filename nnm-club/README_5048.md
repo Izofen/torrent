@@ -6,7 +6,7 @@ Kingdom Rush: Frontiers (2016) [Ru/Multi] (1.4.4) SteamRip R.G. Игроманы
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157847.jpgsave_picture_157847.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1EB28764339D1F383A2BC4BBCD9A2053C5190D46
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157849.jpgsave_picture_157849.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Privacy Eraser Free 4.57.5 Build 3336 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157850.jpgsave_picture_157850.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:FBDFCCF6566759208CD0411CD62B4CB4A87B8179
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157851.jpgsave_picture_157851.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A510C3DD8DA07CEEDC07158E78FF1ECBFB3C2DE9
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157852.jpgsave_picture_157852.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Django Reinhardt - 1947 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157853.jpgsave_picture_157853.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:5CA50B69916341DF5DD0BE92F455E1357A697A2B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157854.jpgsave_picture_157854.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:3B3F7BF0169DEEF047C3DA971A95CE2B96C0CDF0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157855.jpgsave_picture_157855.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:A5E2EECFF449A4FCFB4636CB1D4C20D6D3EDE71C
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157856.jpgsave_picture_157856.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Roxy Music – Avalon (2003) 1982 [DTS 5.1|44.1/16|image +.cue|SACD] <Art Rock, 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157857.jpgsave_picture_157857.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:9F1CC44F4A4D57A9E3A9F5AAA8A918F34AF096CE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157859.jpgsave_picture_157859.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:0EA8FCDECD51A83F61A741D5DD859BF20341C9CE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157860.jpgsave_picture_157860.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:F391EB7882B036C764D1642F833866087115FDD6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157861.jpgsave_picture_157861.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Lane 8 - Winter 2019 Mixtape 2019-12-17 [MP3|320 Kbps] <Deep House, Progressive 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157862.jpgsave_picture_157862.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ ZveroБой (Зверобой) - Акустика (2009) [MP3|256 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157863.jpgsave_picture_157863.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:69DAF2FA9784BDC8AD6B9C120F22BC4F0E426892
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157865.jpgsave_picture_157865.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:195B80713BBD2A384BE6AC71F1D873224C962E65
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157867.jpgsave_picture_157867.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:E98AFD6717D6B39472F0579A32471777684312D9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157868.jpgsave_picture_157868.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Kate Nord - Compass to Your Heart's Desire (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157869.jpgsave_picture_157869.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Polarr Photo Editor Pro 5.10.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157871.jpgsave_picture_157871.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:003FEA33FB5095B9F96EA54CF4FD6CC4E94006F2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157872.jpgsave_picture_157872.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Dark Amsterdam Trance (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157876.jpgsave_picture_157876.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:27338AFCA7F32FA2E0FF72422D45DB49820EB9E1
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157877.jpgsave_picture_157877.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:AA4E734F5E788826C66A57E044C65E20985BD30F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157878.jpgsave_picture_157878.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Finder Windows 1.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157879.jpgsave_picture_157879.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Hydra 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157881.jpgsave_picture_157881.jpg" />
 </div>
 
 

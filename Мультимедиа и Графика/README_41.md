@@ -6,7 +6,7 @@ Kush Audio - LG Drive 1.0.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183725.jpgsave_picture_183725.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ TAL Software - TAL-Reverb-4 4.0.2 VST, VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183793.jpgsave_picture_183793.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Tone2 - Synth Collection 11.2022 STANDALONE, VSTi, VSTi3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184234.jpgsave_picture_184234.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Pepto Audio - Black Metal Keys 2.9.1 VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185373.jpgsave_picture_185373.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Toontrack - EZdrummer 2.1.8 (build 21073) Standalone, VSTi [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185768.jpgsave_picture_185768.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ WonderFox DVD Ripper Pro 24.0 RePack (& Portable) by elchupacabra [En/Jp]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185805.jpgsave_picture_185805.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ WonderFox DVD Video Converter 31.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185807.jpgsave_picture_185807.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ CoolUtils Total Audio Converter 6.1.0.286 RePack (& Portable) by elchupacabra [M
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186075.jpgsave_picture_186075.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ MakeMKV 1.18.2 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186078.jpgsave_picture_186078.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ ON1 Photo RAW MAX 2026 20.0.5.17637 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186116.jpgsave_picture_186116.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Fast Video Cutter Joiner 6.9.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186117.jpgsave_picture_186117.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Freemake Video Converter 5.0.0.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186119.jpgsave_picture_186119.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PotPlayer 251017 (1.7.22628) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186120.jpgsave_picture_186120.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Marvelous Designer 12 Personal 7.2.209.43690 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186154.jpgsave_picture_186154.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Upscayl 2.8.6 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186178.jpgsave_picture_186178.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Winxvideo AI 4.3 (x64) RePack (& Portable) by elchupacabra (DC 13.10.2025) [Mult
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186319.jpgsave_picture_186319.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CoolUtils Total Movie Converter 4.1.0.72 RePack (& Portable) by elchupacabra [Mu
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186336.jpgsave_picture_186336.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Adobe Illustrator 2023 (27.0.1.620) Portable by XpucT [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186636.jpgsave_picture_186636.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ AIR Music Technology - Studio Strings 1.1.0  Standalone, VSTi, VSTi3, AAX (x64) 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186803.jpgsave_picture_186803.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ AIR Music Technology - Stage Piano 1.1.0  Standalone, VSTi, VSTi3, AAX (x64) ReP
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186812.jpgsave_picture_186812.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ AIR Music Technology - TubeSynth 1.1.0  Standalone, VSTi, VSTi3, AAX (x64) RePac
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186873.jpgsave_picture_186873.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ ON1 Effects 2023 17.0.2.13102 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187001.jpgsave_picture_187001.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ ON1 NoNoise AI 2023 17.0.1.12976 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187026.jpgsave_picture_187026.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ ON1 HDR 2023 17.0.2.13102 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187027.jpgsave_picture_187027.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ AIR Music Technology - Hype 1.1.0 Standalone, VSTi, VSTi3, AAX (x64) RePack by R
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187143.jpgsave_picture_187143.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Rob Papen - BLUE III 1.0.0 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187167.jpgsave_picture_187167.jpg" />
 </div>
 
 

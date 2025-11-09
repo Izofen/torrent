@@ -6,7 +6,7 @@ John Grant - The Art of the Lie (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107929.jpgsave_picture_107929.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ T-Dow - Vol. 2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107930.jpgsave_picture_107930.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ebba Bergkvist & The Flat Tire Band - Four Wings (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107931.jpgsave_picture_107931.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ensiferum - Two Paths (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107932.jpgsave_picture_107932.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Walt Disco - The Warping (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107933.jpgsave_picture_107933.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ensiferum - Unsung Heroes (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107934.jpgsave_picture_107934.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ensiferum - Victory Songs (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107935.jpgsave_picture_107935.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Amar Sundy - Homme Bleu (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107936.jpgsave_picture_107936.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Anders Osborne - Picasso's Villa (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ame
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107937.jpgsave_picture_107937.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Campbell & Johnston's Black Market Band - Paisley Hearts (2024) [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107938.jpgsave_picture_107938.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ensiferum - Victory Songs / From Afar (2017) Compilation [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107939.jpgsave_picture_107939.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Ensiferum - From Afar (2009) Released, 2010, Drakkar Records [FLAC|24/192|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107943.jpgsave_picture_107943.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Aetherian - Studio Albums (3 releases) (2015-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107946.jpgsave_picture_107946.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Black Country Communion - V (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107947.jpgsave_picture_107947.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Adrienne Pauly - Et Comment Tu Trouves Que J'me Trouve ? (2024) [FLAC 24/48|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107949.jpgsave_picture_107949.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Max Greger - Wirtschaftswunder-Stars: Ein Leben Mit Musik (2024) [FLAC 24/48|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107951.jpgsave_picture_107951.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Marcela de Campos - Dimmed Lights (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107955.jpgsave_picture_107955.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ The Andy MacFarlane Two Man Orchestr - My Old Suitcase (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107956.jpgsave_picture_107956.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Jesse Dayton - The Hard Way Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107958.jpgsave_picture_107958.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Paul McCartney & Wings - One Hand Clapping Sessions [Live Studio Sessions 1974 /
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107961.jpgsave_picture_107961.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Axel Rudi Pell - Risen Symbol (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107968.jpgsave_picture_107968.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Fuzziliers - Sail the Seven Seas (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <psy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107974.jpgsave_picture_107974.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Ensiferum - Ensiferum (2001) Remastered, 2014, Blood Music [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107978.jpgsave_picture_107978.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Bab L' Bluz - Swaken (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <psychedelic r
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107979.jpgsave_picture_107979.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Umbra Vitae - Light Of Death (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metalco
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107981.jpgsave_picture_107981.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Wildstreet - IV (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107985.jpgsave_picture_107985.jpg" />
 </div>
 
 

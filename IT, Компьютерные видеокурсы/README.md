@@ -6,7 +6,7 @@ Udemy, Joseph Heidari | Understanding Node.js: Core Concepts (2025) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_619.jpgsave_picture_619.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rebrain, Александр Марченко, Артемий Дубовой | Gr
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1083.jpgsave_picture_1083.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ igoroutine.courses, Игорь Панасюк | The Nature of Concurrency - ку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1207.jpgsave_picture_1207.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:FD4F7B268D1B08A03AD20B1B644262FF5B87CB33
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1760.jpgsave_picture_1760.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:4826C108E0D6A406A730D3D579DA43CECAF9B309
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2716.jpgsave_picture_2716.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Stepik, Даниил Беликов | Первая работа в IT. Стра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2827.jpgsave_picture_2827.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:0F81C270DBDC898EB4FC2D8E8EA6625E9CF7BFFD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2844.jpgsave_picture_2844.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:5C65B45F524CFAA350BB73A3D45DD5BDDC9E9A0D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2878.jpgsave_picture_2878.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Udemy, YouAccel Training | Learn to Host Multiple Domains on one Virtual Server 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3373.jpgsave_picture_3373.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:79FA7D19E1195BCE276CB069CC7E954D6CFDBF9F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3662.jpgsave_picture_3662.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:BB69A385AAEE66095D792A9E866A8A63E1A0423E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4194.jpgsave_picture_4194.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Infostart, Владимир Лушников | Новое в 1С: Докумен
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4619.jpgsave_picture_4619.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Purpleschool, Антон Ларичев | Vue.js 3, Vue Router и Pinia (2025) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4713.jpgsave_picture_4713.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:A17CBA877F648C42CDC4C4D245D86BDFA4F7B09B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5262.jpgsave_picture_5262.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Purpleschool, Антон Ларичев | Nuxt - fullstack Vue фреймвор�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5426.jpgsave_picture_5426.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Purpleschool, Антон Ларичев | Feature-Sliced Design (2025) WEB-DL [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5436.jpgsave_picture_5436.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:EA707A0F40314F64122DF57DAFF9A6D566A67C45
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5731.jpgsave_picture_5731.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:A68C02D311D3B6748986883D27F182F24B5279D6
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5890.jpgsave_picture_5890.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Rush Academy, Евгений Милованцев, Игорь Бурдуков |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6185.jpgsave_picture_6185.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Udemy, Artsiom Rusau | Тестировщик с нуля 2024. Web/Mobile, Post
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7399.jpgsave_picture_7399.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ StasPiter | Программирование на Delphi в Rad Studio (2015) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7541.jpgsave_picture_7541.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:FCE79AFD5715904710652B14D43E1F3A60452B8C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7559.jpgsave_picture_7559.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:3750016E7C801C75769638F7F491F8E9C1DC64A3
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7750.jpgsave_picture_7750.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Computer Science Center | Программирование на Rust (2019) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7775.jpgsave_picture_7775.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Alexander Semenko | Вся необходимая база по Assembler (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7802.jpgsave_picture_7802.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:A1604A34D6CE860744B950531F05AF72DC0EDF1C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7809.jpgsave_picture_7809.jpg" />
 </div>
 
 

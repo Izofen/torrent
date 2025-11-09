@@ -6,7 +6,7 @@ Johnny Letman Quartet & Quintet - The Four Faces Of Johnny (1959 - 1960) 2020, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139510.jpgsave_picture_139510.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:9171AD9A664BC8188B17376867FB017AF7982F77
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139511.jpgsave_picture_139511.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Russian рэп Vol. 4 (2012) [MP3|256 кб/с]<Rap,Hip-hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139512.jpgsave_picture_139512.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ magnet:?xt=urn:btih:F1794334DB3A218BE41B094263BCAC11D05738B3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139515.jpgsave_picture_139515.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:44C9A3ED07E3C0640FE20C717725B22BCB87BC7C
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139516.jpgsave_picture_139516.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Aldo Romano' New Blood - Plays "The Connection" (2013) Dreyfus Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139517.jpgsave_picture_139517.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:AEE0F081B1FEAAFF1DB0D11C34DC0E5D4DFAEF79
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139518.jpgsave_picture_139518.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VideoHive - christmas slideshow - 3509654 [AEP]
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139520.jpgsave_picture_139520.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:646996CD968FC4ECBC568FAD664E29659F68C250
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139521.jpgsave_picture_139521.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:646996CD968FC4ECBC568FAD664E29659F68C250
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139523.jpgsave_picture_139523.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:318D247DB7B031F74002C091AD44FACE02A3B45F
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139524.jpgsave_picture_139524.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:22657B1251673A956DCFC07227A2A467B301C69C
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139525.jpgsave_picture_139525.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:E6B084AF56BE4567CB623FA78A38384EDC7CD3E4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139526.jpgsave_picture_139526.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:50FF43345A094856A43D1FD68818F1592BFACEFC
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139527.jpgsave_picture_139527.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:B88738B3402683496E6777B8AFD53B40DF362B67
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139528.jpgsave_picture_139528.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ BestReminder v2018.12.29.11 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139529.jpgsave_picture_139529.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Relax Culture, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139530.jpgsave_picture_139530.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:F057D3993BD8457CDA78B524002E083190778E23
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139532.jpgsave_picture_139532.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:149FF53C38849235DF9FE970DBD8FEC67E3E045E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139533.jpgsave_picture_139533.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:D8E2D3604C7889E7C1D356F934EF123F35CA86B6
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139534.jpgsave_picture_139534.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Firedance (David Arkenstone) - Spirit of the Drum (2008) [FLAC|Lossless]<New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139535.jpgsave_picture_139535.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:8F2D09E006FA67FEC743E178327FAE1AE5CB8325
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139536.jpgsave_picture_139536.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - Beatport Psy Trance: Electro Sound Pack #215 (2020) [MP3|320 Kbps] <Psy, Go
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139538.jpgsave_picture_139538.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:65990FC6D4B6E8B158D6D4009C75742C2E86BD0D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139539.jpgsave_picture_139539.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:E44CCF7BB8D364EB2E86D132F2C696BD38C27A2E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139540.jpgsave_picture_139540.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:95381D3C65F8C6E56A8F16FDAC42FAB1890A78FE
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139541.jpgsave_picture_139541.jpg" />
 </div>
 
 

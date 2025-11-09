@@ -6,7 +6,7 @@
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133719.jpgsave_picture_133719.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Dan Nimmer Trio - Modern Day Blues (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133722.jpgsave_picture_133722.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA - Донбасс 6 ''Свобода и Доблесть'' (2023) [MP3|320 Kbp
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133723.jpgsave_picture_133723.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ magnet:?xt=urn:btih:B8FFF6A4788583D47C64DAA17B128BB0F8F2CDD9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133725.jpgsave_picture_133725.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Music Folder Player Full 3.1.31 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133727.jpgsave_picture_133727.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Jeff Lang - Prepare Me Well (2006) [WavPack|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133728.jpgsave_picture_133728.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jeff Lang - Prepare Me Well (2006) [WavPack|Lossless]<Blues>
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133729.jpgsave_picture_133729.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ WinToUSB Technician 8.4 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133731.jpgsave_picture_133731.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ ToonMe 0.6.95 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133733.jpgsave_picture_133733.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ AnyBurn 6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133734.jpgsave_picture_133734.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:6B01D73F884F4D2556B4D66CC680D6DB75C6AAF0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133736.jpgsave_picture_133736.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Ableton Live Suite 12 Beta 12.0b20 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133737.jpgsave_picture_133737.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mirillis Action! 4.38.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133739.jpgsave_picture_133739.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:934E27AE7182A10B020D629EE75BF69B4622B191
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133740.jpgsave_picture_133740.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:FF02A02980700308F8E865BEBE966D68B2ECA100
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133741.jpgsave_picture_133741.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:A72FF04F39F9396E1927A1E65B3D18A42D46B9DD
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133743.jpgsave_picture_133743.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Peter Gabriel - i/o (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Art Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133744.jpgsave_picture_133744.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:4D7923DEAE6F54006CDA96F7F3723A33698ED8F4
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133745.jpgsave_picture_133745.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Glary Disk Explorer 6.0.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133746.jpgsave_picture_133746.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:98E345A6025122ED479B5BBD6DC5F1FE859FF939
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133747.jpgsave_picture_133747.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Affinity Photo 2 v.2.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133748.jpgsave_picture_133748.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:84E5B9A55644FC0AAFD97EF45AB2564B85902934
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133749.jpgsave_picture_133749.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Ella Trafova & David Goloshokin quartet - I Remember... (1998) [FLAC|Lossless]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133750.jpgsave_picture_133750.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Ella Trafova & David Goloshokin quartet - I Remember... (1998) [FLAC|Lossless]<J
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133751.jpgsave_picture_133751.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:37EFDDEB64CF418354868497E57C47675AC86CEA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133752.jpgsave_picture_133752.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:49029B900EA2792200C1B18DD296E0AAD919B94A
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133753.jpgsave_picture_133753.jpg" />
 </div>
 
 

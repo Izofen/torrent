@@ -6,7 +6,7 @@ VA - Rated Revisited Vol. 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41887.jpgsave_picture_41887.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mr.Kitty - Unreal (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, D
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41912.jpgsave_picture_41912.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Kontor Top Of The Clubs 2024.02 (2024) [MP3|~245 Kbps (V0)] <House, Club, P
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41995.jpgsave_picture_41995.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Yotto - Odd One Out Radio (001-017) (2024) [MP3|320 Kbps] <Progressive House, Me
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42035.jpgsave_picture_42035.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Folktronic & Organic (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42193.jpgsave_picture_42193.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - This Is Uplifting Trance Vol. 1 (2024) [MP3|320 Kbps] <Trance, Uplifting Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42198.jpgsave_picture_42198.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Cafe Oriental (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42199.jpgsave_picture_42199.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Arab Lounge Grooves (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42200.jpgsave_picture_42200.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Armin van Buuren - A State Of Trance 1192 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42206.jpgsave_picture_42206.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Vocal Trance Classix Vol. 1 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42224.jpgsave_picture_42224.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:682B2615C1D3DC642541C08CDC95DD428E9D9EA8
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42227.jpgsave_picture_42227.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Kraftwerk - The Fairfield Four (UK Broadcast 1975) (2022) [FLAC|Lossless|WEB-DL|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42288.jpgsave_picture_42288.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Deep-House Devotion, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42292.jpgsave_picture_42292.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Siri Umann, Aradia Voice - Arabic Deep House (2024) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42401.jpgsave_picture_42401.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Best Relaxing Chillout & Lounge Music (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42403.jpgsave_picture_42403.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Arabic Ethnic Deep House Mix (2021) [FLAC|Lossless|WEB-DL|tracks] <House, F
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42404.jpgsave_picture_42404.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Arabic Ethnic Deep House Mix 2022 [FLAC|Lossless|WEB-DL|tracks] <House, Fol
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42499.jpgsave_picture_42499.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Calm Horizons 2: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42501.jpgsave_picture_42501.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Armada Music - ADE 2024 (2024) [MP3|320 Kbps] <House, Progressive House, Te
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42505.jpgsave_picture_42505.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Summer Fresh 001 (2024) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42509.jpgsave_picture_42509.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Arabic Ethnic Deep House Mix 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Fol
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42536.jpgsave_picture_42536.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Arabic Ethnic Deep House Mix 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Fol
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42605.jpgsave_picture_42605.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Trance Emotions, Vol 13 (Best Of EDM Playlist Compilation 2025) (2024) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42728.jpgsave_picture_42728.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ V.A. - Cafe del Mar XXX (Volumen Treinta) (2024) 2CD [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42749.jpgsave_picture_42749.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Eguana - Future Visions (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42826.jpgsave_picture_42826.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Progressive Beats (2024) [MP3|320 Kbps] <Progressive House, Melodic House &
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42927.jpgsave_picture_42927.jpg" />
 </div>
 
 

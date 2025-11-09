@@ -6,7 +6,7 @@ Angra - Cycles Of Pain (2023) [FLAC|Lossless|image + .cue] <Power Metal, Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65438.jpgsave_picture_65438.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wytch Hazel - V Lamentations (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65439.jpgsave_picture_65439.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dimoria - Mass Of Messiah (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65440.jpgsave_picture_65440.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:68225BC3E21DF9F951B1CBEE6C5063795F4723E8
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65441.jpgsave_picture_65441.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Enforced - Kill Grid (2021) [FLAC|Lossless|image + .cue] <Death Metal, Thrash>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65442.jpgsave_picture_65442.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:4DF547430C7C67B848698DA1C7A41268820A4624
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65443.jpgsave_picture_65443.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ The Brains - Crazy Monster (2025) [FLAC|Lossless|WEB-DL|tracks] <punk rock, psyc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65444.jpgsave_picture_65444.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Presto Ballet - Dreamentia (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65445.jpgsave_picture_65445.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ The Red Norvo Trio - The Savoy Sessions (1951) 1995, Savoy Jazz [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65446.jpgsave_picture_65446.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Gotteshorn - Augen Zu (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Rock pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65447.jpgsave_picture_65447.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Thomas Borgeback - Born66 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65448.jpgsave_picture_65448.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Cardio Killer - Mayhem Punk Rap (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65449.jpgsave_picture_65449.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Higher Power - There's Love In This World If You Want It (2025) [FLAC 24/88.2|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65450.jpgsave_picture_65450.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:5E5FFDB75F0DD04732E402048271EFA8096FE34F
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65451.jpgsave_picture_65451.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:B59426554CCE5E0987D83501C409B92D0EF40C94
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65452.jpgsave_picture_65452.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Bosphorus Night - Heart Of Your World (2025) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65453.jpgsave_picture_65453.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Neezi - Replica (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronicore, Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65454.jpgsave_picture_65454.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:4F644801808ED537411B51EE01B76E08432E269A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65455.jpgsave_picture_65455.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:1C763B03FE50940EB37D04DE3F601DCB65ED7B03
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65456.jpgsave_picture_65456.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:58B0060D630CDCD200A897FCFB9F0056CF3C5D5A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65457.jpgsave_picture_65457.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Grimorio - On The Path Of The Morning Star (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65458.jpgsave_picture_65458.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Then Comes The Night - Metal World (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65459.jpgsave_picture_65459.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:62D5E0A254F3F22736ECFB68B512A2ABF459A104
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65460.jpgsave_picture_65460.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Jeremiah Kane - Back For More (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Retr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65461.jpgsave_picture_65461.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Trigger - Second Round (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65462.jpgsave_picture_65462.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Ceremony - Solitary Bleed (2025) [FLAC|Lossless|WEB-DL|tracks] <Modern Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65463.jpgsave_picture_65463.jpg" />
 </div>
 
 

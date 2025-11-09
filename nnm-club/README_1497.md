@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39277.jpgsave_picture_39277.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cats In Space - Time Machine (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39278.jpgsave_picture_39278.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Claire Martin - Almost In Your Arms (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39279.jpgsave_picture_39279.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E6E849BB9BC114C35E50889F7779ABC89B6B777A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39280.jpgsave_picture_39280.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Armin van Buuren - A State Of Trance 1196 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39281.jpgsave_picture_39281.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Cats In Space - Time Machine (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39282.jpgsave_picture_39282.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mindless Sinner - Metal Merchants (2024) [FLAC|Lossless|WEB-DL|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39283.jpgsave_picture_39283.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Pounder - Thunderforged (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39284.jpgsave_picture_39284.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Lee Konitz - In Paris And London (1995) Hobby & Work [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39285.jpgsave_picture_39285.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:61C42A917C6B2479738C84E4CB384D1D110EF7E0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39286.jpgsave_picture_39286.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ellen Andrea Wang - Closeness II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Con
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39287.jpgsave_picture_39287.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:F83DDDBAE426266AC5DB0140375331E3A3B0A066
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39288.jpgsave_picture_39288.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:83B2DE50097A961962B9B995F8A00FFF7797A8A2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39289.jpgsave_picture_39289.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:DD660A062DE13A18A336164DA9FD82D7C4875A2D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39290.jpgsave_picture_39290.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:824A5534588D6D9B94C68AB09B64DAB56EBAC7F9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39291.jpgsave_picture_39291.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Whitesnake - Into the Light: The Solo Albums (2024) Reissue, Remastered, Remix, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39292.jpgsave_picture_39292.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Desktop Calendar 3.18.208.6728 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39293.jpgsave_picture_39293.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:2F9D5D8B99B97CB3A4D559594F36F76E04F0D533
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39294.jpgsave_picture_39294.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - A Romantic World (2024) [MP3|320 Kbps] <Pop, Rock, Ballad, Lyric>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39295.jpgsave_picture_39295.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:2EBE8901582206CD5784F9A3E5FD0A0202AE01D2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39296.jpgsave_picture_39296.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Boney M - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39297.jpgsave_picture_39297.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:68AEC08EBE5228081DD130924E10438573F32BA7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39298.jpgsave_picture_39298.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Joplin 3.1.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39299.jpgsave_picture_39299.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:FEA078609C16E5AB2B762A846793B12CF316EDD3
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39300.jpgsave_picture_39300.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Music News For Forum vol.035 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39301.jpgsave_picture_39301.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ JetBrains RustRover 2024.2.4 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39302.jpgsave_picture_39302.jpg" />
 </div>
 
 

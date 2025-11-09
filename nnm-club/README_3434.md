@@ -6,7 +6,7 @@ MAMA RUSSIA - Любовь, комсомол и роботы (2024) [FLAC|Lossle
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109645.jpgsave_picture_109645.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B1817606275C019CFABEAFAAD3D3138E5B56C13C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109646.jpgsave_picture_109646.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Fort Firewall 3.12.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109647.jpgsave_picture_109647.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Soul, Jazz & Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109648.jpgsave_picture_109648.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Plugin Alliance & Dmitry Sches - DS Thorn 1.3.3 VSTi, VSTi 3, AAX (x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109649.jpgsave_picture_109649.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ PotPlayer 240510 (1.7.22227) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109650.jpgsave_picture_109650.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:875683EFDDD6A55119566AE5B96400762B38F7BF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109651.jpgsave_picture_109651.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:B47CDFB13D11C01216750E0758598BF4851C72F3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109652.jpgsave_picture_109652.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Q-Dir 11.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109653.jpgsave_picture_109653.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ YT Downloader 9.7.17 (Repack & Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109654.jpgsave_picture_109654.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:EAFEB4D6056FA6DCFA4BD59943B7986A60F0EE9E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109655.jpgsave_picture_109655.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - Peaceful Resort Experice: Urban Chillout Music (2024) [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109656.jpgsave_picture_109656.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:8759FFAF7A0E6794B1ACA34FB76007849EB5FB80
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109657.jpgsave_picture_109657.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Brave Browser 1.65.132 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109658.jpgsave_picture_109658.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:DA79A0A2EFE8D6814AE861F14A49654735654FC8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109659.jpgsave_picture_109659.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ The Reverend Shawn Amos - Soul Brother No. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109660.jpgsave_picture_109660.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Kenny Barron - Wanton Spirit (1994) Verve [FLAC|Lossless|image + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109661.jpgsave_picture_109661.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Neil Stout - Older and Bolder (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109662.jpgsave_picture_109662.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ The Sidekicks - Homemade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109663.jpgsave_picture_109663.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:4E49BD6C3AFDD52867125D723B3021F35F8A7906
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109664.jpgsave_picture_109664.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Mason Smart - The Third Rail (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109665.jpgsave_picture_109665.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Burial Rot - Do Not Desecrate the Sleep of the Dead (2020) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109666.jpgsave_picture_109666.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Ironsmith - IRONSMITH (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109667.jpgsave_picture_109667.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ The Hazytones - Wild Fever (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109668.jpgsave_picture_109668.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ George Shearing & Brian Torff - Blues Alley Jazz (1979) 1989, Concord Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109669.jpgsave_picture_109669.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Jimmy Kells - Vacation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109670.jpgsave_picture_109670.jpg" />
 </div>
 
 

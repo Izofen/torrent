@@ -6,7 +6,7 @@ George Freeman - The Good Life (2023) [FLAC|Lossless|tracks + .cue] <Hard Bop, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179656.jpgsave_picture_179656.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:307186EAB3A820B814D6C77A62299B9529F7D1F0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179658.jpgsave_picture_179658.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A68BF523B7ABDC3A04E1B41F71880E4A8FF15F83
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179661.jpgsave_picture_179661.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:75FEA505E09FC38CA1ED5BABE4FFBB04A87695CE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179662.jpgsave_picture_179662.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Yussef Dayes - Black Classical Music (2023) [FLAC|Lossless|tracks + .cue] <Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179665.jpgsave_picture_179665.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:ACC38C591A29F39795C914AF47BD32BC78427262
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179666.jpgsave_picture_179666.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Yqpy - Yqpy (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock, Electronic>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179669.jpgsave_picture_179669.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:8E0644A818F96394459E40D18D720BB772FBB0AC
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179670.jpgsave_picture_179670.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:DB46A7503E90673CDA8EC17ABB7429DFE0615970
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179672.jpgsave_picture_179672.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Relax Melodies Premium (Better Sleep) 20.22.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179673.jpgsave_picture_179673.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Mago De Oz - Ira Dei (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179676.jpgsave_picture_179676.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Simply Piano: Learn Piano Fast 7.7.6 Mod by youarefinished [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179678.jpgsave_picture_179678.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:90089E066264A338C651B771859226F74367282F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179680.jpgsave_picture_179680.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ John Coltrane With Eric Dolphy - Evenings At The Village Gate (1961) 2023, Impul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179682.jpgsave_picture_179682.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ WeatherPro: прогноз погоды 5.6.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179683.jpgsave_picture_179683.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:BD95B7E06864C04F72BE43DF8CFABFABC1E43808
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179685.jpgsave_picture_179685.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:4DF0FE5D5647C4A9BCB5EDDCF203C4815004F67F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179688.jpgsave_picture_179688.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:8BB8CB47BCCDB02DB7F6FD932E05AB93C9A5150A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179689.jpgsave_picture_179689.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:2CD89B33215675E7A790B9AAD8E3812E59C72DA7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179691.jpgsave_picture_179691.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Good Morning, Professor - Nymphaea (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179693.jpgsave_picture_179693.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ October Falls - The Plague of a Coming Age (2013) [FLAC|24/192|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179695.jpgsave_picture_179695.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ TIR - Молчи (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Rap Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179698.jpgsave_picture_179698.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Unheilig - Goldene Zeiten (2006) 2CD [FLAC|Lossless|image + .cue] <Industrial, G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179701.jpgsave_picture_179701.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Auslogics BoostSpeed 13.0.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179702.jpgsave_picture_179702.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ George Freeman - George Burns! (1999) Southport Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179704.jpgsave_picture_179704.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:D3803B3277D0BB09490D65E504F36DD8A91893E7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179706.jpgsave_picture_179706.jpg" />
 </div>
 
 

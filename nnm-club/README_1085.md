@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28561.jpgsave_picture_28561.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Google Chrome 133.0.6943.54 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28562.jpgsave_picture_28562.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:97DCB19786FC3ACFC768BC49D760DD780A1DA649
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28563.jpgsave_picture_28563.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7CD0FEAE363081B52ABC2020FED315E33843670B
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28564.jpgsave_picture_28564.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ RisohEditor 5.8.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28565.jpgsave_picture_28565.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Detective Club: Missing in the Fog / Детективный Клуб: Пропа
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28566.jpgsave_picture_28566.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:FD1358BDCD5A48A80336738F4512591458A0B8D9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28567.jpgsave_picture_28567.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:5EB7EE25D3CDBB2597547E1BA6D6194C68BC72EA
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28568.jpgsave_picture_28568.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Bloodhound Gang - Compilation (1995-2015) [MP3|320 Kbps] <Alternative, Comedy ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28569.jpgsave_picture_28569.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:86B11E20FFC9C485BAE652090A8AA82A669730A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28570.jpgsave_picture_28570.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:FC6780040B2BF4828A3347682F4485E33B948AD4
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28571.jpgsave_picture_28571.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Rainmeter 4.5.21.3816 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28572.jpgsave_picture_28572.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Dead Season (2024) [Ru/Multi] (build 15673615) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28573.jpgsave_picture_28573.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ RAM Saver Professional 25.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28574.jpgsave_picture_28574.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:F19B7EDE12C99C2CFDE3311E6FE4704982591B5F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28575.jpgsave_picture_28575.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/1080p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28576.jpgsave_picture_28576.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:429B20C1CA71712C502BB3A87252056099DF6DDB
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28577.jpgsave_picture_28577.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.21) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28578.jpgsave_picture_28578.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:344CC0CFC42E6A3794C34D28CD15150DFA26688A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28579.jpgsave_picture_28579.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:7A4360CA5C901296C344E63EB0F59094F489E51B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28580.jpgsave_picture_28580.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:0991DF7A6C90B287AC155EE60D80B4637D06A2AF
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28581.jpgsave_picture_28581.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Wise Care 365 Pro 7.1.1.694 RePack (& Portable) by elchupacabra (05.02.2025)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28582.jpgsave_picture_28582.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ BBC. Суперчувство / Суперчувства животных / Supe
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28583.jpgsave_picture_28583.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:74863B87CA9A18B6BDF59B3F061427E1F09D66E9
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28584.jpgsave_picture_28584.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:8C59CCDBBD2775B08B3FD5A4C6DBE8C9A956AFE5
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28585.jpgsave_picture_28585.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Hard Disk Sentinel PRO 6.20.7 Build 13391 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28586.jpgsave_picture_28586.jpg" />
 </div>
 
 

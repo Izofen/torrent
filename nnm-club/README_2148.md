@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56215.jpgsave_picture_56215.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1E17E307A613BB6D5521E8A16D5E16786BDA9B73
 >>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56216.jpgsave_picture_56216.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:A6037A7832E07CA61FA8EA03FCF0F04AE2BFE680
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56217.jpgsave_picture_56217.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:313E09CDF923F9A9A8EA944C7151609351057BF0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56218.jpgsave_picture_56218.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:C1F6816B148355F1B348EB2401220E7833F27D5E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56219.jpgsave_picture_56219.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:32FDF299E9CC777AB355E94BBA81514BDFE0BF3D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56220.jpgsave_picture_56220.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:45506B3EC708D0E53E1A5A18359E92903F2C5B42
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56221.jpgsave_picture_56221.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Def Leppard - 25 albums, 11 Singles, 8 Box sets, 124 CD (1980-2024) [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56222.jpgsave_picture_56222.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56223.jpgsave_picture_56223.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:D4DA08291001B9F654A7F3701A0C76BEE205C28C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56224.jpgsave_picture_56224.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:0105B222511BBD4A615181669F5A5687A61ECE41
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56225.jpgsave_picture_56225.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:3BC852BCB6CBF4BACBE6734940E676A87BB3423A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56226.jpgsave_picture_56226.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:7844E015366A5ADC9EB88CE04C6F76EAB5331E1D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56227.jpgsave_picture_56227.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:3BAE3CF64B57D604AB3B90F90293A4A5B72B3610
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56228.jpgsave_picture_56228.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Atlantis Word Processor 4.3.9.5 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56229.jpgsave_picture_56229.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:563A2C9772DE94C25E02A099D0041AB912425338
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56230.jpgsave_picture_56230.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Spotify Web-Portable by DVLZ 2.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56231.jpgsave_picture_56231.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:32012D4ED265CC815A98DF520FC4CE3DB4A13FF1
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56232.jpgsave_picture_56232.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:B53878444EF48C941FFDEBD83F17708B632B4584
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56233.jpgsave_picture_56233.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Music News vol.377 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56234.jpgsave_picture_56234.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:B1766E83D7CB8515AF923558D9C9E3743D1ACBBB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56235.jpgsave_picture_56235.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:EF06B6570613B1E4657A44AA6AEEE0AC72A1AD42
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56236.jpgsave_picture_56236.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:CA9C4B26774B96E0CE35A1DA8AB48EAA56407164
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56237.jpgsave_picture_56237.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:D8DA77CA5F75FA187A5FC4D188727579A264211A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56238.jpgsave_picture_56238.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:BD9A3F3B354CFF5C0B400EFC3D68EA62F5124CEA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56239.jpgsave_picture_56239.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Erotica, Ladies Jazz Group - Sexy Vocal Jazz (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56240.jpgsave_picture_56240.jpg" />
 </div>
 
 

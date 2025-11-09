@@ -6,7 +6,7 @@ OBS Studio 32.0.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250796.jpgsave_picture_250796.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Duplicate Cleaner Pro 5.26.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250803.jpgsave_picture_250803.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ MediaInfo 25.10 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250814.jpgsave_picture_250814.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Chromium 142.0.7444.135 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250815.jpgsave_picture_250815.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ OneCommander Pro 3.103.0.0 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250852.jpgsave_picture_250852.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ O&O Defrag Professional + Server 30.5 Build 1201 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250891.jpgsave_picture_250891.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 29.10.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251228.jpgsave_picture_251228.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Process Lasso Pro 16.1.0.46 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251686.jpgsave_picture_251686.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Advanced Renamer 4.19 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251690.jpgsave_picture_251690.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ YT Downloader 9.18.0 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251692.jpgsave_picture_251692.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ YT Downloader 9.18.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251710.jpgsave_picture_251710.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:8BAB450F93E154F65350102068FCC411FBD11F4D
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251711.jpgsave_picture_251711.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Process Lasso Pro 16.1.0.46 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251712.jpgsave_picture_251712.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Adobe Acrobat Pro 2025.001.20844 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251729.jpgsave_picture_251729.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Quick Wallpaper Pro 1.0.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251740.jpgsave_picture_251740.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Any Video Downloader Pro 9.7.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251779.jpgsave_picture_251779.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Wise Program Uninstaller 3.2.7.271 RePack (& portable) by elchupacabra [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251783.jpgsave_picture_251783.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Wise Care 365 Pro 7.3.2.716 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251785.jpgsave_picture_251785.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ PDF-XChange Editor Plus 10.7.5.403 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251791.jpgsave_picture_251791.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ PDF-XChange PRO 10.7.5.403 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251801.jpgsave_picture_251801.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Scanner 2.13 Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251928.jpgsave_picture_251928.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ant Download Manager 2.16.2 Build 91828 (91829) + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251947.jpgsave_picture_251947.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ WinDirStat 1.1.2.80 [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251998.jpgsave_picture_251998.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Acronis True Image WD Edition 27.0.1.39676 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252132.jpgsave_picture_252132.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ TeamViewer 15.40.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252155.jpgsave_picture_252155.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VueScan Pro 9.8.49 (x64) [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252267.jpgsave_picture_252267.jpg" />
 </div>
 
 

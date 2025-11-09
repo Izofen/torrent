@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204924.jpgsave_picture_204924.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Jose Moreno | Blender & Substance - Modeling and Texturing Videogame Prop
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204925.jpgsave_picture_204925.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:BDA46F046FE9F693E9FC9C92E5C501F642C1CCD8
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204926.jpgsave_picture_204926.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ O’Reilly, Valaxy Technologies | DevOps Complete Course (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204927.jpgsave_picture_204927.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Seven Ravens - After The Storm (2023) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204928.jpgsave_picture_204928.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:2488B94D7E65F8860DF4E4650C463DB4A436205A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204929.jpgsave_picture_204929.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:FC95D19C7B846378B96392DF74031DE67DCB81AD
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204930.jpgsave_picture_204930.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:EE143A8FAE1BDE770F6420E5C5D7F8E5E7956573
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204931.jpgsave_picture_204931.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:2FD7768E6AF9C29EBDEEEC1C618EF96F74B7041C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204932.jpgsave_picture_204932.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Metalocalypse: Dethklok - Dethalbum IV (2023) [MP3|320 Kbps] <Melodic Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204933.jpgsave_picture_204933.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Udemy, Ali Ncir | Blender 2.8 and Substance Painter - 3D Modeling Game Assets (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204934.jpgsave_picture_204934.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Metalocalypse: Dethklok - Dethalbum IV (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204935.jpgsave_picture_204935.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:03280930B4396DABD0105A4BCFC633B850D37D64
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204936.jpgsave_picture_204936.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Allavsoft Video Downloader Converter 3.25.8.8624 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204937.jpgsave_picture_204937.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:BE7A34CEE3336CBFE09F697BD166B127C4CEB738
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204938.jpgsave_picture_204938.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:09E51BAAC77EC7033A7E8ACF08A43D076AA317AB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204939.jpgsave_picture_204939.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Steeldown - I Don’t Care What Your Favourite Dinosaur Is (2023) [FLAC|Lossless
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204940.jpgsave_picture_204940.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Hard Disk Sentinel PRO 6.01.6 Build 12540 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204941.jpgsave_picture_204941.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:98152088F32CFFB8C37E9C736978203330050952
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204942.jpgsave_picture_204942.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Pyramaze - Bloodlines (2023) [FLAC|Lossless|image + .cue] <Power Metal, Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204943.jpgsave_picture_204943.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:F571D7F24DA364B463FAAD6E34B8C4A8EE754E02
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204945.jpgsave_picture_204945.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:BC7267BBB110CB0163C9853E0E7988D1BA2FCDD9
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204946.jpgsave_picture_204946.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:27DA7079318AC0B3CD9AD0910F1B5BC247246F7B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204947.jpgsave_picture_204947.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:5C72D96DB31C9254C3F6AE95B9B3D1EB6F8E7982
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204948.jpgsave_picture_204948.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:67CC191F1D40023414AD69304011DDA78B9FE3EB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204949.jpgsave_picture_204949.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:6ABA8698E70817F293032F7CA47E7360181F39E3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204950.jpgsave_picture_204950.jpg" />
 </div>
 
 

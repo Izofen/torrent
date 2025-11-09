@@ -6,7 +6,7 @@ CyberCorp (2024) [Ru/Multi] (1.03) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8161.jpgsave_picture_8161.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1.06b) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8179.jpgsave_picture_8179.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.02.1/dlc) Repack Let'sРlay [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8334.jpgsave_picture_8334.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.23477) Repack Let'sРl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8592.jpgsave_picture_8592.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8720.jpgsave_picture_8720.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The RPG (2025) [Ru/Multi] (1.001/1.004) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8726.jpgsave_picture_8726.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Hell Clock (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8728.jpgsave_picture_8728.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Koboo: The Tree Spirit (2024) [En] (1.02) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8809.jpgsave_picture_8809.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8881.jpgsave_picture_8881.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Starfield (2023) [Ru/Multi] (1.15.222.0/dlc) Repack seleZen [Digital Premium Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8974.jpgsave_picture_8974.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Blood West (2023) [Ru/Multi] (4.5.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9080.jpgsave_picture_9080.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.1f/dlc) Repack Let'sРlay [Early Access
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9147.jpgsave_picture_9147.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ God Of Weapons (2023) [Ru/Multi] (1.5.65/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9165.jpgsave_picture_9165.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.1.229/dlc) Repack Let'sРl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9186.jpgsave_picture_9186.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Captain Bones: A Pirates Journey / Пиратское Путешествие (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9250.jpgsave_picture_9250.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Last Flame (2024) [Ru/Multi] (1.0.3 Hotfix 2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9265.jpgsave_picture_9265.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Shaman's Ark (2025) [Ru/Multi] (build 19404296) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9275.jpgsave_picture_9275.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Hellcard (2024) [Ru/Multi] (1.1.250731/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9375.jpgsave_picture_9375.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tyrant's Realm (2025) [Ru/Multi] (20250731 Build 19375382) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9458.jpgsave_picture_9458.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (360.1/dlc) Repack FitGirl [Ultimate Sur
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9505.jpgsave_picture_9505.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) Repack Want
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9511.jpgsave_picture_9511.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Achilles: Survivor (2025) [Ru/Multi] (1.0.9290) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9560.jpgsave_picture_9560.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Avowed (2025) [Ru/Multi] (1.5.1.0/dlc) Repack Let'sРlay [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9599.jpgsave_picture_9599.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57661/dlc) Repack Wanterlude [Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9707.jpgsave_picture_9707.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178111/dlc) Repack seleZen [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9886.jpgsave_picture_9886.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.20.2.s.de/dlc) Repack Let'sРlay [Complete
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9895.jpgsave_picture_9895.jpg" />
 </div>
 
 

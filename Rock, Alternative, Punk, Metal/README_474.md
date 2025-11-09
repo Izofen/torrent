@@ -6,7 +6,7 @@ Penumbra - Eden (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244861.jpgsave_picture_244861.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Hara - Survival Mode (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244870.jpgsave_picture_244870.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:1DB10699D6F7C5402B8D39CE804398D3E5A55F64
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244871.jpgsave_picture_244871.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Testament - The Very Best Of (2001) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244874.jpgsave_picture_244874.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:259224B53AFD5C643AD267259ABCFB50DFE6F5B5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244875.jpgsave_picture_244875.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Children Of The Reptile - Heavy Is The Head (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244877.jpgsave_picture_244877.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ IT - Live At ProgDreams VIII (2021) [MP3|320 Kbps] <Neo Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244878.jpgsave_picture_244878.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Hardline - Double Eclipse (1992) Japan [FLAC|Lossless|image + .cue] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244883.jpgsave_picture_244883.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Grafenberg Disciples - Breathing Through My Ears (2023) [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244902.jpgsave_picture_244902.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:B9D3346DAC8174F5F1D059995B73EE7D47A5AB46
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244903.jpgsave_picture_244903.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Avulsed - Stabwound Orgasm (1999) [FLAC|Lossless|image + .cue] <Brutal Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244905.jpgsave_picture_244905.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Verberis - Adumbration of the Veiled Logos (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244909.jpgsave_picture_244909.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:C11DAEEA08959ADD55865D34A9B411954945B474
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244917.jpgsave_picture_244917.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:AFC32D855B8AB2D3E17F662BB8C77C90433B7972
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244918.jpgsave_picture_244918.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Anette Olzon - Strong (2021) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244933.jpgsave_picture_244933.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Burning Witches - The Dark Tower (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244937.jpgsave_picture_244937.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Royal Hunt - Dystopia - Part II (2022) [FLAC|Lossless|image + .cue] <Melodic Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244944.jpgsave_picture_244944.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Motorbiscuit - Into The Fray (2014) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244945.jpgsave_picture_244945.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Enigma Division - The Enigma Division (2023) [MP3|320 Kbps] <Progressive Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244958.jpgsave_picture_244958.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:8F8018F5AB2EA5E9FC91B0DF5F7518BEE301C48E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244969.jpgsave_picture_244969.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:D21523474E4F4A24F0144026825AF72BE9A0676B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244973.jpgsave_picture_244973.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ DizzRoxx - Personal Message (2016) [MP3|320 Kbps] <Blues Rock, Hard Rock, Rock &
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244977.jpgsave_picture_244977.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Forces United - Hits From Metal Musicals vol.2 (2022) [FLAC|Lossless|image + .cu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244994.jpgsave_picture_244994.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Attick Demons - 5 Studio Albums (2000-2020) 5xCD [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244999.jpgsave_picture_244999.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Leprous - Aphelion (Tour Edition) (2023) 2xCD [FLAC 2.0|44/24|tracks|WEB-DL] <Pr
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245001.jpgsave_picture_245001.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Dead Original - Bought & Sold (2021) [FLAC|Lossless|WEB-DL|tracks] <Grunge>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245009.jpgsave_picture_245009.jpg" />
 </div>
 
 

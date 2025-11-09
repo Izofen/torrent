@@ -6,7 +6,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5580.jpgsave_picture_5580.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ W10Privacy 5.2.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5581.jpgsave_picture_5581.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DCE37620170D56DB8842A09B32C6996C37427629
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5582.jpgsave_picture_5582.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Opera One 121.0.5600.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5583.jpgsave_picture_5583.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Adobe Media Encoder 2025 25.4.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5584.jpgsave_picture_5584.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B9828F67E1E9288557E307A437CB7328B87ED793
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5585.jpgsave_picture_5585.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Forever Skies (2023) [Ru/Multi] (1.3/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5586.jpgsave_picture_5586.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C61D065E1E5853726E0F0C9517B418ED3C59EB84
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5587.jpgsave_picture_5587.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:B75F0C1551405141FAFE412922CCB8A5445E10CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5588.jpgsave_picture_5588.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ USB Safely Remove 7.1.2.1328 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5589.jpgsave_picture_5589.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Wise Care 365 Pro 7.2.8.709 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5590.jpgsave_picture_5590.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Echo Point Nova (2024) [Ru/Multi] (2.1) Repack FitGirl [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5591.jpgsave_picture_5591.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:3FC367710F39671413746ECB727645F46EE57D16
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5592.jpgsave_picture_5592.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Artis Impact (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5593.jpgsave_picture_5593.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (1.23.250612) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5594.jpgsave_picture_5594.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:A315176BD7E5F0E36D6776541D5DEA0BA3B0D9E6
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5595.jpgsave_picture_5595.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:4465954B59C9CD9BDEA8416CE558BDEBEA1F0F8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5596.jpgsave_picture_5596.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:120910E01150D29CC5BA251CAD426D3A9386281E
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5597.jpgsave_picture_5597.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ BROK the InvestiGator - The Brawl Bar (2025) [Ru/Multi] (1.5.3.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5598.jpgsave_picture_5598.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ OneCommander Pro 3.100.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5599.jpgsave_picture_5599.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ MAX Desktop 25.8.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5600.jpgsave_picture_5600.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:45A25D8EDBC7BF301523795E0D0E603D5845B385
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5601.jpgsave_picture_5601.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Topaz Video AI 7.1.3 RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5602.jpgsave_picture_5602.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:41028C8541088B7B1C8538536793F407FC3CF969
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5603.jpgsave_picture_5603.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:DFFD76E1AC32A0968F6F4373115018CDFF482E84
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5604.jpgsave_picture_5604.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:CA5F37BC8CF15318EC62FF1C608E1644317BD86F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5605.jpgsave_picture_5605.jpg" />
 </div>
 
 

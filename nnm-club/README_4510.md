@@ -6,7 +6,7 @@ News Explorer 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141070.jpgsave_picture_141070.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A75C782B737CD2C4C6524094FF71D323127A813B
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141071.jpgsave_picture_141071.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:9C33B4A326AE94CED2CF34F607E4A33FC9A398F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141072.jpgsave_picture_141072.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:9C33B4A326AE94CED2CF34F607E4A33FC9A398F8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141073.jpgsave_picture_141073.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:C3C61840FD520192EA3AF4BE3502EFD64A911024
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141074.jpgsave_picture_141074.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:9CCAF77D5AA954BF88E3D82664ABBA37E3395F3D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141075.jpgsave_picture_141075.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:CEF3EB5FA387E4873386F4B17E87E657E39FA2AE
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141077.jpgsave_picture_141077.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:6358912FA48E9E29584F839A41E2270E6D61CF33
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141078.jpgsave_picture_141078.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Gallery for VK 1.4 [Ru/En] (авторская раздача)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141080.jpgsave_picture_141080.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ JetBrains PyCharm Professional for Mac 2023.2.5 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141081.jpgsave_picture_141081.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Fortnite: Королевская Битва (2017) [Ru/Multi] (19.01) License (�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141082.jpgsave_picture_141082.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:930F51C06195503A660D44FAC9C1AE5537F78604
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141083.jpgsave_picture_141083.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:C682733B4BC5D09DBF0E12C69FB4B583A71B4D8F
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141086.jpgsave_picture_141086.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ DesktopSnowOK 5.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141087.jpgsave_picture_141087.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ S.T.A.L.K.E.R.: Lost Alpha Developer's Cut (2014) [Ru/En] (1.4005) Mod dez0wave
 >>50
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141088.jpgsave_picture_141088.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:3EA595E493537008998FCA625FB6AEF5ACA5691C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141089.jpgsave_picture_141089.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:AA9E5E757E744985DD78AD72C1EF333D9AD8A038
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141090.jpgsave_picture_141090.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:AA9E5E757E744985DD78AD72C1EF333D9AD8A038
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141092.jpgsave_picture_141092.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Wise Care 365 Pro 3.95.353 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141093.jpgsave_picture_141093.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Daylight (2014) [Ru/Multi] (Build 432586/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141095.jpgsave_picture_141095.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:0A1C5F49A5A0CF74DA66F2833BBE4AF2367FBEDE
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141097.jpgsave_picture_141097.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Pentatonix - Christmas Is Here! (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141098.jpgsave_picture_141098.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:637DC0AEEC6A26C06576070EFD41766968C1A1BA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141099.jpgsave_picture_141099.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:07326CE87B52E00ECD4F95E69631B7DA79A1BAFA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141100.jpgsave_picture_141100.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Zuma Star Wars / Зума: Звездные войны (2007) [En] (1.0) Unoffic
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141101.jpgsave_picture_141101.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:850A1D796FD8FE87941384955037B58BC47FC593
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141102.jpgsave_picture_141102.jpg" />
 </div>
 
 

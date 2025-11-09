@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102836.jpgsave_picture_102836.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:CFACB11E1BD5FD4B3209786655FE20129CEA9EC7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102837.jpgsave_picture_102837.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:74B182CCA72E1D8AD43DC95C03A68CE24E665BE9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102838.jpgsave_picture_102838.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ As I Lay Dying - Through Storms Ahead (2024) [FLAC|Lossless|image + .cue] <Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102839.jpgsave_picture_102839.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:E3015DB538E908C75DC4512E095378AFAD210C45
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102840.jpgsave_picture_102840.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Leo Sayer - 1992 (1992) Remastered, 2024, Crimson [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102841.jpgsave_picture_102841.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:DDF78EFCE0004BED62F5B6A13AA21663E70BEA04
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102842.jpgsave_picture_102842.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:16203CD8D12EF396F55BE092A89D9D16CA2284E5
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102843.jpgsave_picture_102843.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ ProCaillass - Electro Swing: Cat Songs, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102844.jpgsave_picture_102844.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:6E3E9F52365410376695FF64A92E2B9061C7C225
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102845.jpgsave_picture_102845.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Mors Subita - Studio Albums (5 releases) (2011-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102846.jpgsave_picture_102846.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Confidence Man - 3AM (La La La) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102847.jpgsave_picture_102847.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:71EB57C4416D1796AE1DF7543A6136D30C1FAC1F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102848.jpgsave_picture_102848.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Fire Action - Until The Heat Dies (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102849.jpgsave_picture_102849.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Supernatural Blondes - Religion Of The Heart (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102850.jpgsave_picture_102850.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Visioneers - DEF RADIO (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102851.jpgsave_picture_102851.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Tass Petridis - The OG Session (Vol 3) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102852.jpgsave_picture_102852.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:83B04FBA50B402C93567615A77C3992F0D53E7F1
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102853.jpgsave_picture_102853.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:71101D2B87A6209B335B9EB500770C148DDEDD2B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102854.jpgsave_picture_102854.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:F7F9C5E1320BDD09EA1F96C76AB4B0AA3C0914BE
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102855.jpgsave_picture_102855.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:FF486F5CEF5CDF6141E7C05DA95575B5EE47F665
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102856.jpgsave_picture_102856.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:628CB31BCF0A95C3651F78E66DCAA7A9E7A26950
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102857.jpgsave_picture_102857.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:92D4BBCA39B55688B34CF57D5F3BE67EFDC219F0
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102858.jpgsave_picture_102858.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:45DD8260CB3D080778491C11FB21C560BE5C7310
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102859.jpgsave_picture_102859.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:0C75DC59BB9C3D2DFCF7E45BBCCD595A3C1EDD6A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102860.jpgsave_picture_102860.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Konkhra - Sad Plight of Lucifer (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102861.jpgsave_picture_102861.jpg" />
 </div>
 
 

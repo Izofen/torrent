@@ -6,7 +6,7 @@ JSON Wizard for Mac 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166458.jpgsave_picture_166458.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BB465C54149ADE9264379A46629649A1084BA193
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166459.jpgsave_picture_166459.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5CAF3480C4A5A81391428AD4586DC02C6C2D8562
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166460.jpgsave_picture_166460.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Aly & Fila - It's All About The Melody (2019) [FLAC|Lossless|CD|tracks + .cue] <
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166461.jpgsave_picture_166461.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ CCleaner 6.07.10191 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166462.jpgsave_picture_166462.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Futuremark 3DMark 2.21.7324 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166463.jpgsave_picture_166463.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Skylum Luminar AI 1.0.0.7348 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166464.jpgsave_picture_166464.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Baring Teeth - The Path Narrows (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166465.jpgsave_picture_166465.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:7D3048DC7D63BF68544D5850483A70C5C43D6134
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166466.jpgsave_picture_166466.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:B333629A2D932284726E883B9A323DE624AE0578
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166467.jpgsave_picture_166467.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:163028366925D59F53595197F97A129FEC8E3F92
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166468.jpgsave_picture_166468.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:119A3988F9C891E1BCCCBC2D5384200BD75BE1C2
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166469.jpgsave_picture_166469.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:9F221F883B766A38328A45D314242C141CCE88CD
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166470.jpgsave_picture_166470.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ AIDA64 Extreme /Engineer / Business 6.85.6300 RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166471.jpgsave_picture_166471.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Zoner Photo Studio X 19.1909.2.198 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166472.jpgsave_picture_166472.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:D25A933100C4C3A019CF36DF9140A80633566437
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166473.jpgsave_picture_166473.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:3EDFE06261A95BCDA24BF3B5EEDA15D9E87147D6
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166474.jpgsave_picture_166474.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:E430960B327FB0EEDDE2856300757275B8E4FA1C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166475.jpgsave_picture_166475.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:5E89266897DE5AB7870265F5B1AEEE6583DA4FF1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166476.jpgsave_picture_166476.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:4C50B276AB271434B94E3C4CF3C6417D9CB871FC
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166477.jpgsave_picture_166477.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:A5A7871E74641643118E4161662329058399F286
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166478.jpgsave_picture_166478.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:01C80671CFFA93B11B0EDE18C206258E8597A634
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166479.jpgsave_picture_166479.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Garden Of Delight - Lutherion II (2006) [FLAC|Lossless|image + .cue] <Gothic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166480.jpgsave_picture_166480.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Sean Kolton - MechWarrior 5: Mercenaries Digital Deluxe Edition (2019)  [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166481.jpgsave_picture_166481.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:BF13796C6C830E75969F2F19F1DB4D2C8156BF29
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166482.jpgsave_picture_166482.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Chain Timer 9.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166483.jpgsave_picture_166483.jpg" />
 </div>
 
 

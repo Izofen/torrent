@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213568.jpgsave_picture_213568.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1D48D4D3BAD606144CB9A9BD31B938DAFB3FF9C7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213570.jpgsave_picture_213570.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:307C75445397D28772D33966D033976C58DBBE3A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213572.jpgsave_picture_213572.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D15934DFF1E6E6918E7CC43C67C3E768A8E659E0
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213573.jpgsave_picture_213573.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:738BD71BE94E67ABCEE3C6F8D2C492A1EA796DE4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213574.jpgsave_picture_213574.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0DC31361AC1F8F71540DF3CEFB015A82B9E3D09F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213575.jpgsave_picture_213575.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:15D1A4DC0EB2933C040FB68ECC1D47B8EFF87225
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213576.jpgsave_picture_213576.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Capture One 23 Enterprise 16.7.0.3201 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213579.jpgsave_picture_213579.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Ashampoo WinOptimizer 28.00.14 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213581.jpgsave_picture_213581.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Directory List & Print Pro 4.27 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213591.jpgsave_picture_213591.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:92C2F4F8DFE3529A64F94A995895932E4EF433E8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213594.jpgsave_picture_213594.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:FC3237E3E48D28FA16A67CCDD0BFA9A2D643053A
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213597.jpgsave_picture_213597.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Glen Matlock - Consequences Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213600.jpgsave_picture_213600.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:893422E57AF39EEEA80442126BFEEA1D84BA9B29
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213602.jpgsave_picture_213602.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:5A726954EFC77B3DF3F1E65FB77D8B354197AB8F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213605.jpgsave_picture_213605.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ K-Lite Codec Pack Update 17.7.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213607.jpgsave_picture_213607.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:69E079AE6ABAE4D022DEA2BB6235ED2F8A93B210
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213611.jpgsave_picture_213611.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:701E74AA2861A5AAB20CEDCD258822B82B3E64B2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213614.jpgsave_picture_213614.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Magnum - On A Storyteller’s Night (1985) Japanese Edition, Reissue, Remastered
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213617.jpgsave_picture_213617.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - Tell Everybody! (21st Century Juke Joint Blues From Easy Eye Sound) - 2023 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213620.jpgsave_picture_213620.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:7460D54FC943B7F23C505A5F4E338D15A3A63E45
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213624.jpgsave_picture_213624.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:A3CDD8CCDFD65FE586D03C7DA5DA22440CDB6724
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213626.jpgsave_picture_213626.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Skype 8.102.0.211 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213630.jpgsave_picture_213630.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:A82D1D9B287918B647D632935AF9DE614A5F95CA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213631.jpgsave_picture_213631.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Long Voyage Back - Close to Animal (2002) [FLAC|Lossless|image + .cue] <Gothic, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213632.jpgsave_picture_213632.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Denis Pauna - Kill 'Em All ZZ Top Style (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213634.jpgsave_picture_213634.jpg" />
 </div>
 
 

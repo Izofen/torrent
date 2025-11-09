@@ -6,7 +6,7 @@ HTML Academy | HTML и CSS. Профессиональная вёрстка са
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167046.jpgsave_picture_167046.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:D0627532B1A3770A6A1CD7A0AA549676C8E895F4
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167047.jpgsave_picture_167047.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:47417B4120F3B86F4CDB030D13CAD1C571F85B14
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167048.jpgsave_picture_167048.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Balkan Connection: Winter 2021 (2021) [AAC|~334 Kbps] <Progressive House, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167049.jpgsave_picture_167049.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:6245B83A2F643BAE8648EAA6FF11730149796B66
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167051.jpgsave_picture_167051.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Topaz Video AI 4.0.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167052.jpgsave_picture_167052.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Bradley Edgeworth и др. | CCNP and CCIE Enterprise Core ENCOR 350-401 Officia
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167053.jpgsave_picture_167053.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Permute 3 v3.7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167054.jpgsave_picture_167054.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Hot Wheels Unleashed (2021) [Ru/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167055.jpgsave_picture_167055.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ UBOAT (2019) [Ru/En] (b128hf4) Repack xatab [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167056.jpgsave_picture_167056.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:A4AC52850D66E511048DA129F2476C207E3D3638
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167057.jpgsave_picture_167057.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Harry James - Compact Jazz (1987) Verve Records [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167058.jpgsave_picture_167058.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:58F4A3262F2AE3808DC0DAB8201CCD0A17AF652C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167059.jpgsave_picture_167059.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Arete Hime | The Adventure of Princess Arete | Принцесса Аритэ [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167061.jpgsave_picture_167061.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:D9586A743715D6FAD48962109249412038057BCB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167062.jpgsave_picture_167062.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Animal Drive - Bite! (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167063.jpgsave_picture_167063.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:16CFF4FD82B1D2E58B37676C04970C94FC7FA072
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167064.jpgsave_picture_167064.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:044D9FAEED1DA7DCE965668D278328A8F9483739
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167065.jpgsave_picture_167065.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:084F264616A63926C21BF0155091F60F5E907D9E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167066.jpgsave_picture_167066.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - A Strangely Isolated Place | 2021 (mixed by todos) (2021) [AAC|~304 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167067.jpgsave_picture_167067.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:60C96A96562B6979901336180AC8830E22420DEB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167068.jpgsave_picture_167068.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Zombie Army 4: Dead War (2020) [Ru/Multi] (1.06/dlc) License EMPRESS [Super Delu
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167069.jpgsave_picture_167069.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Haunted Legends 15: The Scars of Lamia / Легенды о призраках 15
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167070.jpgsave_picture_167070.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Jazz & Soul: Urban Chillout Music (2021) [AAC|~305 Kbps] <Chill Out, Nu Jaz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167071.jpgsave_picture_167071.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:AB39E78007681FA7688A2027C9CF6B2F34B165F4
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167072.jpgsave_picture_167072.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:A5FED45E1E94A5EABB6F19889BDC8B6364165CB0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167073.jpgsave_picture_167073.jpg" />
 </div>
 
 

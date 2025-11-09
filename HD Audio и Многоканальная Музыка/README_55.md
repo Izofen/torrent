@@ -6,7 +6,7 @@ Nicklas Sonne - Electric Dreams (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65491.jpgsave_picture_65491.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Black Furies - Get Down Get With It (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65493.jpgsave_picture_65493.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kommission Z80 - Hegemony (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <EBM, Dance
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65495.jpgsave_picture_65495.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wavves - Spun (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, indie r
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65497.jpgsave_picture_65497.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ King Witch - III (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Doom M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65499.jpgsave_picture_65499.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Greet Death - Die In Love (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie, Sho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65500.jpgsave_picture_65500.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Supernatural Blondes - Art Of Heartbreak (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65508.jpgsave_picture_65508.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Hoffman Cruise - When The Moon Rises (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65511.jpgsave_picture_65511.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ WarKings - Armageddon (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65513.jpgsave_picture_65513.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Nastyville - Rebirth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65521.jpgsave_picture_65521.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:86224829BB51B27C481023B4334D3175C82A307C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65531.jpgsave_picture_65531.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Zero Mindset - Nightdive (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65533.jpgsave_picture_65533.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:77017F1B45E4CA625698594D99BA524AB2011BA0
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65544.jpgsave_picture_65544.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Burnt By Hatred - Myth Or Mortal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65550.jpgsave_picture_65550.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ MYR - Helvegen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65551.jpgsave_picture_65551.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Exsequor - Death From Above (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65553.jpgsave_picture_65553.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Putridity - Morbid Ataraxia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Brutal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65555.jpgsave_picture_65555.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Halo Effect - March of the Unheard (2025) [WavPack|32/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65558.jpgsave_picture_65558.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Herrementari - Against Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65564.jpgsave_picture_65564.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Hot Milk - Corporation P.O.P. (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65605.jpgsave_picture_65605.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Enemy Ac130 Above - Cosmic Apotheosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65607.jpgsave_picture_65607.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Grace Hayhurst - The World is Dying (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65620.jpgsave_picture_65620.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Tyske Ludder - Weltenbuhne (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, In
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65632.jpgsave_picture_65632.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Madam Radar - Motel (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65638.jpgsave_picture_65638.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Tommy Baldwin - Nappy Headed White Boy (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65677.jpgsave_picture_65677.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Steve Marriner - Hear My Heart (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65678.jpgsave_picture_65678.jpg" />
 </div>
 
 

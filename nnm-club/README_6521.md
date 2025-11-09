@@ -6,7 +6,7 @@ Microsoft PowerToys 0.72.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207318.jpgsave_picture_207318.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RAM Saver Professional 23.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207321.jpgsave_picture_207321.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:097E6109D80FAD8CA047FA4F7742D2AB8F9269FE
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207322.jpgsave_picture_207322.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SweetScape 010 Editor 14.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207325.jpgsave_picture_207325.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F0134348A7C65A2F60A304677BB41A67DB65B165
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207326.jpgsave_picture_207326.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Greta Van Fleet - Starcatcher (2023) Japanese Edition [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207327.jpgsave_picture_207327.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ StartAllBack 3.6.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207328.jpgsave_picture_207328.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.28 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207333.jpgsave_picture_207333.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ De-Phazz - Reduced (Remixes) (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Acid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207336.jpgsave_picture_207336.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:647EA5EC8FD7949DD56AD79C84A5389A9EA03F57
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207338.jpgsave_picture_207338.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:73BB63BD5D85A392B94E3AF1083207F5AED7AAC1
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207340.jpgsave_picture_207340.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Bitwig Studio 5 for Mac v.5.4.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207341.jpgsave_picture_207341.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Native Instruments Kontakt 7 v.7.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207343.jpgsave_picture_207343.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:7FE56A21F7B78EDC0897B3CD0F83DD67938AEE2F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207346.jpgsave_picture_207346.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:150357E3C8D0163E4A96AE036009974917CDFB77
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207347.jpgsave_picture_207347.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:2B9E4D4D5DA0140A449D49DB6BED9E154541DC34
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207352.jpgsave_picture_207352.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Trance Energy 2023: New Tracks July [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207355.jpgsave_picture_207355.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Google разработает Web Integrity API — новый стандарт 
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207358.jpgsave_picture_207358.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Chasys Draw IES 5.27.01 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207359.jpgsave_picture_207359.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:40666C80C4D1EB6D09219CA2623A5E4A256AFBC1
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207360.jpgsave_picture_207360.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Icecream Photo Editor 1.34 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207363.jpgsave_picture_207363.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:FBE8A5F7C29061A40FAF97927A5DA791A6581948
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207365.jpgsave_picture_207365.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Gradient v2.9.66 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207367.jpgsave_picture_207367.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:DF2EE3B3E7241C432C20677C42D8D41511998D7F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207370.jpgsave_picture_207370.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ XY VPN - Security Proxy VPN 4.4.766 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207371.jpgsave_picture_207371.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ R-Studio Network 9.3 Build 191223 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207372.jpgsave_picture_207372.jpg" />
 </div>
 
 

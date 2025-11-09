@@ -6,7 +6,7 @@ Cirith Ungol - Dark Parade (2023) [FLAC|Lossless|WEB-DL|tracks] <epic heavy, doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167341.jpgsave_picture_167341.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CDD5522A2D8664C9239A9EAE896538F36E522C1F
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167342.jpgsave_picture_167342.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:AD9393236FD6AFA32C77FDAFE3D440E1BFF15C58
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167343.jpgsave_picture_167343.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:27E759D508B83D744BC31BA013B049BD55DFB3CE
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167344.jpgsave_picture_167344.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Elvin Jones - Revival: Live At Pookie's Pub (1967) 2022, Blue Note [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167345.jpgsave_picture_167345.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:517E03C0D77629FB5A06F9BA5173EA5460AB6054
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167346.jpgsave_picture_167346.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Zakon i Besporyadok (2020) WEBRip [H.264/1080p-LQ] (серии 1-5 из 5)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167347.jpgsave_picture_167347.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Slade - All The World Is A Stage (2022) 5xCD, Box Set, Compilation, CD1,CD2,CD5,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167348.jpgsave_picture_167348.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Room Arranger 10.3.0.735 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167349.jpgsave_picture_167349.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Sweet Green Dreams: Natural Relaxed Mix (2019) [MP3|320 Kbps] <Chillout, Am
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167350.jpgsave_picture_167350.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Magic Disk Cleaner 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167351.jpgsave_picture_167351.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Adguard 2.9.2 nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167352.jpgsave_picture_167352.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Morning Coffee: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167353.jpgsave_picture_167353.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:23DD75669000D082D65F05E94A9026FBB26AF595
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167354.jpgsave_picture_167354.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Posthumous Blasphemer - Exhumation of Sacred Impunity (2014) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167355.jpgsave_picture_167355.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ NirLauncher Package 1.23.68 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167356.jpgsave_picture_167356.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ PALLADIUM Electric Band - Love Planet (2014) [MP3|320 Kbps] <Instrumental, Class
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167357.jpgsave_picture_167357.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:25306E14349EC972049D0203DBB187BCCC9C3ED9
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167358.jpgsave_picture_167358.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Record Super Chart 18.10.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167359.jpgsave_picture_167359.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Posthumous Blasphemer - Fracture The Worship (2008) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167360.jpgsave_picture_167360.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Digital Madness: Retrowave Music (2019) [MP3|320 Kbps] <Synthwave, Retrowav
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167361.jpgsave_picture_167361.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Udemy, Bhaumik Patel | Fast animation and rigging techniques using Maya 2017 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167362.jpgsave_picture_167362.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Jim Snidero - Far Far Away (2023) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167363.jpgsave_picture_167363.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:0B85FC8E5E55A1012CF394C29B7D9C062381C5EA
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167364.jpgsave_picture_167364.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Cerrone - Cerrone by Cerrone (2022) [FLAC|Lossless|image + .cue] <Disco, Dance, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167365.jpgsave_picture_167365.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Train Sim World 6 (2025) [Ru/Multi] (Build 487/dlc) Repack FitGirl [Special Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167366.jpgsave_picture_167366.jpg" />
 </div>
 
 

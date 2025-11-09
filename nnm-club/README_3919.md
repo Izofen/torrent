@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122374.jpgsave_picture_122374.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:44AE39C214B06A138EF10C6EB72AA32C2788A61F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122375.jpgsave_picture_122375.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:375FE93A43818A390E43C56C194B947F3A71FA27
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122376.jpgsave_picture_122376.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:767B89935942A34E9582A583F4B40C22477F154E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122377.jpgsave_picture_122377.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Caro Emerald - The Shocking Miss Emerald (2013) Deluxe Edition [MP3|320 Kbps] <S
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122378.jpgsave_picture_122378.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ QOwnNotes 24.1.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122379.jpgsave_picture_122379.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:96A85FEA0AFDD46D9889342EE55C51C7D7629969
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122380.jpgsave_picture_122380.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Lyn 2.3.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122381.jpgsave_picture_122381.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:426CA2E6B76CB747D3907CAEBE9FC67FC585C680
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122382.jpgsave_picture_122382.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:6AB6F7FCB4D6A3952662768F5D3A87605CF011C7
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122383.jpgsave_picture_122383.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Glary Disk Cleaner 6.0.1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122384.jpgsave_picture_122384.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:04C4FDABDB22C9F88E8C0DA4C76C7BFF4B1730ED
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122385.jpgsave_picture_122385.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Hannah Wicklund - 3 Releases (2018-2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122386.jpgsave_picture_122386.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Chris Rea - The Return Of The Fabulous Hofner Bluenotes (2008) [OGG Vorbis|480 K
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122387.jpgsave_picture_122387.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:2CF9FA69947A28B96137CB5CEA833EC678656A12
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122388.jpgsave_picture_122388.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:ABA12E3FE5B6F5B6673135B36AF9E68E4D570105
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122389.jpgsave_picture_122389.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Light Image Resizer 6.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122390.jpgsave_picture_122390.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Olivier Souille и др. | Артбук Вселенная драконов / Th
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122391.jpgsave_picture_122391.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:EE03A62A283E56C710C6C50523435281B5F27509
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122392.jpgsave_picture_122392.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:1EBF969C0D1E6763BEAFBE8C14FFDA7DE25E6167
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122393.jpgsave_picture_122393.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:0514CFD40F007C2F0FCCC77337FB78A351FEBFA9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122394.jpgsave_picture_122394.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Olivier Souille и др. | Артбук Вселенная сказок / The Fa
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122395.jpgsave_picture_122395.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:979C6F0228BCCF3CD1DB49A849DD421759920DE2
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122396.jpgsave_picture_122396.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:BED0DDD9A7FAB43BB917EA5EBBAA2259C672EF40
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122397.jpgsave_picture_122397.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:43C84E96E1ED216284BE1DEB70058A6B5685D100
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122398.jpgsave_picture_122398.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ WebRTCcourse, Tsahi Levent-Levi | Low-level WebRTC Protocols (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122399.jpgsave_picture_122399.jpg" />
 </div>
 
 

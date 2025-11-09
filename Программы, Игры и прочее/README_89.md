@@ -6,7 +6,7 @@ Background Video Recorder Pro v13.9.77 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252300.jpgsave_picture_252300.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Beat Find / Распознавание музыки v1.6.61 Mod by NURIK [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252356.jpgsave_picture_252356.jpg" />
 </div>
 
 

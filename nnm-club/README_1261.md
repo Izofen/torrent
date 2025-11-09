@@ -6,7 +6,7 @@ The Dirt Whisperers - The Dirt Whisperers (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33141.jpgsave_picture_33141.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Texas Hill - Soldiers (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33142.jpgsave_picture_33142.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sam Coulson - Gold Watch Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33143.jpgsave_picture_33143.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Stacy Mitchhart - Midnight Breeze (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33144.jpgsave_picture_33144.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lions In The Street - Moving Along (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33145.jpgsave_picture_33145.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Catfish John Tisdell - No Slowing Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33146.jpgsave_picture_33146.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ OneCommander Pro 3.94.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33147.jpgsave_picture_33147.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ TapinRadio 2.16.001 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33148.jpgsave_picture_33148.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:4CB385172CD0E4E6A706F0849FE4C8255A7AA5DD
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33149.jpgsave_picture_33149.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:AD38A5C4B1D225D5A45D14CC0D5BA42E9CA5FBA0
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33150.jpgsave_picture_33150.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:49D224DB5F75BE129A7FCB459B35F1176D095086
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33151.jpgsave_picture_33151.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:B0F5BB34F4283D8B567EB5952C6DAF5AD866066A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33152.jpgsave_picture_33152.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Moving Out 2 (2023) [Ru/Multi] (1.3.311/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33153.jpgsave_picture_33153.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Trans Neuronica (2023) [En] (1.0.13) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33154.jpgsave_picture_33154.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:BA048E0BB6BA2F5C26641E7131E48D155BDDE3E5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33155.jpgsave_picture_33155.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Woolly Boy and the Circus 1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33156.jpgsave_picture_33156.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:CCAE7CFF43257EFDE072C579619BAB36BFC1A130
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33157.jpgsave_picture_33157.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:BB408113E214D3DBD7E5FAD32015C8A4BBCD27D1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33158.jpgsave_picture_33158.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Destiny Star Girlfriend 3 (2019) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33159.jpgsave_picture_33159.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Opening Encyclopaedia 2024 (2023) [En] (2024) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33160.jpgsave_picture_33160.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:8DB00993E1FFE63930C828B61BF6EDF9A6F65FB4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33161.jpgsave_picture_33161.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:84BD6E6586B7B979BAF8D4787671F7BA2647C086
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33162.jpgsave_picture_33162.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Apashe - Antagonist Remixes (Part II) (2024) [FLAC|Lossless|WEB-DL|tracks] <Elec
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33163.jpgsave_picture_33163.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:D6A1F6D0C6A7D4D9A3A4AE150065FAF7B50056A9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33164.jpgsave_picture_33164.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Corr Database 2024 (2023) [En] (2024) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33165.jpgsave_picture_33165.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:4B50A359E1F1B562DFEF23F80ED00A15D10DBA7C
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33166.jpgsave_picture_33166.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Evergrey - Escape Of The Phoenix (2021) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240265.jpgsave_picture_240265.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Opera Crypto Browser 99.0.4788.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240266.jpgsave_picture_240266.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:CAC29E46E38ECD623B6AAA1A3912DB4ED89F623C
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240267.jpgsave_picture_240267.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Aiseesoft Mac Video Enhancer for Mac 9.2.32 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240268.jpgsave_picture_240268.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:29EFFBF84226E07A5C0606C95F4B1C8AD0DBD0A8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240269.jpgsave_picture_240269.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Just Before Dawn - An Army at Dawn (2020) [MP3|320 Kbps] <Old School Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240270.jpgsave_picture_240270.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ The Cross - Act II: Walls of the Forgotten (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240271.jpgsave_picture_240271.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:8613FA48EEF9100AAFBA084FE29BB6179B146AB0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240272.jpgsave_picture_240272.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:CBD6ADC93C82A26205BFFB3552F697C02E0D98B5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240273.jpgsave_picture_240273.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Reba McEntire - Read My Mind (1994) [FLAC|Lossless|tracks + .cue] <Country Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240274.jpgsave_picture_240274.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Carla Riehl - Heroes (1991) [FLAC|Lossless|image + .cue] <Soft Rock, Lite AOR, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240275.jpgsave_picture_240275.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Saxon - More Inspirations (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240276.jpgsave_picture_240276.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Text Scanner - PDF & Document 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240277.jpgsave_picture_240277.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:8DD101EACB18103150BA06359C7E015B8D3AA909
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240278.jpgsave_picture_240278.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:068A405F6741CA98449E9688DA5A2D169257A356
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240279.jpgsave_picture_240279.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:9095DA01C5176CA34E8C46526B1E339CAEC3AEDC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240280.jpgsave_picture_240280.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Luminar Neo 1.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240281.jpgsave_picture_240281.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Hollywood Vampires - Live In Rio (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240282.jpgsave_picture_240282.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - The Best Valentines Album In The World...Ever! (2023) [OGG Vorbis|480 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240283.jpgsave_picture_240283.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:4803FA9AF9429EB373D13A84F00C5FDF02246DB2
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240284.jpgsave_picture_240284.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:FB04ABD1BAAC9D46E3F9239028598641D519311D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240285.jpgsave_picture_240285.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:14F9DC6D9C19736D08A2705445D5A4C52FA1AD8A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240286.jpgsave_picture_240286.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Power Quest - Sixth Dimension (2017) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240287.jpgsave_picture_240287.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ House of Shakira - XIT (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240288.jpgsave_picture_240288.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Aiseesoft Mac FoneTrans 9.1.66 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240289.jpgsave_picture_240289.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Yuri Gagarin - The Outskirts Of Reality (2020) [FLAC|Lossless|tracks + .cue] <Ps
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240290.jpgsave_picture_240290.jpg" />
 </div>
 
 

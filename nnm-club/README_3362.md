@@ -6,7 +6,7 @@ Atlantic - Another World (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107773.jpgsave_picture_107773.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Axel Rudi Pell - Risen Symbol (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107774.jpgsave_picture_107774.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - DJ Hits Vol. 67 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Techn
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107775.jpgsave_picture_107775.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Loch Vostok - From These Waters (2015) [FLAC|Lossless|WEB-DL|tracks] <Extreme Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107776.jpgsave_picture_107776.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Beartooth - 6 Albums (2014-2023) [FLAC|Lossless|WEB-DL|tracks] <metalcore, hardc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107777.jpgsave_picture_107777.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - DJ Hits Vol. 77 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107778.jpgsave_picture_107778.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Timmy Trumpet - Timmy Trumpet's SINPHONY No. 2 (2024) EP [FLAC 16/44.1; 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107779.jpgsave_picture_107779.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - DJ Hits Vol. 67 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107780.jpgsave_picture_107780.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Marco Gluhmann - A Fragile Present (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107781.jpgsave_picture_107781.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Saidian - Evercircle (2009) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107782.jpgsave_picture_107782.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Pimps of Joytime & Sophia Urista - Don't Belong (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107783.jpgsave_picture_107783.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Voraath - Vol. 1: Hymn of the Hunters (2024) [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107784.jpgsave_picture_107784.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bloodorn - Let The Fury Rise (2024) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107785.jpgsave_picture_107785.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Erroll Garner - The Erroll Garner Collection, Vol.4,5: Solo Time! (1954) 2CD, 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107786.jpgsave_picture_107786.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Iris Official - Heart Of An Artist: Resurrection (2023) Relived Edition, 2024, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107787.jpgsave_picture_107787.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Threshold - Subsurface (2004) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107788.jpgsave_picture_107788.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Loch Vostok - Strife (2017) [FLAC|Lossless|WEB-DL|tracks] <Extreme Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107789.jpgsave_picture_107789.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - DJ Hits Vol. 62 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107790.jpgsave_picture_107790.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Hollywood Stars - Starstruck (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107791.jpgsave_picture_107791.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Shades of Thunder - Big Break (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Retr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107792.jpgsave_picture_107792.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - DJ Hits Vol. 60 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107793.jpgsave_picture_107793.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - DJ Hits Vol. 61 (1996) [OGG Vobis|480 Kbps] <Electronic, Euro House, Euro D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107794.jpgsave_picture_107794.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - DJ Hits Vol. 59 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107795.jpgsave_picture_107795.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Brother Chunky - Dig Deeper (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107796.jpgsave_picture_107796.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Nico Fami - Nico Fami Live at the Ocean Race (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107797.jpgsave_picture_107797.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:691406A57577F3943CE091C1D5139BC468459DA6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107798.jpgsave_picture_107798.jpg" />
 </div>
 
 

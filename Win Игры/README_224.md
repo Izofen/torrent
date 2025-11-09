@@ -6,7 +6,7 @@ Reflections of Life 12: The Shattered Timeline (2024) [En] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119632.jpgsave_picture_119632.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lunacid (2023) [En] (1.2.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119709.jpgsave_picture_119709.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Death Stranding (2022) [Ru/Multi] (1.004/dlc) Repack dixen18 [Director's Cut]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119902.jpgsave_picture_119902.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.26/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119915.jpgsave_picture_119915.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Hidden Object Chronicles: Poisoned Truth (2024) [En] (1.0) Unofficial [Collector
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119994.jpgsave_picture_119994.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Cub (2024) [Ru] (19.01.2024) Unofficial Team RIG [Русификатор]
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120003.jpgsave_picture_120003.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Cris Tales (2021) [Ru/Multi] (1.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120022.jpgsave_picture_120022.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Cub (2024) [Multi] (Build 13219220) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120059.jpgsave_picture_120059.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ I'm counting to 6... (2024) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120202.jpgsave_picture_120202.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9v) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120220.jpgsave_picture_120220.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Ms. Holmes 5: The Milverton Plot / Мисс Холмс 5: Заговор Мил�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120303.jpgsave_picture_120303.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mahoutsukai no Yoru / Witch on the Holy Night / Ведьма святой ноч
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120333.jpgsave_picture_120333.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Star Explorers (2018) [En] (5.4.4a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120347.jpgsave_picture_120347.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Boyfriend Dungeon (2021) [Ru/Multi] (1.3.7294S/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120375.jpgsave_picture_120375.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ GINSHA (2023) [Multi] (1.1.0b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120391.jpgsave_picture_120391.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Children of Silentown (2023) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120392.jpgsave_picture_120392.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Last Faith (2023) [Ru/Multi] (1.5.0) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120397.jpgsave_picture_120397.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Cub (2024) [Multi] (1.0.0) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120534.jpgsave_picture_120534.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Noxia Somnia (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120538.jpgsave_picture_120538.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Lil' Guardsman (2024) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120550.jpgsave_picture_120550.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Bomb Rush Cyberfunk (2023) [Ru/Multi] (1.0.20385) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120556.jpgsave_picture_120556.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Inspector Gadget - Mad Time Party / Инспектор Гаджет – Безу
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120558.jpgsave_picture_120558.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Train to Nowhere (2024) [Ru/En] (Build 11054454) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120565.jpgsave_picture_120565.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ A Night at the Watermill (2024) [Multi] (1.0.794) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120572.jpgsave_picture_120572.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Gloomhaven (2021) [Multi] (1.1.8307.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120582.jpgsave_picture_120582.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Death of Marionette (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120701.jpgsave_picture_120701.jpg" />
 </div>
 
 

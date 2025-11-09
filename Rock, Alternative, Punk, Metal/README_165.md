@@ -6,7 +6,7 @@ Counting Hours - The Wishing Tomb (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115839.jpgsave_picture_115839.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Takida - The Agony Flame (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115842.jpgsave_picture_115842.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mick Mars - The Other Side Of Mars (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115849.jpgsave_picture_115849.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:C7525976EAD231AFFAA48E6559F707F1ABDC37B9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115892.jpgsave_picture_115892.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:9B2029CC71E66C774B945CA35F117554A8012C37
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115893.jpgsave_picture_115893.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Austrian Death Machine - Quad Brutal (2024) [FLAC|Lossless|WEB-DL|tracks] <Moder
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115961.jpgsave_picture_115961.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Rifforia - Axeorcism (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115962.jpgsave_picture_115962.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Avulsion - Dimensions of Darkness (1997) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115973.jpgsave_picture_115973.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Avulsion - Indoctrination into the Cult of Death (2002) Reissue, 2003, Deathgasm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115975.jpgsave_picture_115975.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Amaranthe - The Catalyst (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Melodic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115978.jpgsave_picture_115978.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ D'Luna - Monster (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115980.jpgsave_picture_115980.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Lionheart - The Grace of a Dragonfly (2024) [FLAC|Lossless|tracks] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115984.jpgsave_picture_115984.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Ace Frehley - 10,000 Volts (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115987.jpgsave_picture_115987.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Iron Curtain - Savage Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Speed, Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115990.jpgsave_picture_115990.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Boulevard - Blvd. (1988) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115992.jpgsave_picture_115992.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Blaze Bayley - Live in Czech (2020) 2CD, Live [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115993.jpgsave_picture_115993.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Boulevard - Into the Street (1990) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115996.jpgsave_picture_115996.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Metalite - 4 Albums, 1 Live, 5 Singles (2017-2024) [MP3|320 Kbps] <Modern Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115998.jpgsave_picture_115998.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:3E17CEC2CCDF96C8D9F27031232A043D80B6CCB8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116014.jpgsave_picture_116014.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Black Sabbath - Heaven In Hartford (1980) Live, 2024 Smokin' [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116031.jpgsave_picture_116031.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dust Bolt - Sound & Fury (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116161.jpgsave_picture_116161.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Danny Steel - Diamond (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116168.jpgsave_picture_116168.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ataraxy - The Last Mirror (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116169.jpgsave_picture_116169.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Secret Rule - 10 Releases (2015-2023) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116177.jpgsave_picture_116177.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Crazy Lixx - Two Shots At Glory (2024) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116181.jpgsave_picture_116181.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ My Darkest Time - My Darkest Time (2024) [MP3|320 Kbps] <Gothic, Doom, Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116182.jpgsave_picture_116182.jpg" />
 </div>
 
 

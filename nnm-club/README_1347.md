@@ -6,7 +6,7 @@
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35377.jpgsave_picture_35377.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Troop (2023) [Ru/Multi] (Build 20241125/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35378.jpgsave_picture_35378.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:08CF2BCBC446E57AE8313A547DF7F342F5D0A46B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35379.jpgsave_picture_35379.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Electrical Calculations Pro / Электрические расчеты v10.2.1 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35380.jpgsave_picture_35380.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ One Boss One Fight (2024) [Ru/Multi] (1.10) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35381.jpgsave_picture_35381.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:9608ECAB9E6A9375D0E61ACAB6A5EB29BD6DD1F4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35382.jpgsave_picture_35382.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:9608ECAB9E6A9375D0E61ACAB6A5EB29BD6DD1F4
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35383.jpgsave_picture_35383.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:064D296F4C5D87D9D1EEC88F66A4E8A8A9BA373B
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35384.jpgsave_picture_35384.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:DEB38EC202C414BFC8A1CD66C3A20150F3E51CC4
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35385.jpgsave_picture_35385.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:0E117F3A6A7D63256B3BA5CD00455F025FE45FAB
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35386.jpgsave_picture_35386.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:154CAE9FAACDB09590E8DB5427883FF3513A11C1
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35387.jpgsave_picture_35387.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:9EF9504124FABDF20397304859B49346D69D4B3B
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35388.jpgsave_picture_35388.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:76EA7F3C25598F2BA94353AE75273A5BDF6D4883
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35389.jpgsave_picture_35389.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ HTML Academy | PHP. Профессиональная веб-разработка
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35390.jpgsave_picture_35390.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:0211FFAE87CF576A126ED88C466C4B730C85400D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35391.jpgsave_picture_35391.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:FD49DEFB85B64CAF15D29CD3B774C9408D1195D8
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35392.jpgsave_picture_35392.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:9936218898CE2CC6DAFAAA9D3805FDAC64A9CC63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35393.jpgsave_picture_35393.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:C8BBD38CCFE27CF72368AE31092CE7CF32AE7B14
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35394.jpgsave_picture_35394.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Kerio Control 9.4.5 [x64] 1xCD
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35395.jpgsave_picture_35395.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ HiPER Calc Pro v10.5.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35396.jpgsave_picture_35396.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:739E400565908B3E2653B227E62199B50AFCBB1E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35397.jpgsave_picture_35397.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:F43DB3583FF9BD8AF0606F8F0FDDB4A9B3B727A4
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35398.jpgsave_picture_35398.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:112B676EFBA6D22E2A70D22DC0A2D489AED3D47B
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35399.jpgsave_picture_35399.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:38F19F7A2088D714ED8228E3D6555888E7ABA7C9
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35400.jpgsave_picture_35400.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ METAL SLUG ATTACK RELOADED (2024) [Ru/Multi] (1029101748) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35401.jpgsave_picture_35401.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Progressive Trance Awakening, Vol. 01 (2024) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35402.jpgsave_picture_35402.jpg" />
 </div>
 
 

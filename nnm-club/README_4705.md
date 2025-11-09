@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147270.jpgsave_picture_147270.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:29B4D10197397F3F2714439FB51A2AD66F6D5DF7
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147271.jpgsave_picture_147271.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DDC3ACB21DE62E1E0D2A90C04E5149DB281FA871
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147272.jpgsave_picture_147272.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ AV Voice Changer Software Diamond 7.0.51 Retail [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147273.jpgsave_picture_147273.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Voice Changer Diamond Edition - это настоящий прорыв техн�
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147274.jpgsave_picture_147274.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:7E2344F7C72EEF850BF186A1F528A6E1D163466F
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147275.jpgsave_picture_147275.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VSO ConvertXtoHD 1.3.0.43 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147276.jpgsave_picture_147276.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:FCEDB0FCC36E91E22C3D55B92BF9685E871209FE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147277.jpgsave_picture_147277.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ George Michael - 78 Albums (1984-2014) 89 CD [MP3|192 - 320 kbps]<Pop, Dance, So
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147278.jpgsave_picture_147278.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Trance In Motion: Sensual Breath 001 - 105 (2012 - 2013) [MP3|320 кб/с]<
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147279.jpgsave_picture_147279.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Udemy, Илья Фофанов | Архитектура ПО: Meta и SOLID пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147281.jpgsave_picture_147281.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:378EB86EE55BC4CFB363F7096066BEC907FD1D19
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147282.jpgsave_picture_147282.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:F4225C542F85CB10E0DFF90CD7E72CB714221A42
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147283.jpgsave_picture_147283.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:F4225C542F85CB10E0DFF90CD7E72CB714221A42
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147284.jpgsave_picture_147284.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Музыка для машины Vol.39 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147285.jpgsave_picture_147285.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:6F2BF009EAB7AAEECDBF0CE986CB87790835AF56
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147286.jpgsave_picture_147286.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:354A06A470169537555CCA5BBC09E506B4C7C4FD
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147288.jpgsave_picture_147288.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:36E5DA59569EA870EA643B57AA6558A5CD76D344
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147290.jpgsave_picture_147290.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:F2035891B7D6B022AB215A2451FC06132CB343FD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147291.jpgsave_picture_147291.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:6770A28199F9A9459D7DFA5C47A51504170B6CEF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147292.jpgsave_picture_147292.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:13E6A8DC05C8C677CC10080E0A973CEB9B7CCFF5
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147293.jpgsave_picture_147293.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Sweet Morning (Chill out and Lounge Collection), Vol. 1 (2021) [AAC|~319 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147294.jpgsave_picture_147294.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:14A9BF035E7CE2FB3CA0E66C98C3BEAD77A9A2C3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147296.jpgsave_picture_147296.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:5831731567E770B960B8DC0EA634392737246561
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147297.jpgsave_picture_147297.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ James Last - The Best Of Non Stop Dancing (1998) Remastered, Reissue, 2023, Poly
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147298.jpgsave_picture_147298.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:CF5F82320E3FBE1DD3B68F38487CD12B36B39DD2
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147299.jpgsave_picture_147299.jpg" />
 </div>
 
 

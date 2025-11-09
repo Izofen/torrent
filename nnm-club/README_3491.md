@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111127.jpgsave_picture_111127.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Armin van Buuren - A State Of Trance 1169 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111128.jpgsave_picture_111128.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:211D667494BD6BF2AA27389357A3EF7CA861F89D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111129.jpgsave_picture_111129.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - The Sound of 2024 Mix 3: Rio De Janeiro (2024) [MP3|320 Kbps] <Trance, Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111130.jpgsave_picture_111130.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:96C0C01D8E782B0C80A68514B01BF7A1DD984CB7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111131.jpgsave_picture_111131.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:68876FABEE3D302BFDFD14E60979AA5E479F0824
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111132.jpgsave_picture_111132.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:9D890697AD65B761705CAA9BC8C1BDDC16A1CA74
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111133.jpgsave_picture_111133.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VA - Black Hole House Music 04-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111134.jpgsave_picture_111134.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ SeeYouSpaceCowboy - Coup de Grace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111135.jpgsave_picture_111135.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Cedric Burnside - Hill Country Love (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111136.jpgsave_picture_111136.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:18E8F1B27D9B1ED0C3A3B5F93E778DE8D8658C16
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111137.jpgsave_picture_111137.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Paul Motian Trio - It Should've Happened a Long Time Ago (1985) ECM Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111138.jpgsave_picture_111138.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Severin - Times like this (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111139.jpgsave_picture_111139.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Erroll Garner Trio - The Most Happy Piano: The 1956 Studio Sessions (2010) 2CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111140.jpgsave_picture_111140.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Jeff McMillan - One Last Song (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111141.jpgsave_picture_111141.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Bongripper - Empty (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111142.jpgsave_picture_111142.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ High On Fire - Cometh The Storm (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ston
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111143.jpgsave_picture_111143.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Freddy And The Phantoms - Heathen Gospels (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111144.jpgsave_picture_111144.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Nick Gravenites - Rogue Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111145.jpgsave_picture_111145.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ City Woods - Highs and Lows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111146.jpgsave_picture_111146.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Joe Mooney - The Happiness Of & The Greatness Of... (1964, 1965) 2000, Koch Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111147.jpgsave_picture_111147.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Soul Button - Dual Realms Of Sound (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111148.jpgsave_picture_111148.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Rinzen - Bend to the Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111149.jpgsave_picture_111149.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:E21058218FC5045DBEBD831FB678D511554BE75C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111150.jpgsave_picture_111150.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:1691E76D58AD11FBF4CFB4E4AD51DD2A4E7C1862
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111151.jpgsave_picture_111151.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ PowerDirector – Video Editor v13.4.1 b2404191 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111152.jpgsave_picture_111152.jpg" />
 </div>
 
 

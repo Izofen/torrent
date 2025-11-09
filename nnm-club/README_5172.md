@@ -6,7 +6,7 @@ Final Fantasy VII (7) Remake Intergrade (2021) [Multi] (1.0) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161218.jpgsave_picture_161218.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FB97BA11E0A30D78D88A0ABC64CB6F263133F14F
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161219.jpgsave_picture_161219.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:F9BE8AF8B75D36A6C3C8A9576C713863A68F9EDC
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161220.jpgsave_picture_161220.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:1040BB48A2161C1D1BE0B647A289EBA898353AA0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161221.jpgsave_picture_161221.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:CE050560E80ACB78B1F6DB1028202D39DE280D9D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161222.jpgsave_picture_161222.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:CE050560E80ACB78B1F6DB1028202D39DE280D9D
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161223.jpgsave_picture_161223.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:2F1431B0FBF379DCE738A2C7A9225722810CFCCD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161224.jpgsave_picture_161224.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161225.jpgsave_picture_161225.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:8DB956EAD683F565710A87EC67B0275311037CA9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161226.jpgsave_picture_161226.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Mirror Magnet 1.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161227.jpgsave_picture_161227.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:809B49FF3F6CE886D0031DC6C7399602E90ECF83
 >>15
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161228.jpgsave_picture_161228.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:809B49FF3F6CE886D0031DC6C7399602E90ECF83
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161229.jpgsave_picture_161229.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:F8DFFC5FF5FC2E94A1C7472A40480C8CE006F384
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161230.jpgsave_picture_161230.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:90EC9DCCD73480DACD5DB267D58B8EA31EBC13A6
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161231.jpgsave_picture_161231.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:3D80E4E688A659F42DC505CF038CBCCACA8CDAA8
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161232.jpgsave_picture_161232.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:0A040260109D8AECFB72178E17118D91AC2F278E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161233.jpgsave_picture_161233.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:087254CC63CC1098428F482D7115905DA7368E5C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161234.jpgsave_picture_161234.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:53EEEE631FDA9EC24D617E8A9D9FB38F1B68B333
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161235.jpgsave_picture_161235.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Rhinoceros 7 v.7.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161236.jpgsave_picture_161236.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:0DE46BB40FA158C23B1758F9FEB71D062211F399
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161237.jpgsave_picture_161237.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Alannah Myles - Compilation (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161238.jpgsave_picture_161238.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Avalanches - We Will Always Love You (2020) [FLAC|Lossless|tracks + .cue] <T
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161239.jpgsave_picture_161239.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:726D22EAFA97CCE64C38C39899365A11AD00766C
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161240.jpgsave_picture_161240.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:ECE48E4F5E419EAE5C2FC61092B9B6F974ECFAD5
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161241.jpgsave_picture_161241.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ One Commander Pro 3.28.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161242.jpgsave_picture_161242.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Icecream PDF Editor PRO 3.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161243.jpgsave_picture_161243.jpg" />
 </div>
 
 

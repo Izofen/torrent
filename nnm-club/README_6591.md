@@ -6,7 +6,7 @@ Stanley Turrentine - The Look Of Love (1968) 1982, Applause Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211341.jpgsave_picture_211341.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Black Hole Trance Music 06-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211345.jpgsave_picture_211345.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:547C85D87FE2CBF0F2CFFC40EBDD2DD706D13839
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211348.jpgsave_picture_211348.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Optimizer 15.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211351.jpgsave_picture_211351.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:292BFA1BC11487BBE582A2B392FB045B0D6F5E5B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211354.jpgsave_picture_211354.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows 10 Manager 3.8.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211355.jpgsave_picture_211355.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ V.A. - ZYX Italo Disco Spacesynth Collection 9 (2023) 2CD [FLAC|Lossless|tracks]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211356.jpgsave_picture_211356.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Ex Lover - Devotion (2023) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Goth, Post-P
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211357.jpgsave_picture_211357.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:49FC48979061D50C2E8FE779D137C58E228AA942
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211361.jpgsave_picture_211361.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Pet Shop Boys - SMASH – The Singles 1985 – 2020 (2023) 3CD, 2023 Remaster [F
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211362.jpgsave_picture_211362.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Wise Auto Shutdown 2.0.3.104 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211365.jpgsave_picture_211365.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ MediaHuman YouTube Downloader 3.9.9.82 (1406) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211367.jpgsave_picture_211367.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Youtube Downloader HD 5.2.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211368.jpgsave_picture_211368.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:E71732F095BF8573FD90938CA7D039996FDCD5F0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211369.jpgsave_picture_211369.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:76791185E024837723D6319B171EDE45E6A3F991
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211372.jpgsave_picture_211372.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ HitPaw Video Converter 3.0.1.4 (x64) RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211373.jpgsave_picture_211373.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ AVS Image Converter 5.6.1.324 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211377.jpgsave_picture_211377.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ VA - Hardstyle Workout 2023 playlist [MP3|320 Kbps] <Hardstyle, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211379.jpgsave_picture_211379.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - ZYX Italo Disco Spacesynth Collection 9 (2023) 2CD, Compilation [MP3|320 Kb
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211380.jpgsave_picture_211380.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Blackmagic Design Fusion Studio 18.5b Build 53 Public Beta 4 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211382.jpgsave_picture_211382.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:C196DE3371FE98B078C3677C0853B8218BA8C835
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211384.jpgsave_picture_211384.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:8F622ED5610699F0DC6B0515FC6AB7B3B61EBB9F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211386.jpgsave_picture_211386.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.27 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211388.jpgsave_picture_211388.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Attribute Changer 11.20 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211389.jpgsave_picture_211389.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:E4551234F642A03A7F12E2BB5283CFA1EF21CE0D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211393.jpgsave_picture_211393.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:5DD3B55E4D71C161E54F70E99375F1086390682A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211394.jpgsave_picture_211394.jpg" />
 </div>
 
 

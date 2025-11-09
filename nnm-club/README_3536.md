@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112310.jpgsave_picture_112310.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CD03E9FAB8F1C660DA5EED13B9FF4C5F2AAC3F6A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112311.jpgsave_picture_112311.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7AF162934A032C6EC04AE896B537928D68A69340
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112312.jpgsave_picture_112312.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7AF35DB2DDBA56667870CDE2B445E68552CC7A21
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112313.jpgsave_picture_112313.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:41B23CB09E4C518D8AF05D00B5340C6D39AC7607
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112314.jpgsave_picture_112314.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:29E85D15A0CDD32DF34DC1EA00DAF7839A7B51B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112315.jpgsave_picture_112315.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Arcane Path (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112316.jpgsave_picture_112316.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:58C5B3C66796D3D329970A034D1DE4781BC690BA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112317.jpgsave_picture_112317.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:C3A282F61DFD4AEAE3CD31243DB8BC9BD80081F8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112318.jpgsave_picture_112318.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:8D5A3CAAD1D7BA65CAD2E4FC9AEA018221AA0370
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112319.jpgsave_picture_112319.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:B6DB831F19A0B6E67FAFFD48A4A720E9EA391E57
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112320.jpgsave_picture_112320.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:0A1AE133194DFA67306ECD59ADD9202521B02A3B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112321.jpgsave_picture_112321.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:18F1EB84D823AD8E784D099212C969458BFD26D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112322.jpgsave_picture_112322.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:ED618A15B9693052ACAA48F915107F930B786E80
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112323.jpgsave_picture_112323.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:8CF608A0BE571C3D38C19134FCADBC4FFE18F17E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112324.jpgsave_picture_112324.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:779951F9DC9D78623DDCE13CBF4EC4F3B5D19883
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112325.jpgsave_picture_112325.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:9D26BE5E3A1408C6E95FBBA88674E7207A8327E0
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112326.jpgsave_picture_112326.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:828AA7E3F9B38E5E8CBC6769B3D1BC1FAA4BCE52
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112327.jpgsave_picture_112327.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:722E419C8677AE1EEBE6A3EC6B7332C4F5EE3315
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112328.jpgsave_picture_112328.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Halie Loren - Live At Cotton Club (2016) Victor [FLAC|Lossless|image + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112329.jpgsave_picture_112329.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Robert Plant - Voice Of Rock - Compilation (1967-2025) [MP3|320 Kbps] <Blues roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112330.jpgsave_picture_112330.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:32B333B74802FC57437EFA302A1B53AAFCD519A5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112331.jpgsave_picture_112331.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Parov Stelar - Assorted compilation part 2 (2025) [MP3|320 Kbps] <Electro Swing,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112332.jpgsave_picture_112332.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Mike Mainieri - An American Diary: The Dreamings (1997) 1999, NYC Records [APE|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112333.jpgsave_picture_112333.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:2CD3884F40B0164DF076FD69EDE855EF58AC37EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112334.jpgsave_picture_112334.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Tad Morose - Leaving the Past Behind (1993) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112335.jpgsave_picture_112335.jpg" />
 </div>
 
 

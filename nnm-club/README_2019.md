@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52861.jpgsave_picture_52861.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52862.jpgsave_picture_52862.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:83C2B4C15FC7B0C41930D029B912F3F273F8EB7C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52863.jpgsave_picture_52863.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:9762E33B5FA90DF3C50E28027ADE03E702CF3B41
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52864.jpgsave_picture_52864.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A2BAB1B5E645A06903C226B4EB103936A619DDAB
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52865.jpgsave_picture_52865.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Kono Subarashii Sekai ni Shukufuku o! 3 | Этот замечательный м
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52866.jpgsave_picture_52866.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Adobe Media Encoder 2024 24.5.0.50 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52867.jpgsave_picture_52867.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:46EE9BEE4D89E53EE16E4D71F32CB753AD334F01
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52868.jpgsave_picture_52868.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ CCleaner 6.25.11093 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52869.jpgsave_picture_52869.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ HORROR TALES: The Beggar (2024) [Ru/Multi] (14729589) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52870.jpgsave_picture_52870.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:5FE7CBD2DA8C60D61F21095324F07F33B09907DA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52871.jpgsave_picture_52871.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:FC70138BC37A4821C683EF018E0AF57F1E9C7AFD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52872.jpgsave_picture_52872.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:C0E31933BB306B1BF33C8C30BE970ECA2BEA11DD
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52873.jpgsave_picture_52873.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Google Chrome 126.0.6478.62 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52874.jpgsave_picture_52874.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Lingo Mastery | Spanish Short Stories for Beginners (2018) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52875.jpgsave_picture_52875.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ ApowerREC 1.7.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52876.jpgsave_picture_52876.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:6171F56278DCA6E40FA9E93B72F55EE4609DF15B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52877.jpgsave_picture_52877.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - Pool Paradise (2024) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52878.jpgsave_picture_52878.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:383C9DCD6449F6114C49C938656D840067964BD3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52879.jpgsave_picture_52879.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:383C9DCD6449F6114C49C938656D840067964BD3
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52880.jpgsave_picture_52880.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Лучшая дискотека шансона -15 (2024) (2024) [FLAC|Loss
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52881.jpgsave_picture_52881.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:84907F7187B68512DC4B22CAFD8B19E9DDF184BE
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52882.jpgsave_picture_52882.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:AD81FC5517811FE1205619C911A2020CD5C7ED9A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52883.jpgsave_picture_52883.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:794572054A901FD5E7E63F7A42ADBC42703DB952
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52884.jpgsave_picture_52884.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:AF6F966350D2DCCDD454E38A618F63A846CDD7AD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52885.jpgsave_picture_52885.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:03D8D8AC8A78F57607A1602CFEBF4CCDB6249A85
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52886.jpgsave_picture_52886.jpg" />
 </div>
 
 

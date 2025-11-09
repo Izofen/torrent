@@ -6,7 +6,7 @@ RarmaRadio Pro 2.75.4 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177454.jpgsave_picture_177454.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Print Conductor 9.0.2308.32170 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178009.jpgsave_picture_178009.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ MyNotes Keeper 3.9.6 Build 2268 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178033.jpgsave_picture_178033.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ ChimbaBench v2.5 (3.5.2.0) [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178904.jpgsave_picture_178904.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ R-WipeClean  20.0.2380 Portable by AlexYar [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179208.jpgsave_picture_179208.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ WinSnap 5.3.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179237.jpgsave_picture_179237.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ CintaNotes Pro + Portable 3.14 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179939.jpgsave_picture_179939.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ WinSnap 6.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180745.jpgsave_picture_180745.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ USB Network Gate 10.0.2450 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181056.jpgsave_picture_181056.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Total Uninstall Portable (Ultimate, Professional, Essential) 7.5.0.655 x64 by re
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181154.jpgsave_picture_181154.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Total Uninstall Ultimate Portable 7.4.0.650 x64 by remek002 [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181173.jpgsave_picture_181173.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Cyotek CopyTools 1.4.5.215 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181394.jpgsave_picture_181394.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ MiniTool Partition Wizard Free 12.7 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182208.jpgsave_picture_182208.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Waterfox Classic 2022.11 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182357.jpgsave_picture_182357.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ MiniTool Partition Wizard / Enterprise / Ultimate / Server / Technician 12.7 ReP
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182829.jpgsave_picture_182829.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ MiniTool Power Data Recovery Standard / Deluxe / Enterprise / Technician 11.3 Re
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182911.jpgsave_picture_182911.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Core Temp 1.18.1 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185724.jpgsave_picture_185724.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Floorp Browser 12.3.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185738.jpgsave_picture_185738.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:6607E8DC4A54D1C9DB1C8E0A03642F785066B155
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185830.jpgsave_picture_185830.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ QuickPanel 0.1.0 + Portable [Ru] [Авторская раздача]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185870.jpgsave_picture_185870.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ v2rayN 7.15.4 portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186095.jpgsave_picture_186095.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ UltraSearch Professional 4.8.3.1183 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186097.jpgsave_picture_186097.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Flyoobe 1.40 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186104.jpgsave_picture_186104.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Notepad++ 8.8.7 Final + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186121.jpgsave_picture_186121.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:CABCDCCB787DAE0FE5EBD4AA8B16FBED5BE867B0
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186161.jpgsave_picture_186161.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ IObit Uninstaller Pro 13.1.0.3 [Multi/Ru] (акция Comss)
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186394.jpgsave_picture_186394.jpg" />
 </div>
 
 

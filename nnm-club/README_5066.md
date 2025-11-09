@@ -6,7 +6,7 @@ Artur (Artur Khlgatyan) - Armenian Rap (2011-2015) [MP3|320 кб/с] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158410.jpgsave_picture_158410.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4F6F5D63927FC1794E698321ADA2DC8F6797E96D
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158411.jpgsave_picture_158411.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Statue Of Liberty. The Lost Symbol (2014) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158412.jpgsave_picture_158412.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:61F37775C9A6108F303BE831513E857023CA2661
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158413.jpgsave_picture_158413.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:644E97D5BFBE04C50AC056A7E811DA12AF9CC2A2
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158414.jpgsave_picture_158414.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B62F81B89D4342117B37F106A727D40B48E18610
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158415.jpgsave_picture_158415.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:1E3D5BE9D62D6F3E4AFB36D860DA37B60B41653A
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158416.jpgsave_picture_158416.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:DF8F0BEA7A217C5BA368251D10BED52228E7828F
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158417.jpgsave_picture_158417.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:09D43418D0E71EA7DAD2DD4D880BD4F36369E60A
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158418.jpgsave_picture_158418.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Immortal Love: Letter From The Past (2015) [En] Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158419.jpgsave_picture_158419.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:D860DA552BCF17E8D98EA794D12DADCC9B7C4B67
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158420.jpgsave_picture_158420.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:ED70D23B9650DBFC39882E749E31EC188297C4BA
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158421.jpgsave_picture_158421.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ CCleaner 5.13.5460 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158422.jpgsave_picture_158422.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:7E32CA6FB3AFDD4FE481E7A9E3B9C796AE47BEC7
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158423.jpgsave_picture_158423.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Reflector 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158425.jpgsave_picture_158425.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:60C983BBAC7F07116D0B493A58100BA1C6953CBF
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158426.jpgsave_picture_158426.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:197CDA36A7A966D37AB678828E89D5D8089F3197
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158427.jpgsave_picture_158427.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:2DF309E023851EC85A519B9C44808B957E9EDA6E
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158428.jpgsave_picture_158428.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:44EA712021B6CBCA38F670C2DE89E7AA85BA0093
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158429.jpgsave_picture_158429.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:66F054B2485DB994892DF1B9A9E10D978397C82D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158430.jpgsave_picture_158430.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:861E055A211331F1A433B893268F854191B8D345
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158431.jpgsave_picture_158431.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - The Best Of Surf Rock & Spaghetti Western (2015) [MP3|224-320 кб/с] <Cou
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158432.jpgsave_picture_158432.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:59D11285A418DD48CA3CE3129D6EF8A5180F4166
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158433.jpgsave_picture_158433.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Cyberfox 43.0.1 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158434.jpgsave_picture_158434.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:85566EF7AF1C626658F20A2BED44E3B91696F61C
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158435.jpgsave_picture_158435.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ K-Lite Codec Pack Update 11.7.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158436.jpgsave_picture_158436.jpg" />
 </div>
 
 

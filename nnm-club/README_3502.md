@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111413.jpgsave_picture_111413.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Opera One 109.0.5097.45 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111414.jpgsave_picture_111414.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ A La Carte - The Ultimate Best of Album (2016) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111415.jpgsave_picture_111415.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DB2EB9B42204196DD3B5CF57FD9E8E17E71E5ECA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111416.jpgsave_picture_111416.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Subtitle Edit 4.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111417.jpgsave_picture_111417.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Tensei Shitara Slime Datta Ken: Coleus no Yume | О моём перерожде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111418.jpgsave_picture_111418.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2A7DE5D8855E4E17AEAAD59D07B36A7E48FD636E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111419.jpgsave_picture_111419.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Imminence - The Black (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111420.jpgsave_picture_111420.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Selected Miami 2022: Tech House Cuts (2022) Unmixed [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111421.jpgsave_picture_111421.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:7D741F1408E3007AE2B0607384848C15CFF6207E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111422.jpgsave_picture_111422.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Oktay Kocamaz - No Money, no Honey (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111423.jpgsave_picture_111423.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:D40EFB88709AED2470FFAD721622A37B2586EB79
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111424.jpgsave_picture_111424.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ BlackRain - Hot Rock Time Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111425.jpgsave_picture_111425.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:1890356E74984F0B09D5A807A2A3C7A46F04748D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111426.jpgsave_picture_111426.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:6FAD1E4FD4C880C632C047D38B9331CC10C05891
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111427.jpgsave_picture_111427.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ I Am - Eternal Steel (2022) [FLAC|Lossless|image + .cue] <Death, Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111428.jpgsave_picture_111428.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Slash - Oh Well feat. Chris Stapleton (2024) Single [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111429.jpgsave_picture_111429.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Too Close To Touch - For Keeps (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111430.jpgsave_picture_111430.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:E2FA93EF3FF6579809B26F2E17DD952451FC5981
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111431.jpgsave_picture_111431.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:9DE76934211BF28FD8417153F4CD05BE188ECA16
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111432.jpgsave_picture_111432.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Tal Farlow - Second Set (1956) 1998, Tokuma [FLAC|Lossless|tracks + .cue] <Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111433.jpgsave_picture_111433.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Jo Stafford - It Had to Be You: Lost Radio Recordings (1950 - 1951) 2017, Real G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111434.jpgsave_picture_111434.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Joel Ross - Nublues (2024) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111435.jpgsave_picture_111435.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:47EE75C67B34795C5FD309074166DFBA9D4DFE62
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111436.jpgsave_picture_111436.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:D5BC46D6547D5E704676A6566075744A4EC329E1
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111437.jpgsave_picture_111437.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Alex O'Rion - Nostalgia (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111438.jpgsave_picture_111438.jpg" />
 </div>
 
 

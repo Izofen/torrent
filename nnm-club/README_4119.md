@@ -6,7 +6,7 @@ Smart Book / Параллельный перевод книг v3.3 (b1065) Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127669.jpgsave_picture_127669.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CurrPorts 2.77 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127670.jpgsave_picture_127670.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5379339FFB3A010398D0B7E8472DB039595795E7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127671.jpgsave_picture_127671.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Udemy, Christ Raharja | The Future of Copywriting: Creating Ad Copy & Video with
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127672.jpgsave_picture_127672.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C64B4F3276FD3861DD277018A417AEBA93513D41
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127673.jpgsave_picture_127673.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:7C78007C91BE3492B92E87ED21228C9CD54C2D5E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127674.jpgsave_picture_127674.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Search By Image v9.0.1 Mod by vadj [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127675.jpgsave_picture_127675.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Motion Science, Cameron Pierron | Beyond The Parallax Effect (2020) WEB-DL [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127676.jpgsave_picture_127676.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:0FF1B2D055926FD404A8506373E3D68BADBF00D9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127677.jpgsave_picture_127677.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:E761F559A4EBC4C2101439CDBAA6C5D44CE21BE6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127678.jpgsave_picture_127678.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:D751895CECB4C0A652B80EB8230928E4B4A572DD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127679.jpgsave_picture_127679.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Vivaldi 6.5.3206.39 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127680.jpgsave_picture_127680.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:D1F8B08E4E68BC295A74399CAA96AF0ABC928B13
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127681.jpgsave_picture_127681.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:3C8C46342786CB7BEB4351CA083CF6FFE823555D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127682.jpgsave_picture_127682.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:E290472277F90866643D4277C1F2E0BBFA1417DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127683.jpgsave_picture_127683.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:6CEB859AD11DE35ECF9423C78A517CB4F3DAF9C3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127684.jpgsave_picture_127684.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:EAFC36B1E90E8CC124FDE5991B5168AF5546BAE5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127685.jpgsave_picture_127685.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:3913D6780E1F1ED534CCFF128D0F16E4F2124C84
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127686.jpgsave_picture_127686.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:2FD85184C2C8DA346C8C3C5198E3F5EB29DD27DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127687.jpgsave_picture_127687.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:8D4615206EB7E26C8A68556D14FB609238D57C39
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127688.jpgsave_picture_127688.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Deven Joshi | Building Cross-Platform Apps with Flutter and Dart (2023) [PDF][EN
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127689.jpgsave_picture_127689.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:8408305603D8C0988554C4F57E84D76630FE5A31
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127690.jpgsave_picture_127690.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:09979BA139E2B4FF85505771D24C5E1F93531679
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127691.jpgsave_picture_127691.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ JetBrains PhpStorm 2023.3.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127692.jpgsave_picture_127692.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:000698918D35DB5538ACAD5E73E587347F197F21
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127693.jpgsave_picture_127693.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Microsoft Visual Studio 2022 Enterprise 17.8.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127694.jpgsave_picture_127694.jpg" />
 </div>
 
 

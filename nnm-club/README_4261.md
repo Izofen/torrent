@@ -6,7 +6,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132187.jpgsave_picture_132187.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9DA379FF6A2D2ADC5CD3EE50FC0E51A4A752B469
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132188.jpgsave_picture_132188.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8F0FF2BFD101BCB6908E9DAE3BC11647375FB9DA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132190.jpgsave_picture_132190.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Dutch House Anthems (2012) [MP3|320 kbps]<House, Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132191.jpgsave_picture_132191.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:1623E94468FA8572F527C031FBE2D86E59524D63
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132192.jpgsave_picture_132192.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:0BB6DB2A98FAD41CFE3D9A9A362E1B31D5D36D9E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132193.jpgsave_picture_132193.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:F203F1B5F63C1DD13EA861DE09794B13E0937CB2
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132194.jpgsave_picture_132194.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:8698BB5C5F3AFDC29BF66E9128E6635CD5FB6E0B
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132195.jpgsave_picture_132195.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:460B1C7E4CE11495FED6143886ADB7589B23278C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132196.jpgsave_picture_132196.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:ED18F99099AE631D3AD076A998F3BE4D92A3D1AE
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132197.jpgsave_picture_132197.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Sexy Girls Wallpapers (29.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132199.jpgsave_picture_132199.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:B3F0C401EE7C40C0EFEB95EF02653AE280B43F21
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132201.jpgsave_picture_132201.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Tunnel Trance Force: Best Of Vol.63 (2012) [MP3|320 kbps]<Trance, Hard Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132202.jpgsave_picture_132202.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ my_revit | Revit interior (2023) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132203.jpgsave_picture_132203.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:AC1A2C9822A27DC033046EE426668E3E13809C3D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132204.jpgsave_picture_132204.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:E3BDB1CD24584AA3A946C369411F29ACC6AD5C0F
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132205.jpgsave_picture_132205.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Frank Wess Johnny Coles - Two At The Top (2012) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132206.jpgsave_picture_132206.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Embarcadero RAD Studio 12 Athens 29.0.50491.5718 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132207.jpgsave_picture_132207.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:5DDB2F491F0F31F40DE105EF07C76D3F534016C7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132209.jpgsave_picture_132209.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Sexy Girls Wallpapers (28.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132211.jpgsave_picture_132211.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:653ED342269208F3B541A457698CA26710DBEB96
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132212.jpgsave_picture_132212.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:E388582845EEEC1BB5BEF4E0B5C5D0BFA2E479AD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132213.jpgsave_picture_132213.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Corona Renderer 11.0 for 3ds Max 2016-2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132214.jpgsave_picture_132214.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Best of Berlin Minimal Underground Vol.2 (2012) [MP3|320 kbps]<Progressive 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132215.jpgsave_picture_132215.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Total Commander 11.02 Final - Titan v32 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132216.jpgsave_picture_132216.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:8EBB02266EBA300B52D0E7BF637252482F4B55B2
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132217.jpgsave_picture_132217.jpg" />
 </div>
 
 

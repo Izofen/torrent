@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51005.jpgsave_picture_51005.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Baggage Inspector (2024) [Multi] (1.0) Repack FitGirl [VR]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51006.jpgsave_picture_51006.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:64A0AB559B8C94DBD4D8873E88035582CF537D18
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51007.jpgsave_picture_51007.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Auslogics Duplicate File Finder 10.0.0.6 RePack (& Portable) by elchupacabra [Mu
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51008.jpgsave_picture_51008.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ O&O Defrag Professional + Server 28.2 Build 10018 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51009.jpgsave_picture_51009.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ ETAP 19.0.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51010.jpgsave_picture_51010.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Auslogics Windows Slimmer 4.0.0.6 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51011.jpgsave_picture_51011.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Adguard 7.18.0 (7.18.4774.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51012.jpgsave_picture_51012.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:31ED977A2B9DB0E89D112147D9276375E50C82F9
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51013.jpgsave_picture_51013.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:888D31075AEAD51FFB2AEEB4BF6AB7216E3FB170
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51014.jpgsave_picture_51014.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:7A981AD2E65F99E00E2A05E99166B02663535A11
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51015.jpgsave_picture_51015.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:5E51D0B959835B51A5808A92B49922E388C85AE3
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51016.jpgsave_picture_51016.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:F844908D7503996C98329F5569B79CECE3A5C17A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51017.jpgsave_picture_51017.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:C406A426B861AEBEB115635E23E435DEAD1C9D71
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51018.jpgsave_picture_51018.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:C406A426B861AEBEB115635E23E435DEAD1C9D71
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51019.jpgsave_picture_51019.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:058AD267FB46AA8922A5702BEAD8F804890A06E9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51020.jpgsave_picture_51020.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:32D4A5B7D871041AB9D3A2C399BC6A7EBCF83C30
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51021.jpgsave_picture_51021.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Deep Purple - Lazy Sod (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51022.jpgsave_picture_51022.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ The Gnomon Workshop, Thomas Butters | Creating a Hero Weapon for Games (2024) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51023.jpgsave_picture_51023.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:1895E9428382247D04CB6388F7F0542F6FC498E1
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51024.jpgsave_picture_51024.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:5B3A423A77DEDC260F339365C4C75010CB959AD0
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51025.jpgsave_picture_51025.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Auslogics BoostSpeed 13.0.0.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51026.jpgsave_picture_51026.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:71094E2305BEF4C4CD48E2BF56E5BD5A8304B019
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51027.jpgsave_picture_51027.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:71094E2305BEF4C4CD48E2BF56E5BD5A8304B019
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51028.jpgsave_picture_51028.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ EZ CD Audio Converter 2024.6.28.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51029.jpgsave_picture_51029.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:38DD700C9DB4BCE53AD525476F55022DCA2D3E7C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51030.jpgsave_picture_51030.jpg" />
 </div>
 
 

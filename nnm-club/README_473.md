@@ -6,7 +6,7 @@ VA - Armin van Buuren - A State Of Trance 1232 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12542.jpgsave_picture_12542.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Ibiza Summer (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12543.jpgsave_picture_12543.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:8D2B2CC61C76A30BC22E6C2A5DE0C9B2DEC0CEDD
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12544.jpgsave_picture_12544.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:BF931FFC7BE8367EDDFC8D1A182C434B4CF787C8
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12545.jpgsave_picture_12545.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Coheed And Cambria - Studio Albums (11 releases) (2002-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12546.jpgsave_picture_12546.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:24D85613A83D7B137D82F85CDED1252C4737C551
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12547.jpgsave_picture_12547.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:5417E3FCE1EEC10A4CB893BBFBE74547462AD900
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12548.jpgsave_picture_12548.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:86C013A1FA3705E5C52F4F3B772D8395F8E67D97
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12549.jpgsave_picture_12549.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:AD75113A4DD19FD181E2D886EF99A6B57457797E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12550.jpgsave_picture_12550.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Assorted Compilation Part 11 (2025) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12551.jpgsave_picture_12551.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ VA - Italo Disco Dance Party Collection Part 2 (2024) CDr, Compilation [FLAC|Los
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12552.jpgsave_picture_12552.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:57EBF49A875CC1625D945C22C06D8DEB1FE3C9FA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12553.jpgsave_picture_12553.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:AC3773B4D47B9F07FF6FFD66A75872FF1C7E9ABA
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12554.jpgsave_picture_12554.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:700A71017A9CA251A3C204CDEEF7A3C5DF10B99B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12555.jpgsave_picture_12555.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:E43136E3770671CE013F6A18C91BD1DFC57182C0
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12556.jpgsave_picture_12556.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:CD3C1C128F4E9715D55D150C7328D29658CA4078
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12557.jpgsave_picture_12557.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Lanpirot | Товарищ "Чума" (Книга 6). (2025) [MP3, Виктор �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12558.jpgsave_picture_12558.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Telegram Desktop 5.16.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12559.jpgsave_picture_12559.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:B93DF8F79EE429B875E0545ED806B4DFC467827C
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12560.jpgsave_picture_12560.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:DF7A7F5FA63E1703B71DDADF8C4E18222D0FF3C2
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12561.jpgsave_picture_12561.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Italo Disco Dance Party Collection Part 3 (2024) CDr, Compilation [FLAC|Los
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12562.jpgsave_picture_12562.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:6DE5DCA4A78860FBA538B30D4D7486107A22BFE8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12563.jpgsave_picture_12563.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:B68EF09E25F8F1480F069965EFFF0CE24EDB7700
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12564.jpgsave_picture_12564.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Pop Evil - Studio Albums (8 releases) (2009-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12565.jpgsave_picture_12565.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Queen - Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12566.jpgsave_picture_12566.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:FCA6243EE96D5FEA0A837733C4ED3D970F2A9FAA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12567.jpgsave_picture_12567.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77505.jpgsave_picture_77505.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lee Ritenour&Chris Botti "Papa Was A Rolling Stone" (2005) HDTV
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77508.jpgsave_picture_77508.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ http://en.wikipedia.org/wiki/Papa_Was_a_Rollin'_Stone
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77511.jpgsave_picture_77511.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:840FFDA92E9503A96B4F1A096C2B3B24AB3B3F18
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77513.jpgsave_picture_77513.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:B55D8058954E9F2BE92A9A9B8EA48EC974A0C550
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77514.jpgsave_picture_77514.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:B55D8058954E9F2BE92A9A9B8EA48EC974A0C550
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77518.jpgsave_picture_77518.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:B9E138F2347CD2383EF2D7E8994E8251C03371A6
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77521.jpgsave_picture_77521.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:BFD6362BD8552E9A4BFD4F0B5786A9D0AD4CCA36
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77524.jpgsave_picture_77524.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:FD254F698655301158209BB3CDD80304C68CCDBF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77530.jpgsave_picture_77530.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:FD254F698655301158209BB3CDD80304C68CCDBF
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77549.jpgsave_picture_77549.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ OpenSUSE 12.2 Milestone 1 [i686 + x86_64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77554.jpgsave_picture_77554.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:22211059172219B043200E857553CDBD5677838A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77555.jpgsave_picture_77555.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:22211059172219B043200E857553CDBD5677838A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77557.jpgsave_picture_77557.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:03318CDFF67D42A13CD600BCB8497E86156248EF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77572.jpgsave_picture_77572.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - 90 Club Hits From The 90's (2007) (4CD Box Set) [FLAC|Lossless]<Disco, Euro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77577.jpgsave_picture_77577.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Lee Ritenour & Dave Grusin - Jazzfestival Montreux 2011 (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77580.jpgsave_picture_77580.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ The Steve Miller Band - Abracadabra (1982) [FLAC|Lossless]<Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77584.jpgsave_picture_77584.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ The Steve Miller Band - Abracadabra (1982) [FLAC|Lossless]<Pop Rock>
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77593.jpgsave_picture_77593.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:41E70A6DE0E4CB696023E25B2AA459622F0BB848
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77594.jpgsave_picture_77594.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:9854ED6F4EDA4325D145994C6AFEF9AD12C2508A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77595.jpgsave_picture_77595.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:2935E1AB9AE0354F1366C96F61AD39FEA433B001
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77600.jpgsave_picture_77600.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Game CIH - аналог Artmoney для ПК, Sorcerer для симбиан и 
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77602.jpgsave_picture_77602.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:65DE7FC3CB6F1A5E7384134700FBEDFAAEEFCF37
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77604.jpgsave_picture_77604.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:65DE7FC3CB6F1A5E7384134700FBEDFAAEEFCF37
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77605.jpgsave_picture_77605.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Bob Marley - Greatest Hits (2007) [MP3|320 кб/с]<Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77606.jpgsave_picture_77606.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:94D0584F582A444D4C1D52F9822EB09F7FF2EA0A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77608.jpgsave_picture_77608.jpg" />
 </div>
 
 

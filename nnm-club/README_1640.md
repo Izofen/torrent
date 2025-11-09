@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42997.jpgsave_picture_42997.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:21A079F0E5045B61776EB6FD0B51F5BF2239F140
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42998.jpgsave_picture_42998.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ CPU-Z 2.11.0 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42999.jpgsave_picture_42999.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ God of War: Ragnarök (2024) [Ru/Multi] (Build 15752266/dlc) Repack FitGirl [Dig
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43000.jpgsave_picture_43000.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Santa Monica Studio в сотрудничестве с Jetpack Interactive пр�
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43001.jpgsave_picture_43001.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:C6F7F793473DB89D8EBE5B51F008D8812CA8E13F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43002.jpgsave_picture_43002.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:C6F7F793473DB89D8EBE5B51F008D8812CA8E13F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43003.jpgsave_picture_43003.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ CCleaner 6.28.11297 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43004.jpgsave_picture_43004.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:74A0AF8B6FB574FD0726DED72C89C3C07607A000
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43005.jpgsave_picture_43005.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15667197/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43006.jpgsave_picture_43006.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Dead Dead Demon's Dededede Destruction | Мёртвые-мёртвые демо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43007.jpgsave_picture_43007.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:206330C2F0D2FD83F87702242A0439506EFFB092
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43008.jpgsave_picture_43008.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:47B1AA8E76157A610E478740A41D226517040534
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43009.jpgsave_picture_43009.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Subnautica (2018) [Ru/Multi] (71288) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43010.jpgsave_picture_43010.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:B667279723F520ED36A99128B1D85D758B4F5278
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43011.jpgsave_picture_43011.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:029F0BB5DB2A0245901BB3FCD01605BADBD5292A
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43012.jpgsave_picture_43012.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Discord запускает DAVE: безопасность общения вых�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43013.jpgsave_picture_43013.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Discord запускает DAVE: безопасность общения вых�
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43014.jpgsave_picture_43014.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:FD8B28A4EE6CEE4AF264E7315F44C8B24EDDE19C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43015.jpgsave_picture_43015.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:7679D61E473E6DB950F29A8F86DECE326FB7C5FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43016.jpgsave_picture_43016.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Crysis 3 (2013) [Ru/En] (1.3) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43017.jpgsave_picture_43017.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:B5802AF5D5538C9A8750E9599A602F6D7587B931
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43018.jpgsave_picture_43018.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:43F7FD9B9683359994542819167531CD579B758E
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43019.jpgsave_picture_43019.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:43F7FD9B9683359994542819167531CD579B758E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43020.jpgsave_picture_43020.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Nightwish - Yesterwynde (2024) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43021.jpgsave_picture_43021.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:97CBF7E6AEA7FA1FC702052717C8F270AA6EE6F0
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43022.jpgsave_picture_43022.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69442.jpgsave_picture_69442.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:22FAFE178928C9CA0A61FBFF2C15B09B29AA7639
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69443.jpgsave_picture_69443.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Eisbrecher - Kaltfront°! (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Goth R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69444.jpgsave_picture_69444.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:AEF088C2C08D7E6ECB7037224C8B1C2441C15B8A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69445.jpgsave_picture_69445.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:9A3A4CD4DCE555D96F228602B4302B5ADDF0460B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69446.jpgsave_picture_69446.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:7874D20BBFC897B930F512382AF91E5122B442B6
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69447.jpgsave_picture_69447.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:4CA68126EF1A28A5EBC905D560C94DB74365D8EE
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69448.jpgsave_picture_69448.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:FC0668FD0AE968C01233DB54364A527EB8EEF242
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69449.jpgsave_picture_69449.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ ALT Linux 8 СП C9F1 [i686, amd64] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69450.jpgsave_picture_69450.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:62356DD536E9D9FE217E6F52CBD40D16F3373E6A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69451.jpgsave_picture_69451.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Dark Horizon - 9 Ways To Salvation (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69452.jpgsave_picture_69452.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:21635C789FA7E94070CB5C8CB1E58ED82E98FA5B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69453.jpgsave_picture_69453.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Desertmsk | Зефир в шоколаде (2022) WEB-DL [RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69454.jpgsave_picture_69454.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Combat Mission: Red Thunder (2023) [En] (2.13/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69455.jpgsave_picture_69455.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:F32145C16B3FACBB4AE8579CF63C1E1A8FD3B2AC
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69456.jpgsave_picture_69456.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Desertmsk | Конфеты Птичье молоко (2022) WEB-DL [RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69457.jpgsave_picture_69457.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:627D01750DF8D3C2C5572272EF05F3F48AF451B0
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69458.jpgsave_picture_69458.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ ALT Linux 8 СП C10F1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69459.jpgsave_picture_69459.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:3A098BA4B4B02F080C9881D106C461B19808396A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69460.jpgsave_picture_69460.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Guns N' Roses - The Lost Acoustic Album (Unplugged & Unphased) (2025) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69461.jpgsave_picture_69461.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Plus Messenger (Telegram+) v11.8.2.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69462.jpgsave_picture_69462.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ PrivaZer Pro 4.0.103 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69463.jpgsave_picture_69463.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:0EF66FB8F743ACD4CA1DBC4F969BF355A89F57E0
 >>Летние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69464.jpgsave_picture_69464.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:87A721C5B0F96FD04C7A26B36369D0A2AF1A4417
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69465.jpgsave_picture_69465.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:90DC85E9F354DFBB69A9417DEE643DD0ECD62EE8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69466.jpgsave_picture_69466.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Speedollama (2024) [Ru/Multi] (1.3.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69467.jpgsave_picture_69467.jpg" />
 </div>
 
 

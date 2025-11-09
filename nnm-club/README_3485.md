@@ -6,7 +6,7 @@ The Roy Poulton Blues Band - Bluesbeard (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110971.jpgsave_picture_110971.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Grackles - Grackles (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110972.jpgsave_picture_110972.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:848823398AC1A991EF2B8A8D0F6C15852DDC77F0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110973.jpgsave_picture_110973.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Mike Fisher - 12 Days of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110974.jpgsave_picture_110974.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Winter Blues Band - Tale of a Lone Lil' Boy (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110975.jpgsave_picture_110975.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:036200C90D50A935D70E7276611ECB16697EA320
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110976.jpgsave_picture_110976.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Brian Stoltz - New World Rising (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110977.jpgsave_picture_110977.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Nicholas Alexander - Lil Hoochie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110978.jpgsave_picture_110978.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Chris Flory - City Life (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110979.jpgsave_picture_110979.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Scott H. Biram - The One & Only Scott H. Biram (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110980.jpgsave_picture_110980.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Archiac Torse - Sneak Attack (1992) Reissue, 2022, Vic Records [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110981.jpgsave_picture_110981.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Bronze - In Chains and Shadows (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110982.jpgsave_picture_110982.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:733B43CF1254403D835EA18CCC20EC871D19147E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110983.jpgsave_picture_110983.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Strom - En Orkan Pa Var Sida (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110984.jpgsave_picture_110984.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:B2FFCEE02E69A8021989A12780C2E50ADB02C767
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110985.jpgsave_picture_110985.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:F56101FA40AA1600A2ADA99CA520E4647DE8F787
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110986.jpgsave_picture_110986.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Skype 8.118.0.205 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110987.jpgsave_picture_110987.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Knightfall - Destiny Calling (2024) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110988.jpgsave_picture_110988.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:742635AEE82848B3E63E28DC514272C6C204F5C6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110989.jpgsave_picture_110989.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:9D90D3E997AFD28F0C1813A9558BBC84AA14ACE8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110990.jpgsave_picture_110990.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:B1A2DA8C4E9CC61973E3F39E8FF06B1941A83119
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110991.jpgsave_picture_110991.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ The Architect - Savage Rhythms (2024) [MP3|320 Kbps] <Nu Metal, Alt. Metal, Hard
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110992.jpgsave_picture_110992.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Pale Revenant - Гибель Солнца (2024) [MP3|320 Kbps] <Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110993.jpgsave_picture_110993.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:FC6C4AE81A45C1F6196C702594525142FBD8340A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110994.jpgsave_picture_110994.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:CE3FF2D2261B3B5CC4A850F1553375BA8F6E9F0B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110995.jpgsave_picture_110995.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Gordi - Fenix (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110996.jpgsave_picture_110996.jpg" />
 </div>
 
 

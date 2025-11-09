@@ -6,7 +6,7 @@ Tricky (Adrian Thaws) - Maxinquaye - Reincarnated (1995) 5CD, Remaster, 2023, UM
 >>Dubstep, Future Garage, Bass Music, UK Garage
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173190.jpgsave_picture_173190.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F446DEB22A96752B7B8425F053246059B6BDA043
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173191.jpgsave_picture_173191.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Musical Landscape: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173192.jpgsave_picture_173192.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:966F58FC31767BB967023E21584A4F41E1CAED11
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173193.jpgsave_picture_173193.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:A9ACF309488381ED3A0A8616E6A82496DC41252F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173194.jpgsave_picture_173194.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:F2A39AF53139F0CA85E33A71E067FDAF2E186833
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173195.jpgsave_picture_173195.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:B872580B145FD32FE5FCF980FE42374D0A9E35D5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173196.jpgsave_picture_173196.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Black Sabbath - Reunion (1998) 25th Anniversary Expanded Edition, 2023, Epic [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173197.jpgsave_picture_173197.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Topaz Photo AI 2.0.5 (x64) Portable by conservator [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173198.jpgsave_picture_173198.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Kanga - Under Glass (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Industrial, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173199.jpgsave_picture_173199.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Meduza - Meduza (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173200.jpgsave_picture_173200.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2941 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173201.jpgsave_picture_173201.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - Black Hole Trance Music 10-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173202.jpgsave_picture_173202.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Tricky (Adrian Thaws) - Maxinquaye - Reincarnated (1995) 5CD, Remaster, 2023, UM
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173203.jpgsave_picture_173203.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ The Dear Hunter - Migrant Returned (2013) Remaster, 2023, Equal Vision Records [
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173204.jpgsave_picture_173204.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:47A11EB5130BE52FFEB40FCE60E8F000314F936D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173205.jpgsave_picture_173205.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ U.F.O. - Lights Out In Babenhausen - Live 1993 (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173206.jpgsave_picture_173206.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173207.jpgsave_picture_173207.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:9442850BF88BC406B661E5ECEFDAA5510725E9F9
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173208.jpgsave_picture_173208.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Golden Earring - Cut (1982) Remastered & Expanded, 2023, Red Bullet [FLAC 24/192
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173209.jpgsave_picture_173209.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:2613E07577393947DD90B07A07C6BAEC4F5A879F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173210.jpgsave_picture_173210.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:53669F771353AD2F598CAC9CE0AB0EB20A8FBF93
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173212.jpgsave_picture_173212.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Nitrate - Feel The Heat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173213.jpgsave_picture_173213.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ USBclean 3.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173214.jpgsave_picture_173214.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Blessed Curse - Pray For Armageddon (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173215.jpgsave_picture_173215.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:A0D953869C2FA03DE32070DBB29BEF156AA5088E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173216.jpgsave_picture_173216.jpg" />
 </div>
 
 

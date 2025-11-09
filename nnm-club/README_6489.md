@@ -6,7 +6,7 @@ Adobe Photoshop Lightroom Classic 2026 15.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205617.jpgsave_picture_205617.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1AF17CF5919F3BAC303BB64B7311A353C8B980C5
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205618.jpgsave_picture_205618.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:184034C7CC4828994D95096E9E341B0BA091617B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205619.jpgsave_picture_205619.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:371A15D67D18B8EB4E814FCCEB52CFFE07ABABAF
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205620.jpgsave_picture_205620.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E38D78C370CABC5AF252E56A4025BCBBE5D38BC5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205621.jpgsave_picture_205621.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Natalia M. King - AfroBlues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205622.jpgsave_picture_205622.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Matt Pascale & The Stomps - Home (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205623.jpgsave_picture_205623.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:4947AD1DE6516D644C54E72CBFA222EE488B6F9F
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205624.jpgsave_picture_205624.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Leilani Kilgore - Tell Your Ghost (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205625.jpgsave_picture_205625.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Laura Evans - Out of the Dark (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205626.jpgsave_picture_205626.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Henry Conlon - American Wild (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, 
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205627.jpgsave_picture_205627.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Atua Blues - Two Roots (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205628.jpgsave_picture_205628.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.384-34-CL237394/dlc) Repack Necros [Ultima
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205629.jpgsave_picture_205629.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Willie Phoenix - Flower Machine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205630.jpgsave_picture_205630.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ A Legionary's Life (2019) [Multi] (1.3.14.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205631.jpgsave_picture_205631.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Adobe Photoshop 2026 27.0.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205632.jpgsave_picture_205632.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:4910A2B26BC9E3186F083B6E0594A6DCC2985EF4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205633.jpgsave_picture_205633.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205634.jpgsave_picture_205634.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:B40336292CEF69ED54E44D8B72FE38ED7AB29067
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205635.jpgsave_picture_205635.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:C352D006F948984F10ABF3242C95F7FD2458E4F8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205636.jpgsave_picture_205636.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:63F81B52C8D794C0943971F6D7EDC8C72FEF2401
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205637.jpgsave_picture_205637.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:E06A2A53F3CC2A3AB80811BCFE470B4F1552AEEC
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205638.jpgsave_picture_205638.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:97A3088434A2EBFCFBBD10FE4CC876D244D84DAC
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205639.jpgsave_picture_205639.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - Anything and everything assorted part 10 (2025) [MP3|320 Kbps] <Electronic,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205640.jpgsave_picture_205640.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:625E7C4B2B6CB8CB9C4BC52DDB5A8A1CA7CE9DCF
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205641.jpgsave_picture_205641.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:B39F6655EB8B81AD3A45FA3F40563D43ECFF3A92
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205642.jpgsave_picture_205642.jpg" />
 </div>
 
 

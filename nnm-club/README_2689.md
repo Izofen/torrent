@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70664.jpgsave_picture_70664.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9614F472E87A9832D571F182D5013EEC8AACB99E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70665.jpgsave_picture_70665.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dynazty - Game of Faces (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy-Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70666.jpgsave_picture_70666.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:BDC1E0F6E1FBDB273256D262B598A48DF20EE676
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70667.jpgsave_picture_70667.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:8D7856AD46677A45C9CAE000B52986B4F6B23E8E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70668.jpgsave_picture_70668.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Soltur - Ride as One (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70669.jpgsave_picture_70669.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Carmen Consoli - Terra Ca Nun Senti (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70670.jpgsave_picture_70670.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ The Great Old Ones - Kadath (2025) [FLAC|Lossless|image + .cue] <Atmospheric Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70671.jpgsave_picture_70671.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:39BBE3CDDD34FC7696C4454BFEBDB80E349704EE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70672.jpgsave_picture_70672.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Harakiri For The Sky - Scorched Earth (2025) [FLAC|Lossless|image + .cue] <Post-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70673.jpgsave_picture_70673.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:2B8E98E2F1E2E2407D99542BE1D32B9E8295F8AE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70674.jpgsave_picture_70674.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Carmen McRae - Milestones Of A Jazz Legend (1954 - 1961) 10CD, 2019, The Intense
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70675.jpgsave_picture_70675.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Phear - Save Our Souls (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70676.jpgsave_picture_70676.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:1873E9412E5A9250B252013C6F9499582D52FD71
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70677.jpgsave_picture_70677.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:BEC53A6583EC9178B970119ABC63AB63FF00AD25
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70678.jpgsave_picture_70678.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:5E6EDDD27615E59ADDAED654160628A6840758D2
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70679.jpgsave_picture_70679.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:C1193141364B5ABD9C8A68C39A2CDEE368628257
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70680.jpgsave_picture_70680.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:73A8A8421341B70CAF50F7EC209FF60D689D781F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70681.jpgsave_picture_70681.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:E6DA6221C6FC4E81A5CF843A276EB644729F4AF5
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70682.jpgsave_picture_70682.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Telegram Desktop 5.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70683.jpgsave_picture_70683.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Musical kaleidoscope part 26 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70684.jpgsave_picture_70684.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:6E22309A43C521F2782712C55CEA78509FA2C6AE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70685.jpgsave_picture_70685.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:0A856C914664AB120FE81918B7AF3BFBBB21B6A1
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70686.jpgsave_picture_70686.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:02A05AA6CBF7DE972224B931911DB18261A8665D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70687.jpgsave_picture_70687.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:1E8ADE97F7ADDDD5B8576F646A8314DAC0C23863
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70688.jpgsave_picture_70688.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:A3CE0484AB43E679C99A90B5D83C43B4884A63A0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70689.jpgsave_picture_70689.jpg" />
 </div>
 
 

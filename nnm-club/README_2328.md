@@ -6,7 +6,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60895.jpgsave_picture_60895.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ iVentoy 1.0.20 Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60896.jpgsave_picture_60896.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A02E6BF4386F44457C25816B24657B4E8FF51796
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60897.jpgsave_picture_60897.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ YouTube ReVanced Extended 19.11.38 (RVP v2.223.0) Mod by Number one' + microG Gm
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60898.jpgsave_picture_60898.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:57F87344C8328156D5809DD30EFCF1A3A7375B86
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60899.jpgsave_picture_60899.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (13112295) Repack Other s [Early Acc
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60900.jpgsave_picture_60900.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:CB239289A101CF088B3D2B41AD7101A4DA13A0A5
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60901.jpgsave_picture_60901.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Real Estate Simulator: From Bum to Millionaire (2024) [Ru/Multi] (3815219) Repac
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60902.jpgsave_picture_60902.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:01AB5B05882C4F5F4B3EF7A3CA9467197FEB1AAF
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60903.jpgsave_picture_60903.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Geneforge 2 - Infestation (2024) [En] (1.0/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60904.jpgsave_picture_60904.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:6D44E59BC3E02C96C60053E4FB77D2AD8584C2EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60905.jpgsave_picture_60905.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:6D44E59BC3E02C96C60053E4FB77D2AD8584C2EF
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60906.jpgsave_picture_60906.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ StopUpdates10 4.6.2024.0403 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60907.jpgsave_picture_60907.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:42692A67882A9548D87264FF0ABFC48ECE263C0C
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60908.jpgsave_picture_60908.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:59041F83643B62FB6D3D16076C940F7323A7D761
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60909.jpgsave_picture_60909.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Tempus Rail (2024) [En] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60910.jpgsave_picture_60910.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Adobe Acrobat Pro 2024.001.20643 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60911.jpgsave_picture_60911.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:F745A56C50706A2BC5B661925EF140D4A3A4887F
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60912.jpgsave_picture_60912.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Topaz Photo AI 2.4.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60913.jpgsave_picture_60913.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:99D9064A073831C79D1276A93CBADAF845F4B4D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60914.jpgsave_picture_60914.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Metallic Rouge | Металлическая Руж [2024, TV, 13 эп.] WebRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60915.jpgsave_picture_60915.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:C7B64B8F7B4C4466D204C8D550A844B634889F00
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60916.jpgsave_picture_60916.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:3FDEB723369351980BB9A938229500C0D9B1C9E8
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60917.jpgsave_picture_60917.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Ashampoo Driver Updater 1.6.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60918.jpgsave_picture_60918.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:57A4E02C362886C3C6C2C7456CA17D7271ED5203
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60919.jpgsave_picture_60919.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:41715E324BE27AD58303EE110EFA5DA1E905E93A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60920.jpgsave_picture_60920.jpg" />
 </div>
 
 

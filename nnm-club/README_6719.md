@@ -6,7 +6,7 @@ Alexey Nechaev - Inmost (2020) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231073.jpgsave_picture_231073.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0E94C3809D03D9263D11190D38A4AC32EC773597
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231075.jpgsave_picture_231075.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Bridge to Another World 11: A Trail of Breadcrumbs (2023) [En] (1.0) Unofficial 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231076.jpgsave_picture_231076.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Integrity Plus 12.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231077.jpgsave_picture_231077.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Opera 99.0.4788.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231078.jpgsave_picture_231078.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Luminar Neo 1.12.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231080.jpgsave_picture_231080.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Telegram Desktop 4.8.7 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231082.jpgsave_picture_231082.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Reg Organizer 9.20 Beta 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231083.jpgsave_picture_231083.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:C4E68DF7CC025E886A45823C8E6F71CF83EF63CA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231085.jpgsave_picture_231085.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:1332E4B3805C47917CBF0D214B099C2CDCCCACB1
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231086.jpgsave_picture_231086.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Ornamentos Del Miedo - El Cosmos Me Observa En Silencio (2023) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231087.jpgsave_picture_231087.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Internet Download Manager 6.41 Build 12 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231088.jpgsave_picture_231088.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Fort Firewall 3.9.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231091.jpgsave_picture_231091.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Contacts Journal CRM 3.3.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231092.jpgsave_picture_231092.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:20BCFA58DCEEA5FEDCEB46F1DDA950D3C552FAB0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231093.jpgsave_picture_231093.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Landscape - Before and After (2023) [MP3|320 Kbps] <New Wave, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231095.jpgsave_picture_231095.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:1970076C51EDB58ACDAA187A591EAB50F82C14A8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231097.jpgsave_picture_231097.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Mega Drive - 200XAD (2023) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Punk, New W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231099.jpgsave_picture_231099.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Recite The Cynic - Recite The Cynic (2023) [FLAC|Lossless|WEB-DL|tracks] <Indust
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231101.jpgsave_picture_231101.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ MusicBrainz Picard 2.9.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231102.jpgsave_picture_231102.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Various Artists - 80s Finest Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231103.jpgsave_picture_231103.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Color Wheel 7.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231105.jpgsave_picture_231105.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:492AA0728B5312B076B2EB1A3E130D878A41193C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231106.jpgsave_picture_231106.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Feuerschwanz - Fegefeuer (2023) 3CD, Digital Deluxe Album [MP3|320 Kbps] <Gothic
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231107.jpgsave_picture_231107.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:4E359156C3AE58046CAC1C68B1FE0C991AB9169C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231109.jpgsave_picture_231109.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Damnatory - The Complete Disgoregraphy 1991-2003 (2018) Compilation [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231111.jpgsave_picture_231111.jpg" />
 </div>
 
 

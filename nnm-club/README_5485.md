@@ -6,7 +6,7 @@ J.J. Johnson - The Eminent Jay Jay Johnson, Vol.2 (1953 - 1955) 1995, Blue Note,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169554.jpgsave_picture_169554.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:741A2DD36E1F59AAB9762923CFE0229867ABA04B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169555.jpgsave_picture_169555.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Soreption - Engineering The Void (2014) [WavPack|Lossless|image + .cue] <Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169556.jpgsave_picture_169556.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Molybaron - Something Ominous (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169557.jpgsave_picture_169557.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Internet Download Manager 6.38 Build 15 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169558.jpgsave_picture_169558.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:C3DDAA562D513FD870F4845DC105BF8E149DF8E1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169559.jpgsave_picture_169559.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Fork 2.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169560.jpgsave_picture_169560.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:5D753B8E02CFE7E8C114151FB0B7079BDA2C7F04
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169561.jpgsave_picture_169561.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Best of Chill Jazz 1 (2019) [AAC|~348 Kbps] <Chill Out, Lounge, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169562.jpgsave_picture_169562.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:8ED111849EDF21F79E5B7F8290C3553893143BCB
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169563.jpgsave_picture_169563.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Best of Chill Jazz 2 (2019) [AAC|~343 Kbps] <Chill Out, Lounge, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169564.jpgsave_picture_169564.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Guns N’ Roses - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169565.jpgsave_picture_169565.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:BCE225A931AEE27BB59C8CBD72A37D81F51C684F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169566.jpgsave_picture_169566.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:6786039EFA93A901066BDC4999C546A064BED6B5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169567.jpgsave_picture_169567.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ GraphicConverter for Mac 12.0.8 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169568.jpgsave_picture_169568.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - Best of Chill Jazz 7 (2020) [AAC|~348 Kbps] <Chill Out, Lounge, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169569.jpgsave_picture_169569.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:82040127D13748158CD9EBB31662DC849AC5140B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169570.jpgsave_picture_169570.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:189929BE43022C90B6828CDA1229B3B9E27AC38D
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169571.jpgsave_picture_169571.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:DA7DBA1710CCB1348E15C93C44242B2FF66C2209
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169572.jpgsave_picture_169572.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Icecream PDF Editor PRO 2.43 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169573.jpgsave_picture_169573.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Burito - Samskara (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169574.jpgsave_picture_169574.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - Finesse Jazz, Vol.1 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~337 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169575.jpgsave_picture_169575.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:A2EFEE9127CF998D059016BE04A13B7C90DCD922
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169576.jpgsave_picture_169576.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:3FECC6526EC0D777C848DC3A0B9B9BAE4D515427
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169577.jpgsave_picture_169577.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ SQLPro Studio 2021.106 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169578.jpgsave_picture_169578.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:8D0EA6DDC776DECDEC375C5DB7B2FC0F620AD208
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169579.jpgsave_picture_169579.jpg" />
 </div>
 
 

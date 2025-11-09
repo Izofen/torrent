@@ -6,7 +6,7 @@ All My Shadows - Eerie Monsters (2023) [FLAC|Lossless|image + .cue] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234617.jpgsave_picture_234617.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Moby - Resound NYC (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Ambien
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234618.jpgsave_picture_234618.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.707 (Updated May 2022) - Ор
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234619.jpgsave_picture_234619.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sattelfest - Die Welt steht Kopf (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234620.jpgsave_picture_234620.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:563050349A23969A658E2C03A4C1C1E85F0DA088
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234621.jpgsave_picture_234621.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ iZotope - Tonal Balance Control 2 2.5.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234622.jpgsave_picture_234622.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Cold Drop - Cold Drop (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234623.jpgsave_picture_234623.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ RAM Saver Professional 23.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234624.jpgsave_picture_234624.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Soul Grinder - Filth Encrusted (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234625.jpgsave_picture_234625.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:7FBA79ABC18E00E37330599BC84FA085C276EADC
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234626.jpgsave_picture_234626.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:AD2265CE51436B1B4A801EADD3771072FE4466B1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234627.jpgsave_picture_234627.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Kraftwerk - Remixes (2020) [AAC|~320 Kbps] <Electro, Synth-pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234628.jpgsave_picture_234628.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Eterea - Legend (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234629.jpgsave_picture_234629.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Mp3tag 1.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234630.jpgsave_picture_234630.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:C651999F4A617C1CF3D234CA1F43807DFC73A053
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234631.jpgsave_picture_234631.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Didier Marouani & Paris France Transit - Concerts En URSS (1983) [AAC|~336 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234632.jpgsave_picture_234632.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Udemy, Nathalia Ferrari | Environment Course in Blender 2.93 (2022) PCRec [EN / 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234633.jpgsave_picture_234633.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:F3F4D698EDF9DCEC839327AC2D17875ED3F553E4
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234634.jpgsave_picture_234634.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:40CA38129C8875B848EFA192D79E6640D71F2A41
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234635.jpgsave_picture_234635.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Tragedian - Master Of Illusions (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234636.jpgsave_picture_234636.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:658D25DF7CFE4B9B4D323597A3075FB1CA898EB6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234637.jpgsave_picture_234637.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Ocenaudio 3.11.27 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234638.jpgsave_picture_234638.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:69BF885532CEDB7C4F7F5462BF697400360FA886
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234639.jpgsave_picture_234639.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Danilo Perez - The Journey (1994) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234640.jpgsave_picture_234640.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Sarcophilous - Hive Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234641.jpgsave_picture_234641.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Legend of Grimrock 2 (2014) [En] (2.2.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234642.jpgsave_picture_234642.jpg" />
 </div>
 
 

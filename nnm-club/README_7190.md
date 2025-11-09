@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245893.jpgsave_picture_245893.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wipr – Ad and Tracker Blocker 1.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245894.jpgsave_picture_245894.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0AA04146B1379650E9ACB063BFE0FE6E4A89400C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245895.jpgsave_picture_245895.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:91569BA7E4253E9B58B225B4E3D4093EA5E4EF2C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245896.jpgsave_picture_245896.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:207CEE3DA6B124A506E60517F82A337AAC90E12B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245897.jpgsave_picture_245897.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7E274465DEBF916466874AF49C0A3D39BAA206B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245898.jpgsave_picture_245898.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Roxanne - Stereo Typical (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245899.jpgsave_picture_245899.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:4E0B4FEB85A69C3664DAD8CC6A1F9611378AE9AF
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245900.jpgsave_picture_245900.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:A349743E919DA077E71C23EF8EA4F8531C78083A
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245901.jpgsave_picture_245901.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:70118904133EAC03ED2FFD3043BF2A01A04D9C97
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245902.jpgsave_picture_245902.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:98832BA5BF586FD2DEED209D7A6DA88244C7593F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245903.jpgsave_picture_245903.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ City and Colour - The Love Still Held Me Near (2023) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245905.jpgsave_picture_245905.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:55F043669C2A7D1EFF8E5A07D42C792369DDF6BD
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245906.jpgsave_picture_245906.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ MotoGP. Этап 04. Гран-при Испании. Спринт (29.04.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245907.jpgsave_picture_245907.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ DropDMG 3.6.2 CR2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245908.jpgsave_picture_245908.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ NetWorker Pro 8.5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245909.jpgsave_picture_245909.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Dan Nimmer Trio - Horizons (2020) Venus Records [FLAC|Lossless|image + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245910.jpgsave_picture_245910.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ HWiNFO 7.27 Build 4820 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245911.jpgsave_picture_245911.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Johnny Smith - The New Johnny Smith Quartet (1956) Remaster, 2016, Warner[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245912.jpgsave_picture_245912.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Sandboxie 5.63.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245913.jpgsave_picture_245913.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:2FD1CD42C87073691CBB1AC2851A021FCD9C9DC7
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245914.jpgsave_picture_245914.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:9D40CE6EB4CF985D01E1A21704616C4F67627C0B
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245915.jpgsave_picture_245915.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Highway Chile - Keeper Of The Earth (2008) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245916.jpgsave_picture_245916.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ HammerFall - Dominion (2019) Japanese Edition [WavPack|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245917.jpgsave_picture_245917.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:9A9C8BA320CCF232619FAFFE6100CDFBAD6A3F95
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245918.jpgsave_picture_245918.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:58D278C527488137EEF897CE71EEE5C0AC497EBC
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245919.jpgsave_picture_245919.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ The Closing Shift (2022) [Multi] (1.10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134063.jpgsave_picture_134063.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MAMIYA: A Shared Illusion of the World's End (2021) [Multi] (7.1.2/dlc) Scene Te
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134104.jpgsave_picture_134104.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mundaun (2021) [Ru/Multi] (1.0.444) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134434.jpgsave_picture_134434.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.10.13.12.03/dlc) Repack Oth
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136844.jpgsave_picture_136844.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Youropa (2018) [Ru/Multi] (2.0.10) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137013.jpgsave_picture_137013.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Expanse: A Telltale Series (2023) [Ru/Multi] (1.0.902523) Repack dixen18 [Ep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137073.jpgsave_picture_137073.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Finding Paradise (2017) [En/Ch] (1.2c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137217.jpgsave_picture_137217.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Ken Follett’s The Pillars of the Earth (2017) [Ru/Multi] (1.1.636) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137259.jpgsave_picture_137259.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Minecraft: Story Mode A Telltale Games Series (2015) [Ru/En] (1.0) Repack R.G. �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137360.jpgsave_picture_137360.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Of Light and Darkness: The Prophecy (1998) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137875.jpgsave_picture_137875.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:94BA4D2750C6883972DE53E683D0551579FE23F5
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138343.jpgsave_picture_138343.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138735.jpgsave_picture_138735.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Room Three (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139961.jpgsave_picture_139961.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Daylight (2014) [Ru/Multi] (Build 432586/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141095.jpgsave_picture_141095.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Amnesia: The Dark Descent / Амнезия. Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141764.jpgsave_picture_141764.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Californium (2016) [Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141981.jpgsave_picture_141981.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Tormented Souls (2021) [Ru/Multi] (Build 7622656) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142673.jpgsave_picture_142673.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Nerved (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142931.jpgsave_picture_142931.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Father's Day (2022) [Ru/En] (1.6.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143059.jpgsave_picture_143059.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143815.jpgsave_picture_143815.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) License GOG [Episodes 1-3
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143856.jpgsave_picture_143856.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Broken Sword: The Sleeping Dragon / Сломанный меч 3: Спящий д
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144025.jpgsave_picture_144025.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144142.jpgsave_picture_144142.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.2a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144447.jpgsave_picture_144447.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ First Date: Late To Date (2022) [Ru/Multi] (Build 9491049/0.3.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144680.jpgsave_picture_144680.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Death Stranding (2020) [Ru/Multi] (1.06hf/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144821.jpgsave_picture_144821.jpg" />
 </div>
 
 

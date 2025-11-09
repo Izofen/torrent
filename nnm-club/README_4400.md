@@ -6,7 +6,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137462.jpgsave_picture_137462.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SOS, Дед Мороз или Все сбудется! (2015) WEB-DL [H.264/720p
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137463.jpgsave_picture_137463.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3779124B5E6684279A7DB6EF2DBDF4F0F5544EBC
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137464.jpgsave_picture_137464.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dark Tales 10: Edgar Allan Poe's The Raven / Темные Истории 10: Э�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137465.jpgsave_picture_137465.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4B47CFBCA890D2E83358776C02C2F62C9696E847
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137466.jpgsave_picture_137466.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:51222B8E3158B3AC258578CB5D3A341CEF09CD4F
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137467.jpgsave_picture_137467.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:0C8D1F605CF770C750E9CF3733E2687108ED748F
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137468.jpgsave_picture_137468.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Valhalla Hills (2015) [Ru/Multi] (1.02.01/dlc) SteamRip R.G. Игроманы
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137469.jpgsave_picture_137469.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Zero To Mastery Academy (ZTM), Jesse Zhou | Three.js Bootcamp: Zero to Mastery (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137470.jpgsave_picture_137470.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:7D42DE48BA87FFE52075F4A2708BD749BD78FE3C
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137471.jpgsave_picture_137471.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Wallz Pro 1.3.1 [Ru] - Обои
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137472.jpgsave_picture_137472.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 5 (2019) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137473.jpgsave_picture_137473.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:45ABB217286A636E06FF39F5841C0898D6920914
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137474.jpgsave_picture_137474.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Hoshiai no Sora | Stars Align | Небо, где встретились звёз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137475.jpgsave_picture_137475.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:DD79153D693BCE43AD4D148DDBF897BB25463798
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137476.jpgsave_picture_137476.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Comedy Woman (31.12.2018) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137477.jpgsave_picture_137477.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ EssentialPIM Pro 11.2 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137478.jpgsave_picture_137478.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:11DA9E5580EE2A19E30DC37EB74B2DFA4B878CB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137479.jpgsave_picture_137479.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:DB715E3C56FD69D24DEAA1DB4D6735D3B7F27051
 >>23
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137480.jpgsave_picture_137480.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:C5AF2A90ED5F121A054F0D5D570277CB9C2601FE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137481.jpgsave_picture_137481.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:7A52C104AF9AFB74B975B5F488F8A16FBA750074
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137482.jpgsave_picture_137482.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:FA63D2E940B88676B74460CEB695C2DA7F0F53AF
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137483.jpgsave_picture_137483.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:1F9EFCE66ED3C84AC765FB94DBC9C1028F9E5563
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137484.jpgsave_picture_137484.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:F62370B5A726622039E7A80CE9F422D449A7452E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137485.jpgsave_picture_137485.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:69B86BC014F80B1EC8E80A471B0A48D575694D86
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137487.jpgsave_picture_137487.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:26DB40BFF0F048A032A83BAACF0A4CD43D7E80C4
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137488.jpgsave_picture_137488.jpg" />
 </div>
 
 

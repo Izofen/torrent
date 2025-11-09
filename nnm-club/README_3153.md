@@ -6,7 +6,7 @@ B.o.B feat. Hayley Williams of Paramore - Airplanes (2010) WEB-DLRip [H.265/2160
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101555.jpgsave_picture_101555.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1C31B9C4BF69BCE0C12F9DFD2A9009A7D3256C83
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101556.jpgsave_picture_101556.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sexual Music Collection, Soft Jazz Mood - Endless Amour: Twilight Glow (2024) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101557.jpgsave_picture_101557.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Tarja - Rocking Heels: Live at Hellfest (2024) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101558.jpgsave_picture_101558.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Above & Beyond - Tranquility Base Vol. 2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101559.jpgsave_picture_101559.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Above & Beyond - Tranquility Base Vol. 2 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101560.jpgsave_picture_101560.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Rolling Stones - Welcome To Shepherds Bush (Live) (2024) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101561.jpgsave_picture_101561.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Skunk Anansie - Post Orgasmic Chill (25th Anniversary Expanded Edition) (1999) R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101562.jpgsave_picture_101562.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ PowerDirector – Video Editor v14.6.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101563.jpgsave_picture_101563.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VA - Deep Focus (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101564.jpgsave_picture_101564.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:D792A0A051DE7A4B1B4D7D0500E23F5D5B9C2763
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101565.jpgsave_picture_101565.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Cat-X - Trapped State (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101566.jpgsave_picture_101566.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Impellitteri - War Machine (2024) 2 x CD, Japanese Edition, Deluxe Edition, Limi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101567.jpgsave_picture_101567.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Sexual Music Collection - Sedutopia: Love-Making Jazz, Intimate Vibes (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101568.jpgsave_picture_101568.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:D3859CD9219B5ACEB72F3E264469C120D3303341
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101571.jpgsave_picture_101571.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Dance Gavin Dance - Pantheon (2025) [FLAC|Lossless|tracks + .cue] <Post-Hardcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101572.jpgsave_picture_101572.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:83C60055A471D09BFCCB9D234E3FF0DBD816FD50
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101573.jpgsave_picture_101573.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:511AF1B25367C9593E2C6DD4EC499D2156EFDC1F
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101574.jpgsave_picture_101574.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Radio Wolf and Parallels - Proximity (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101575.jpgsave_picture_101575.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:3387063CCDB14FC04E17AEA03A27A3126FA20315
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101576.jpgsave_picture_101576.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:657CE2530916AC51DFC1E5AF9BC8D21D1037A50A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101577.jpgsave_picture_101577.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:9AE353A6FCC492EEFFFE82A0188FEE3E76B56B1A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101578.jpgsave_picture_101578.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:F1A82595286931BDC3E3FBBA8C5006F59551939C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101579.jpgsave_picture_101579.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:4547C63F09EF8C33D3A1A415957ABAD0FA80B94F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101580.jpgsave_picture_101580.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:D40612FF8E3D30E0DAFA319A95DF064F6C683045
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101581.jpgsave_picture_101581.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Compilation Part 195 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101582.jpgsave_picture_101582.jpg" />
 </div>
 
 

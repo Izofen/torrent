@@ -6,7 +6,7 @@ Topaz Photo 1.0.0 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1205.jpgsave_picture_1205.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Photoshop 2025 26.11.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1234.jpgsave_picture_1234.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FL Studio Producer Edition 25.1.6.4997 - All Plugins Edition + Addons [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1293.jpgsave_picture_1293.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FL Studio Producer Edition 25.1.6.4997 - All Plugins Edition + Addons (x64) RePa
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1312.jpgsave_picture_1312.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.3 RePack (& Portable) by elchupaca
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1320.jpgsave_picture_1320.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Abelssoft HappyCard 4.05 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1324.jpgsave_picture_1324.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.1 Build 6 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1331.jpgsave_picture_1331.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Topaz Gigapixel AI Pro 8.4.4 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1333.jpgsave_picture_1333.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ PotPlayer 250915 (1.7.22619) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1342.jpgsave_picture_1342.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Audacious 4.5.1 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1346.jpgsave_picture_1346.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Topaz Gigapixel 1.0.1 + models Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1363.jpgsave_picture_1363.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ HOFA - Colour Delay 1.0.4 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1418.jpgsave_picture_1418.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Exacoustics - GHOST 1.1.8 Standalone, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1420.jpgsave_picture_1420.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Serif Affinity Publisher 2.6.3.3322 Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1438.jpgsave_picture_1438.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Overloud - TH-U Slate Edition 2.0.3 STANDALONE, VST, VST 3, AAX (x64) RePack by 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1441.jpgsave_picture_1441.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Serif Affinity Photo 2.6.3.3322 Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1456.jpgsave_picture_1456.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ iZotope - Ozone 12 Advanced 12.0.2 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1461.jpgsave_picture_1461.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Serif Affinity Designer 2.6.3.3322 Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1468.jpgsave_picture_1468.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Videomass 6.1.20 Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1480.jpgsave_picture_1480.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ iZotope - RX 11 Audio Editor Advanced 11.3.0 STANDALONE, VST 3, AAX (x64) RePack
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1485.jpgsave_picture_1485.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ reaConverter Pro 7.853 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1629.jpgsave_picture_1629.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Dashcam Viewer 4.0.7 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1630.jpgsave_picture_1630.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ The KMPlayer 4.2.3.25 repack by cuta (build 1) [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1694.jpgsave_picture_1694.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Topaz Gigapixel AI Pro 8.4.4 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1890.jpgsave_picture_1890.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ PotPlayer 250915 (1.7.22619) Beta RePack (& portable) by 7sh3 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1894.jpgsave_picture_1894.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Chaos Vantage 3.0.1 beta [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1993.jpgsave_picture_1993.jpg" />
 </div>
 
 

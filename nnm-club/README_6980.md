@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239637.jpgsave_picture_239637.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Swan Valley Heights - Terminal Forest (2023) [MP3|320 Kbps] <Stoner, Doom Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239638.jpgsave_picture_239638.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4E8815B91BCDF5F98D5B09BD9DD1547682462FFD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239639.jpgsave_picture_239639.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Sonible Plugins 04.2023 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239640.jpgsave_picture_239640.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:C8F5BEC4A697AC7EE5BEB3DA08FC43A4ED409C50
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239641.jpgsave_picture_239641.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Hypnotised: A Journey Through British Trance Music [1993 - 2002] (2023) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239642.jpgsave_picture_239642.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:34418DAD6B966B0F91CF5660733612FDA5B595C8
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239643.jpgsave_picture_239643.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ SponsorBlock for YouTube 5.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239644.jpgsave_picture_239644.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Crumbsuckers - Beast On My Back (1988) 1998, Century Media / KINGfisher [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239645.jpgsave_picture_239645.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Qalculate! 4.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239646.jpgsave_picture_239646.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:9301F63B43F4FA6486F0A5594B27DC8AB7FC2D73
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239647.jpgsave_picture_239647.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:B08F37698CD2FC79D53101B75D5B67FE7C66D782
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239648.jpgsave_picture_239648.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Alcatrazz - Take No Prisoners (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239649.jpgsave_picture_239649.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ MotoGP. Этап 01. Гран-при Португалии. Гонка (26.03.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239650.jpgsave_picture_239650.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ MaxSnap 1.74 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239651.jpgsave_picture_239651.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:9E3ADFEE3734DC5D94A047B45ED6F7E35DDE2FF8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239652.jpgsave_picture_239652.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:89F17DDD9D470514AFE29DCC768BDE5E06F24D8B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239653.jpgsave_picture_239653.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Valentina Studio Pro 12.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239654.jpgsave_picture_239654.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Kaspersky Rescue Disk 18.0.11.3 [24.04.2022] [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239655.jpgsave_picture_239655.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ The Black Cats Eye - The Empty Space Between A Seamount And Shock-Headed Julia (
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239656.jpgsave_picture_239656.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:76EA0BE293BBD6745DCC219FC13B407088AB01CF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239657.jpgsave_picture_239657.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:BA470671932AB8C5F6218D40E82600E1E111E421
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239658.jpgsave_picture_239658.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:B5681F39C1BA6BD18F3D98C7C89CD7FFB587F39B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239659.jpgsave_picture_239659.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ CINEMA 4D Studio R26.013 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239660.jpgsave_picture_239660.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Brightly Pro 2.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239661.jpgsave_picture_239661.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:2E5D681967C05A2E4A2B1A70FF7A98FA32FC1136
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239662.jpgsave_picture_239662.jpg" />
 </div>
 
 

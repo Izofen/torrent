@@ -6,7 +6,7 @@ Ms. Holmes 7: The Death of Peter Blackheart (2025) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26154.jpgsave_picture_26154.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Palworld (2024) [Ru/Multi] (0.4.15.66880) Repack Wanterlude [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26155.jpgsave_picture_26155.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B2D396B28D0FB41BB15A93F3133E9D785A86CB47
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26171.jpgsave_picture_26171.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Door Kickers 2: Task Force North (2020) [Ru/Multi] (1.05) Repack Pioneer
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26186.jpgsave_picture_26186.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Far Cry 3: Blood Dragon (2013) [Ru] (1.02) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26188.jpgsave_picture_26188.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Techno Banter (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26191.jpgsave_picture_26191.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ FRONT MISSION 1: Remake (2023) [Ru/Multi] (3.0.1/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26201.jpgsave_picture_26201.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.95/dlc) Repack seleZen [Super
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26207.jpgsave_picture_26207.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Tennis Manager 2024 (2024) [Multi] (4.4.1357b) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26215.jpgsave_picture_26215.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ FRONT MISSION 1st: Remake (2023) [Multi] (16) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26223.jpgsave_picture_26223.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ World to the West (2017) [Multi] (1.6.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26224.jpgsave_picture_26224.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17385646) Repack Decep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26228.jpgsave_picture_26228.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Strange City (2024) [Multi] (1.0.6) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26229.jpgsave_picture_26229.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Monospaced Lovers (2024) [Ru/Multi] (1.0.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26241.jpgsave_picture_26241.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Sleeping Dogs (2014) [Ru/Multi] (1.0/dlc) Repack Wanterlude [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26306.jpgsave_picture_26306.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Ninja Five-O (2025) [Multi] (1.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26311.jpgsave_picture_26311.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The First Berserker Khazan (2025) [Ru/Multi] (480684) Repack Let'sРlay [Demo]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26333.jpgsave_picture_26333.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.14.29.106/dlc) Repack W
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26344.jpgsave_picture_26344.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Small Saga (2023) [Ru/En] (Build 12840998) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26345.jpgsave_picture_26345.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Transformers: Fall of Cybertron (2012) [Ru/Multi] (1.0/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26368.jpgsave_picture_26368.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Little Brave (2025) [Ru/En] (1.0.0) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26378.jpgsave_picture_26378.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.108/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26386.jpgsave_picture_26386.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Little Brave (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26393.jpgsave_picture_26393.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Tribute (2025) [Ru/Multi] (1.4.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26412.jpgsave_picture_26412.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ SKALD: Against the Black Priory (2024) [En] (Skald Modding Tool/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26431.jpgsave_picture_26431.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.31-CL364745/dlc) Repack Wanterlude
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26436.jpgsave_picture_26436.jpg" />
 </div>
 
 

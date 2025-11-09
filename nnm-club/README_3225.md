@@ -6,7 +6,7 @@ Sinner's Blood - Dark Horizons (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104203.jpgsave_picture_104203.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:FD213E6711BCC2635D9294469F575FE1154FA63E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104205.jpgsave_picture_104205.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Vision Divine - Blood And Angels' Tears (2024) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104206.jpgsave_picture_104206.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Neptune - End Of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104207.jpgsave_picture_104207.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:2E937BB597093B59BF20A13A4695907446162907
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104208.jpgsave_picture_104208.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ It Dies Today - Studio Albums (3 releases) (2004-2009) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104209.jpgsave_picture_104209.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:5C7372AACEF0E2BCB6D2549DF9E4B1A1C415965A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104210.jpgsave_picture_104210.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:BB131C0EC5231E499CF2AC4CADEC273077578AC8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104211.jpgsave_picture_104211.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:9FD436DF4BB107152D270736095245EE7CAFFCDA
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104212.jpgsave_picture_104212.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Savage Wizdom - No Time For Mercy (2007) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104213.jpgsave_picture_104213.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Savage Wizdom - A New Beginning (2014) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104215.jpgsave_picture_104215.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Torus - Torus (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104216.jpgsave_picture_104216.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Figen Morfen - Stay positive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104217.jpgsave_picture_104217.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:E88BFD5368A141F28932E73F29AFDEB895841093
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104218.jpgsave_picture_104218.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Charlotte Wessels - The Obsession (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104219.jpgsave_picture_104219.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Defiled - Horror Beyond Horror (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104220.jpgsave_picture_104220.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:A2FF24D36BAE0B88665290CBB3D5BCD4950604C5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104221.jpgsave_picture_104221.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:A3B6E4C978F97209B7F4D79CFFB604A62374CDB8
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104222.jpgsave_picture_104222.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:B2CD672B57C6105CCF6A4AADF96D64A103E6A840
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104223.jpgsave_picture_104223.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:45F46D0FA954C0B764B9DA3F85932A89E5CEBC49
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104224.jpgsave_picture_104224.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Unto Others - Never, Neverland (2024) Deluxe Edition [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104225.jpgsave_picture_104225.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Charlotte Wessels - The Obsession (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104226.jpgsave_picture_104226.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Eclipse - Megalomanium II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104227.jpgsave_picture_104227.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Skid Row - Live in London (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104228.jpgsave_picture_104228.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Ctraltu - NO EXIT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104229.jpgsave_picture_104229.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Zetra - Zetra (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Synth-Rock, Synth-Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104230.jpgsave_picture_104230.jpg" />
 </div>
 
 

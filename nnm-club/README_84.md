@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2221.jpgsave_picture_2221.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:7A7F6F70FA4CA64AF07756B8CAA7C9730351AD6E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2222.jpgsave_picture_2222.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:89D900CB50038065DD332CB736AC46FE94004C18
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2223.jpgsave_picture_2223.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Google Chrome 140.0.7339.186 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2224.jpgsave_picture_2224.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:0B0D26D6CCC0E91F5E9960CDA46FE2ACBBB6293D
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2225.jpgsave_picture_2225.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 2nd Season | Reborn as a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2226.jpgsave_picture_2226.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Tsuyokute New Saga | Стать сильнее! Новая сага [2025, TV, 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2227.jpgsave_picture_2227.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Onmyou Kaiten Re:verse | Цикл оммёдзи: Перерождение [2025
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2228.jpgsave_picture_2228.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ ACDSee Photo Studio Ultimate 2026 19.0.0.4295 Full / Lite RePack by KpoJIuK [Ru/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2229.jpgsave_picture_2229.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:9C24B6C692115BB748FF004D113855F965C5453C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2230.jpgsave_picture_2230.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:46FDA382D3B0AA532F4C51C450F48B200ADE48CC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2231.jpgsave_picture_2231.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Bad Girl | Плохая девочка [ТВ-1] [2025, TV, 10 из 12] WEBRip 10
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2232.jpgsave_picture_2232.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:1EC366654960D862814B3EE1CE503F1842B6C7D6
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2233.jpgsave_picture_2233.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:6FF3A813C19F9637050ACE039BB959D5E8AE9368
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2234.jpgsave_picture_2234.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ El Paso, Elsewhere (2024) [En] (2025.p1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2235.jpgsave_picture_2235.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:BFC7B616D0FEC10B4825A8C9062A66FF10280254
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2236.jpgsave_picture_2236.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Google Earth Pro 7.3.6.10441 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2237.jpgsave_picture_2237.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Daemon X Machina (2020) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay [Complete]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2238.jpgsave_picture_2238.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mikadono San Shimai wa Angai, Choroi. | Dealing with Mikadono Sisters Is a Breez
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2239.jpgsave_picture_2239.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:F0872E831E1A4EDDAABD253DB12DBE69A1DC97EB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2240.jpgsave_picture_2240.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:1E8852D231B401335A79624FFD8AB3A5A9430AF9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2241.jpgsave_picture_2241.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:7A4401041E002F0F3936EB796CCD5557A6494E98
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2242.jpgsave_picture_2242.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Formula Legends (2025) [Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2243.jpgsave_picture_2243.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:C110701B42F338263A4BE8B715D8A1D0097D01C8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2244.jpgsave_picture_2244.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:4A872D771F883A0982F3F8A2C9520C751622E60B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2245.jpgsave_picture_2245.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ NODE: The Last Favor of the Antarii (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2246.jpgsave_picture_2246.jpg" />
 </div>
 
 

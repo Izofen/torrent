@@ -6,7 +6,7 @@ Bike Outliner for Mac 1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122158.jpgsave_picture_122158.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SponsorBlock for YouTube 5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122159.jpgsave_picture_122159.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ NonVisual Desktop Access (NVDA) 2023.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122160.jpgsave_picture_122160.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Den Harrow - Overpower (1985) Reissue, 1987, Baby Records [OGG Vorbis|480 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122161.jpgsave_picture_122161.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Saxon - Hell, Fire and Damnation (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122162.jpgsave_picture_122162.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:61E2CFEB5A0A426A681017C09C0B65E4E09AB75E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122163.jpgsave_picture_122163.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Dancing Fantasy - California Grooves (1991) [OGG Vorbis|480 Kbps] <New Age/Medit
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122164.jpgsave_picture_122164.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Mac FoneLab Android Data Recovery 3.2.18 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122165.jpgsave_picture_122165.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:ECAA5867006D0EE7E85E35128E0FD64955B689C5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122166.jpgsave_picture_122166.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:4219943A4FE4DEF286F0C4B0FF1E314AFE480DA1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122167.jpgsave_picture_122167.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Gotus - Gotus (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122168.jpgsave_picture_122168.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ NCH Express Scribe Pro for Mac 13.00 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122169.jpgsave_picture_122169.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Java SE Development Kit 17.0.10 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122170.jpgsave_picture_122170.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.4 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122171.jpgsave_picture_122171.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:C3C7B86FD882B2A764EBC070801A541ABF1787DC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122173.jpgsave_picture_122173.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:E24FAE78429C23CF2ED121C72416C3033BE8D265
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122174.jpgsave_picture_122174.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Metalite - Expedition One (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122175.jpgsave_picture_122175.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:BCFE35D5F0466BE7AB813277C1F7754CB69E032F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122176.jpgsave_picture_122176.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:97D9E6DE9D64C00D692C911C3F3C6E6FBD41CDAE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122177.jpgsave_picture_122177.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Saxon - Hell, Fire And Damnation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122178.jpgsave_picture_122178.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:5836CB1BA884D3D8891CEE4F01C0369D8B1037E9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122179.jpgsave_picture_122179.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ WhyNotWin11 2.6.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122180.jpgsave_picture_122180.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Java SE Development Kit 21.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122181.jpgsave_picture_122181.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:4E6A2DA251486F05FD2BC6633F5102DA06C98403
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122182.jpgsave_picture_122182.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:CC00571B144998189C27FF2AD5A2DAFC981E66FE
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122183.jpgsave_picture_122183.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:883DC3C6E22F41E6A3FEDA51074734EFF087DB89
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122184.jpgsave_picture_122184.jpg" />
 </div>
 
 

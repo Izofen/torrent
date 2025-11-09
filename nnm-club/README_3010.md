@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90953.jpgsave_picture_90953.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ubuntu 12.04 LTS [x86, x86-64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90954.jpgsave_picture_90954.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6455BE097BD95D767593F12EBAC114EAF1257925
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90955.jpgsave_picture_90955.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6455BE097BD95D767593F12EBAC114EAF1257925
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91134.jpgsave_picture_91134.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6455BE097BD95D767593F12EBAC114EAF1257925
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91135.jpgsave_picture_91135.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:735505CEFE4D6D234A2FDEB2E880515C1F51B2D7
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91136.jpgsave_picture_91136.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:DCE1C83D5B5E46CA170C979BAB7309D0A7B0364D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91137.jpgsave_picture_91137.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:4E41EF5E792D414FB2808E333A26196A25ED50BC
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91138.jpgsave_picture_91138.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:589223829F6622EF39D4782392B7AE80D336414A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91139.jpgsave_picture_91139.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ WeNote: заметки блокнот планер v6.49 Mod by PieMods [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91140.jpgsave_picture_91140.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:64CB7F812B4071706A167014C461497F2F63106D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91141.jpgsave_picture_91141.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:17E18E96C4A484164E6DAFF2C25C1C5B70939FC8
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91142.jpgsave_picture_91142.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:7DE292B61B0F5F4B4D92FC8E4E99869F766591EB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91143.jpgsave_picture_91143.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:F5759FFD94E2ADB257AFB23760BCCAC583F5BBAF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91144.jpgsave_picture_91144.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ MultiTimer: МультиТаймер v1.10 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91145.jpgsave_picture_91145.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:996B04EE41E722522C990ACB9988D036E4E85918
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91146.jpgsave_picture_91146.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:99C7297410F52D606A9716965BC2EA8E3F0798B3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91147.jpgsave_picture_91147.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:20763A98B56FAA445B24453B8A414107C90218AB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91148.jpgsave_picture_91148.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Lord Ambermaze (2025) [Ru/Multi] (1.01) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91149.jpgsave_picture_91149.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:63B60D6116FBB6787E0F0838A9E58C8DA0A6D151
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91150.jpgsave_picture_91150.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Happy Color® – игра раскраска v2.20.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91151.jpgsave_picture_91151.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:94BF64A125AF0D312DAEAAFD11F9DF2416B9BD2A
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91152.jpgsave_picture_91152.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Saigo ni Hitotsu dake Onegai Shite mo Yoroshii Deshou ka | May I Ask for One Fin
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91153.jpgsave_picture_91153.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:92E54C459A3E99C281791B03908A08184F95ADDA
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91154.jpgsave_picture_91154.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Wednesday - Bleeds (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91155.jpgsave_picture_91155.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Kylie Minogue - Tension Tour Live 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91156.jpgsave_picture_91156.jpg" />
 </div>
 
 

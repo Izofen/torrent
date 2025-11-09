@@ -6,7 +6,7 @@ Velvet Dreamer + Tim Gelo - Discography 38 Releases (2013-2022) [MP3|320 Kbps] <
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244752.jpgsave_picture_244752.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Crunkz - Never Stop Ep. 4 (2022-01-29) [MP3|320 Kbps] <Tech House, Future House,
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244772.jpgsave_picture_244772.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Electro Pop Of The 80s Reloaded (2016) (2016) [MP3|320 Kbps] <Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244810.jpgsave_picture_244810.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Trance Anthems Vol. 18 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244824.jpgsave_picture_244824.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Top 5 April 2023 Emotional And Uplifting Trance (2023) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244827.jpgsave_picture_244827.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Bossa N Michael (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244867.jpgsave_picture_244867.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - The Sound of 2023 Mix 1: Hong Kong (2023) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244898.jpgsave_picture_244898.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Global Underground Afterhours (2002) Global Underground [FLAC|Lossless|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244929.jpgsave_picture_244929.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Ultima Audio: Essentials 2022 (Mixed by Alex John) (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244951.jpgsave_picture_244951.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sunny Lax - Crystals (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244955.jpgsave_picture_244955.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:FEAE951D58CDD983016E10E7E48D30B0CD4A030D
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244971.jpgsave_picture_244971.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Chill Mode On No.2 (Selected by Smooth Deluxe) (2023) [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244984.jpgsave_picture_244984.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ V.A. - Cafe Del Mar Essentials (Collection) (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244988.jpgsave_picture_244988.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - 10 Years (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245013.jpgsave_picture_245013.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Yre Den - Soilstretch (2020) OK SPIRIT [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstr
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245022.jpgsave_picture_245022.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - Zuckerschlecken Vol.6: Deep Electronic Sounds (2016) [MP3|320 Kbps] <Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245060.jpgsave_picture_245060.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Bellatrix - Travel (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245065.jpgsave_picture_245065.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - Urban Stories Deep House Vol.5 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245082.jpgsave_picture_245082.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - Classic Trance Anthems (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245197.jpgsave_picture_245197.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - Artist Focus 82 (Miikka Leinonen) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245212.jpgsave_picture_245212.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Best Essentials Hype SFR (2023) [MP3|320 Kbps] <Trance, Progressive, Electr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245244.jpgsave_picture_245244.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Spring Break Miami 2023: Best Of Dance & House (2023) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245264.jpgsave_picture_245264.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Tiesto - Tomorrowland Friendship Mix (2021-02-18) [MP3|320 Kbps] <House, Future 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245321.jpgsave_picture_245321.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Roger Shah & Ambedo - Tribute To Earth (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245512.jpgsave_picture_245512.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - Exotic Paradise Vol.1 (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245546.jpgsave_picture_245546.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - Sublime Drum & Bass, Vol. 02 (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & B
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245590.jpgsave_picture_245590.jpg" />
 </div>
 
 

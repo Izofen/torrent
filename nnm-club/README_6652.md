@@ -6,7 +6,7 @@ Konvolted - Human Reification (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224275.jpgsave_picture_224275.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Atomic Dust - Eden (1992) EP [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224280.jpgsave_picture_224280.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Writhing - Of Earth & Flesh (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224293.jpgsave_picture_224293.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:0BF2444965FC2D0E93612E34510A4DD097C554A3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224443.jpgsave_picture_224443.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NNM-CLUB  17 лет!
 >>30
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224450.jpgsave_picture_224450.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ NNM-CLUB  17 лет!
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224465.jpgsave_picture_224465.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:F23C692AB36FEEF5A0AE2169F0BC528C904EA2DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224480.jpgsave_picture_224480.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:9231BC77DA70E07E41F8B154B2C23D3540B45B98
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_224489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_224489.jpgsave_picture_224489.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Rainbow - Long Island 1979 Down To Earth Tour (2023) Japanese Edition [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224565.jpgsave_picture_224565.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Aerosmith (Steven Tyler; Joe Perry) - Studio Albums (10 releases) (1993-2023) ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224575.jpgsave_picture_224575.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ VA - Памяти А. Северного (1995) 2CD [MP3|320 Kbps] <Шансон
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224579.jpgsave_picture_224579.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:2F627FD2451E115E04D32DFF34783CE810FB034D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224583.jpgsave_picture_224583.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Opera One 101.0.4843.33 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224589.jpgsave_picture_224589.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:379D4DE439E85F43CBC83CE39304C7E1B8254E7A
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224592.jpgsave_picture_224592.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:B158CC79E9F59B06E5FBDCAAF80234605A35714B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224600.jpgsave_picture_224600.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:CA3906BBD3B5CFDADC7232213C6C75CBDFAE5052
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224606.jpgsave_picture_224606.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Sublime Text 4.0 Build 4152 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224611.jpgsave_picture_224611.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ LibreWolf 116.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224620.jpgsave_picture_224620.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:D75BEC137E9E9371249F2C1415CE4698A8958CAF
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224626.jpgsave_picture_224626.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Yota - Room 412 (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Nu-Di
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224633.jpgsave_picture_224633.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - Best Of Vocal Trance 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224641.jpgsave_picture_224641.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ De-Phazz - Jelly Banquet (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Acid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224652.jpgsave_picture_224652.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - Александр Галич•Я выбираю свободу (2009) [MP
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224658.jpgsave_picture_224658.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Rainbow - Denver 1979 Down To Earth Tour (2023) Japanese Edition [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224668.jpgsave_picture_224668.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:F7A67B510644A176A915785DA185CE75E1076C9D
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224679.jpgsave_picture_224679.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Alfred PowerPack 5.1.2  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224690.jpgsave_picture_224690.jpg" />
 </div>
 
 

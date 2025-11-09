@@ -6,7 +6,7 @@ Nell Bryden - I Love You So Much I’m Blind (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103200.jpgsave_picture_103200.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ As I May - Dark Royal Revy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103201.jpgsave_picture_103201.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kingfisher Sky - Feeding The Wolves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103202.jpgsave_picture_103202.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Tragically Hip - Up To Here (1989) Deluxe Edition, Remastered, 2024, Univers
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103203.jpgsave_picture_103203.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Violent Femmes - Hallowed Ground (1984) Remastered, 2024, Craft Recordings [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103204.jpgsave_picture_103204.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Timothy Drury - Timothy Drury (1996) [FLAC|Lossless|image + .cue] <West Coast, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103205.jpgsave_picture_103205.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Captain Black Beard - Sonic Forces (2020) Reissue, Remastered, 2024, Pride & Joy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103206.jpgsave_picture_103206.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:8578BEA0AB917149DD7EF1219A854DCEC9283DAE
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103207.jpgsave_picture_103207.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Alice in Chains - Los Angeles 1990 (1990) HQ Remaster, 2024, TimeLine [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103208.jpgsave_picture_103208.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:9F46F63C7164B8EFB3AB6DDD291D1E2C57D38E83
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103209.jpgsave_picture_103209.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Impellitteri - War Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103210.jpgsave_picture_103210.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Wormed - Omegon (2024) [FLAC|Lossless|image + .cue] <Death Metal, Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103211.jpgsave_picture_103211.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:FC932B47E50682654C7C85463E73E710DCF04043
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103212.jpgsave_picture_103212.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Darwin (Влад Дарвин) - Путь открыт (2010) [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103213.jpgsave_picture_103213.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Violent Femmes - Hallowed Ground (1984) Remastered, 2024, Craft Recordings [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103214.jpgsave_picture_103214.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Skinny Hightower - THE MAN (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103215.jpgsave_picture_103215.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Dane Donohue - L.A. Rainbow (2024) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103216.jpgsave_picture_103216.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Pinnacle Point - Symphony Of Mind (2020) Japanese Edition [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103217.jpgsave_picture_103217.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Seventh Crystal - Entity (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103218.jpgsave_picture_103218.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:FB119264391EF0F8DAC2D5D65EB4DA2D0E1ABFF9
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103219.jpgsave_picture_103219.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ The Waterboys - Dream Harder (1993) Directors Cut, 2024, Geffen [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103220.jpgsave_picture_103220.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Nationwide - Echoes (2024) [FLAC|Lossless|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103221.jpgsave_picture_103221.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Mezzrow - Studio Albums (2 releases) (1990; 2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103222.jpgsave_picture_103222.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Phil Vermont - Time Has Come (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103223.jpgsave_picture_103223.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Counterline - Two (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103224.jpgsave_picture_103224.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Klone - The Unseen (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive-Gro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103225.jpgsave_picture_103225.jpg" />
 </div>
 
 

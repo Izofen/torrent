@@ -6,7 +6,7 @@ Ploho - When the Soul Sleeps (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191111.jpgsave_picture_191111.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F67F54CC927FD13C5344FDDEAE547365F6EACDB3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191112.jpgsave_picture_191112.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:23AF990C51188B33C07EE88368AAC5E41B274398
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191113.jpgsave_picture_191113.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:C750E9F5442B245DB99612C515E4734E7D0248FE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191114.jpgsave_picture_191114.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:CD70BCAD275DA1166367EEE80E64C1FA85767CC8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191115.jpgsave_picture_191115.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Music News vol.296 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191116.jpgsave_picture_191116.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:95B2245D6AAB9F04F9F29F9A9A9B133181D99301
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191117.jpgsave_picture_191117.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:906DED12E4610340461F1E18CA1D4622C5DF366A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191118.jpgsave_picture_191118.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dragonhammer - Second Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191119.jpgsave_picture_191119.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:F83EE9363329A76D7FE60FEDBE2870744FAC832A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191120.jpgsave_picture_191120.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:2FEED3E522BECD368DD2EA148E3A6A2CED30F346
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191121.jpgsave_picture_191121.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:538A6682FA3EDB206441345279B2F8EFAE30F6E1
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191122.jpgsave_picture_191122.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:77C66FF619A4E073B2024BC5959562ECA5C2B743
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191123.jpgsave_picture_191123.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:A505C9C826C820E06DF40D779E56FF9D050E6B11
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191124.jpgsave_picture_191124.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Topaz Photo AI 2.0.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191125.jpgsave_picture_191125.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Internet Download Manager 6.41 Build 20 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191126.jpgsave_picture_191126.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ C.O.P - Enemy (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191127.jpgsave_picture_191127.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Master - Master (1990) [WavPack|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191128.jpgsave_picture_191128.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:B19B51EB8981AA246960A7807F91AA306E23866F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191129.jpgsave_picture_191129.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:C8D3160534146B210D43F986AF7AD85E18384C44
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191130.jpgsave_picture_191130.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:5E510B23BBF7E18FEBDEC941867DBF627FBF3002
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191131.jpgsave_picture_191131.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:4FA61E75AF47E615C087F9B80DA71390A8B7AD22
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191132.jpgsave_picture_191132.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:C0D3859FA536AEE9A13C2DB00A5F0279DED76DBB
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191133.jpgsave_picture_191133.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ CCleaner 6.15.10623 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191134.jpgsave_picture_191134.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:EDE1901B1E460109A08249CECBEA4466995F6E84
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191135.jpgsave_picture_191135.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:EDE1901B1E460109A08249CECBEA4466995F6E84
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191136.jpgsave_picture_191136.jpg" />
 </div>
 
 

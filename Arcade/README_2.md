@@ -6,7 +6,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.1/dlc) Repack FitGirl [Too Many Clothes Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13009.jpgsave_picture_13009.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nanomon Virtual Pet (2025) [Ru/Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13170.jpgsave_picture_13170.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Capcom Fighting Collection 2 (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13407.jpgsave_picture_13407.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2013.012.003.008.007/dlc) Scene R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13471.jpgsave_picture_13471.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VVVVVV (2010) [Ru/Multi] (2.4.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13528.jpgsave_picture_13528.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Suit for Hire (2021) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13633.jpgsave_picture_13633.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ TRON: Catalyst (2025) [Ru/Multi] (0.10.3 CS:16422) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13660.jpgsave_picture_13660.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13781.jpgsave_picture_13781.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Reality Rash (2025) [Multi] (1.0.1) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13815.jpgsave_picture_13815.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Suit for Hire (2021) [Ru/Multi] (1.0.1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13915.jpgsave_picture_13915.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mortal Kombat XL (2015) [Ru/En] (0.305-05.126703.1/dlc) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14052.jpgsave_picture_14052.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.2/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14261.jpgsave_picture_14261.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.5.0/dlc) Repack FitGirl [Ultimate P
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14507.jpgsave_picture_14507.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Kitty Collapse (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14522.jpgsave_picture_14522.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Downward (2017) [Multi] (2.0.2) Scene Rune [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14552.jpgsave_picture_14552.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Mortal Kombat (2013) [Ru] (1.0.7) Repack EXROW [Komplete Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14650.jpgsave_picture_14650.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Creatures: Village (2004) [En] (1.11) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14676.jpgsave_picture_14676.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ I Was an Atomic Mutant! / Убойные будни (2003) [Ru] (1.0) License А
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14783.jpgsave_picture_14783.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Zoeti (2023) [Multi] (1.2.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15106.jpgsave_picture_15106.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Nova Drift (2019) [Ru/Multi] (1.2.23) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15306.jpgsave_picture_15306.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ DuckTales: Remastered (2013) [Ru/Multi] (Build 1384683) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15519.jpgsave_picture_15519.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.000.004) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15695.jpgsave_picture_15695.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Spectator 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15869.jpgsave_picture_15869.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ World of Goo 2 (2024) [Ru/Multi] (1.0.13211) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15896.jpgsave_picture_15896.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ MindKatt: First Strike (2025) [Multi] (Build 18559755) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15976.jpgsave_picture_15976.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ ANTONBLAST (2024) [En] (1.1.2с) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16188.jpgsave_picture_16188.jpg" />
 </div>
 
 

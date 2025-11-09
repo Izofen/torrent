@@ -6,7 +6,7 @@ AC/DC - Power Up (2020) Japan Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183025.jpgsave_picture_183025.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CA44706DB6D209AAFA2887132ECA3ACE79566C0A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183027.jpgsave_picture_183027.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (2111) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183028.jpgsave_picture_183028.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ AVS Image Converter 5.2.5.304 Portable by Spirit Summer [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183031.jpgsave_picture_183031.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ DesktopOK 10.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183032.jpgsave_picture_183032.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Aiseesoft Video Converter Ultimate 10.7.28 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183033.jpgsave_picture_183033.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:E85EA47AD7DE2D4F54EADF5A19C7F6E0A9A8ECC6
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183036.jpgsave_picture_183036.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:0BFD14B43CE80C724F5A98A8DA7DB6B4821C8811
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183037.jpgsave_picture_183037.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Candy Dulfer - We Never Stop (2022) [FLAC|Lossless|image + .cue] <Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183038.jpgsave_picture_183038.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:1D55A6DCD3CB6B48FFC6E85A864BF22CA5144B2A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183040.jpgsave_picture_183040.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Moon+ Reader Pro v8.4 (build 804005) Mod by Balatan, Mixroot,  Lucky Las [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183042.jpgsave_picture_183042.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:8EF4AF4A1F5933E776FEC2850D191552E2F13DF5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183043.jpgsave_picture_183043.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - Girl of My Dreams (2023) [MP3|320 Kbps] <Hammond, Instrumental, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183045.jpgsave_picture_183045.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Complete Internet Repair 9.1.3.6335 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183047.jpgsave_picture_183047.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - TOP Non-Stop 2000-2009 - Deep House. Part 3 (2023) [MP3|192-320 Kbps] <Deep
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183049.jpgsave_picture_183049.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:5110A0438D45BDAD2680E1A4F4AE42D00D3E2320
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183051.jpgsave_picture_183051.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ PC Cleaner Pro 9.4.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183053.jpgsave_picture_183053.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ IObit Smart Defrag Pro 9.1.0.319 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183056.jpgsave_picture_183056.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ T.Rex - Wembley Empire Pool (18th March 1972, Evening Concert) (2020) WEB-DLRip 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183057.jpgsave_picture_183057.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:E5F5DC791493A10E8115B3BE17EB2B0C7AF3C99E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183058.jpgsave_picture_183058.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ BurnAware Professional 16.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183061.jpgsave_picture_183061.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:028FAF21510BD3DBA665CDC08308653398CE3B6C
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183062.jpgsave_picture_183062.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:A7C3097DEE3E6863E6B8E4686B90A35E76DA25A0
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183063.jpgsave_picture_183063.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Asia - Asia (1982) Japanese Edition, Reissue, 2022, Universal [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183065.jpgsave_picture_183065.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Blues Company - Take the Stage (Live) (2020) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183067.jpgsave_picture_183067.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:5FBD6D51FE99C0C00C9F6A4CC042E48B314F1DE0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183068.jpgsave_picture_183068.jpg" />
 </div>
 
 

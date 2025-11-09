@@ -6,7 +6,7 @@
 >>На досуге
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248514.jpgsave_picture_248514.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Bacon Fat Louis - Come On!!! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248516.jpgsave_picture_248516.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Andy Matheson - In The Meantime (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248518.jpgsave_picture_248518.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Undertale (2015) [Ru/En] (1.08) Repack Necros
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248520.jpgsave_picture_248520.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:34F9776C25EFAEFEBADEB8579E5641E4EBCCE06F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248521.jpgsave_picture_248521.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:31CBD3F0B08662607EF00FD82C667DB4208598A4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248522.jpgsave_picture_248522.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:D1A70FAEE6A97EFBFE98CE05FC13BA1D3047D13C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248523.jpgsave_picture_248523.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:FB46847CAA54D53078AB1CADDD5646AE9117F378
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248526.jpgsave_picture_248526.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:123EE5C3BCC26EDC7F077DC9C6BB785F25CE4A38
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248527.jpgsave_picture_248527.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:549CE115EEE0B218B53B6C3B99F9B131A806AB0F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248528.jpgsave_picture_248528.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:C3AA883F6829010154956DAB9B93ED22B634FEAD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248530.jpgsave_picture_248530.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:F2709014E0D44CE42CC98CDAC40C2E3BF354DB4B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248533.jpgsave_picture_248533.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:9AA83F72B012DC7BE21BE90103CBCB972C07CEE0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248534.jpgsave_picture_248534.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:E71342460AB7B4C4632BDF441CAA83FD9ED2A647
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248537.jpgsave_picture_248537.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:8A4693B0FB941AD50041868747CE4FD3B3E35241
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248539.jpgsave_picture_248539.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:5AE4F10FCC6ABD13F5ACF8FA3317CD8A9AB34015
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248541.jpgsave_picture_248541.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:603DEAB6321690190205426FB90B4818070C3EAA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248542.jpgsave_picture_248542.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ GRID (2019) [Ru/Multi] (1.0.122.743/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248543.jpgsave_picture_248543.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Citizen Sleeper 2 Starward Vector (2025) [Ru/Multi] (1.2.21/dlc) Repack Let'sРl
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248545.jpgsave_picture_248545.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VidCoder 12.11 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248546.jpgsave_picture_248546.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Jane Air - 9 (2025) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248547.jpgsave_picture_248547.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Moonspell - Opus Diabolicum - The Orchestral Live Show (Live) (2025) [MP3|320 Kb
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248548.jpgsave_picture_248548.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Fallen Lillies - Cran (2025) [MP3|320 Kbps] <Glam Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248549.jpgsave_picture_248549.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Avatar - Don’t Go In The Forest (2025) [MP3|320 Kbps] <Modern-Metal, Groove-Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248551.jpgsave_picture_248551.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Biohazard - Divided We Fall (2025) [MP3|320 Kbps] <Rapcore, Hardcore, Crossover>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248553.jpgsave_picture_248553.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Aranda - Four0Five Sessions (2025) [MP3|320 Kbps] <Alternative-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248555.jpgsave_picture_248555.jpg" />
 </div>
 
 

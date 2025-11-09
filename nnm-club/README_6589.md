@@ -6,7 +6,7 @@ Wondershare Filmora for Mac  12.4.0  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211227.jpgsave_picture_211227.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211229.jpgsave_picture_211229.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B425371DF2D129B93EC61F0334555C09F81A984C
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211231.jpgsave_picture_211231.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Chasys Draw IES 5.26.01 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211232.jpgsave_picture_211232.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:6984850AD5363295AB6A5B447B82F75C3BB3D704
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211234.jpgsave_picture_211234.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Nu Disco 2023 (Best Of Disco House) (2023) [MP3|320 Kbps] <Nu-Disco, Disco 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211236.jpgsave_picture_211236.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Hallo northern sky 4.2.15c + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211240.jpgsave_picture_211240.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Opera 99.0.4788.77 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211241.jpgsave_picture_211241.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:E7CDCA60E252809D848016E03F85EB10BA9DEB95
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211242.jpgsave_picture_211242.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:AB3C1F8C6A141765B1BAD2C0EAC13E875C976F46
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211246.jpgsave_picture_211246.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:331D5E7956038A7FD08ACB7ACA4DE83A3F85C7D0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211249.jpgsave_picture_211249.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Ninho - Jefe (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211250.jpgsave_picture_211250.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ HWiNFO 7.47 Build 5135 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211252.jpgsave_picture_211252.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Expose - 2 Albums (1987, 1989) LP [MP3|320 Kbps] <Electronic, Freestyle, Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211256.jpgsave_picture_211256.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ GSPD - СПОРТ РЕЖИМ: ЗЕЛЁНЫЙ СВЕТ (2023) [MP3|320 Kbps] <Pop
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211260.jpgsave_picture_211260.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:DBFDBD6ABD44824F19641580014742CDE2221D71
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211263.jpgsave_picture_211263.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:18B0BFF779387BA1956C7F5D67BCC3C04AD3E523
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211266.jpgsave_picture_211266.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:0B0CEBC7BE5E82F65B1141C4C5D4E57654F6CA8C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211269.jpgsave_picture_211269.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:D4A592D133E7ADCC9D05943B9F7B6C65D7FB25ED
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211270.jpgsave_picture_211270.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:00CFFBED3EE3278075F968AE1F6D2D65A9067B68
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211273.jpgsave_picture_211273.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Ocenaudio 3.12.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211274.jpgsave_picture_211274.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:A72CBD98001FA2111ABFD0E61B3C0FE422338AA1
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211275.jpgsave_picture_211275.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:D8052CA8D22B75FBD5BE81EBF6F575E4E0670130
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211278.jpgsave_picture_211278.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:A54B9903DF91C88772BE465048901C3F19B1B527
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211280.jpgsave_picture_211280.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - A State Of Trance Radio Top 50 - 2023, Vol. 1 (2023) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211281.jpgsave_picture_211281.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:60EA90BC70C39A3032C35035A7EDF667931B6059
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211285.jpgsave_picture_211285.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146564.jpgsave_picture_146564.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F0D877E50116A74E695A9BC306222BC30FBBF359
 >>15
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146565.jpgsave_picture_146565.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F0D877E50116A74E695A9BC306222BC30FBBF359
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146566.jpgsave_picture_146566.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F32A38A1F231C651423F3ED5914E6FCC7F50A0D8
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146567.jpgsave_picture_146567.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:516FFE13590F0B36976254B273CE8A7974664D80
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146568.jpgsave_picture_146568.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:99568AAA8B86858EF589CA43A77B5ABDDA143C68
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146569.jpgsave_picture_146569.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ SDKO, Ирина Ружанская | Конструирование и поши
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146570.jpgsave_picture_146570.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Eternal Magic (2017) [Ru] (20.12.2019-0.5.23.ru) License Russian OBT
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146571.jpgsave_picture_146571.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VA - AFTR:HRS (Mixed by Tiesto) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146572.jpgsave_picture_146572.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Duplicate File Detective 7.1.70 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146574.jpgsave_picture_146574.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:3FE58E20FE7F6F88EBB689EB5F3855D3421BA93F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146575.jpgsave_picture_146575.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:674381B19E496EC413D49B96DC982FA35EF234C2
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146576.jpgsave_picture_146576.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:E9DAE08745D24AE473E0F28E078663BAE08B3CD6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146578.jpgsave_picture_146578.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:D3A316FF7DADDD5A52B83DB04819BA9E49DFD133
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146579.jpgsave_picture_146579.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:3046F41A6F6B96A2D2A606E4F29D7695FF85EDD6
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146580.jpgsave_picture_146580.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Windows Update MiniTool 26.12.2015 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146581.jpgsave_picture_146581.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:84FEDBCBC1D39B38E1F44B4AA4CA4AAFDB110ED4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146582.jpgsave_picture_146582.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:4DCF544F3ADD4BFCFE00CA998F6D7849CE49BE20
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146583.jpgsave_picture_146583.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:9C2C674BA30B900C7E453419D582B5217659B90C
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146584.jpgsave_picture_146584.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Michael Buble (Bublé) - Love (Deluxe Edition) (2018) [FLAC|Lossless|WEB-DL 24Bi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146586.jpgsave_picture_146586.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Octopath Traveler (2019) [Ru/Multi] (Update 1) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146587.jpgsave_picture_146587.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:E7762F1B70F793014B2CBFD6C4FD4A24D8162B94
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146588.jpgsave_picture_146588.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The World of Hans Zimmer: A Symphonic Celebration - Hollywood in Vienna 2018 (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146589.jpgsave_picture_146589.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Hitman 2 (2018) [Ru/Multi] (2.72.0hf/dlc) Repack xatab [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146590.jpgsave_picture_146590.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:21F88F6EC2EDC767E140D420A23E6B3DE2EAACEA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146591.jpgsave_picture_146591.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Jon Opstad - Black Mirror / Чёрное зеркало: White Bear (Original Te
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146592.jpgsave_picture_146592.jpg" />
 </div>
 
 

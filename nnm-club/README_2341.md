@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61233.jpgsave_picture_61233.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D8DBED0B3A12D63E476C45B83B62EC646E80D142
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61234.jpgsave_picture_61234.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Chiyu Mahou no Machigatta Tsukaika | Как (не) стоит использов
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61235.jpgsave_picture_61235.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Kona II: Brume (2023) [Ru/Multi] (20240222) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61236.jpgsave_picture_61236.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Cryptology School | Cryptology 11 (2024) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61237.jpgsave_picture_61237.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (2.7.6/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61238.jpgsave_picture_61238.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:D369E6E61F1B9F85504DB1650B45CBC992839A7B
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61239.jpgsave_picture_61239.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ The Pianist
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61240.jpgsave_picture_61240.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:D7C362BBD57196F4547F2CF63502D791E0D140CD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61241.jpgsave_picture_61241.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack FitGirl [Digital D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61242.jpgsave_picture_61242.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:EA2088A7EDF7FA3E0EB8CE508C692C3E27A043CF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61243.jpgsave_picture_61243.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:7E81F877052DEB80381D62986AB3C35D5F1DFEEB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61244.jpgsave_picture_61244.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:A280BF69AB0C0238294F2251E445B1813D423906
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61245.jpgsave_picture_61245.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Cryptology School | Workshop 6.0 (2024) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61246.jpgsave_picture_61246.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ BBC: Истоки жизни (Первая жизнь с Дэвидом Атте
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61247.jpgsave_picture_61247.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:CB857B08B9F7305C19B85308800C3B282DDC34A5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61248.jpgsave_picture_61248.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:A3062C116C761760A0E824F8A5F3DE7321386972
 >>14
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61249.jpgsave_picture_61249.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:0C74C79833000FE5D05A41A2B92FAA4031BA6286
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61250.jpgsave_picture_61250.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ The Elder Scrolls V: Skyrim (2021) [Ru/Multi] (0.1.3905696/dlc) License GOG [Ann
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61251.jpgsave_picture_61251.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:6C39E53DFC9A46C146BD11C36A4191382C174F2A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61252.jpgsave_picture_61252.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:5B998C8E0EBA146C708BA6945C0A3EAF279F1A6F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61253.jpgsave_picture_61253.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:87768F9AFE3B924E4FA49BCA5AFBB35CC3C1CCE9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61254.jpgsave_picture_61254.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:D03B934EA371258D0039749AD0B0E5FF2146FFF4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61255.jpgsave_picture_61255.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Zемфира (Земфира, The Uchpochmack) - 7 Albums + 10 Singles + Live +
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61256.jpgsave_picture_61256.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:2ABFCA3523A6D3868A4F6B0ED40D8DEE228022DD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61257.jpgsave_picture_61257.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:6D73B50735EE02615C900904432A82A5E88C0DFE
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61258.jpgsave_picture_61258.jpg" />
 </div>
 
 

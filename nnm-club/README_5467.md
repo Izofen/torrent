@@ -6,7 +6,7 @@ Audioslave - Studio Albums (3 releases) (2002 - 2006) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169069.jpgsave_picture_169069.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:81A4F82AD84BF0EB3C66DC0C808D4CC0E2CE0970
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169070.jpgsave_picture_169070.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Dragon Guardian - Destiny of the Sacred Kingdom (2012) [FLAC|Lossless|image + .c
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169071.jpgsave_picture_169071.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:379E5A9DD79B420D6128A68DCDCE5DD8BBDDA133
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169072.jpgsave_picture_169072.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:4E3CB04D55C668B55A0EAD801373CBA77AF06E88
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169073.jpgsave_picture_169073.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Display Maestro 4 v4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169074.jpgsave_picture_169074.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ MacBooster 8 Pro 8.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169075.jpgsave_picture_169075.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ BK Sarthak Das, Virginia Chu | Security as Code (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169076.jpgsave_picture_169076.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ iShowU Studio 2 v2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169077.jpgsave_picture_169077.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:D7856D1C2D0A77ED1B973533091105B7C50AF249
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169078.jpgsave_picture_169078.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ BT - Everything You’re Searching For Is On The Other Side Of Fear (2019) Black
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169079.jpgsave_picture_169079.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Dismal Euphony - Soria Moria Slott (2004) Remastered in February 2010,   Keltic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169080.jpgsave_picture_169080.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Book of Demons v1.05.211130 (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169081.jpgsave_picture_169081.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ MacCleanse 9.0.4 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169082.jpgsave_picture_169082.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:881E862DCF8148172DC37053AAB98A89F07BBDC7
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169083.jpgsave_picture_169083.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Alarm Clock Pro 13 v13.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169084.jpgsave_picture_169084.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VeraCrypt 1.25.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169085.jpgsave_picture_169085.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:DD2D9A57BEA6388137847F970E2DF245D70B6090
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169086.jpgsave_picture_169086.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ McCoy Tyner & Freddie Hubbard Quartet - Live at Fabrik, Hamburg (1986) 2CD, 2022
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169087.jpgsave_picture_169087.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ SyncBird Pro 3.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169088.jpgsave_picture_169088.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:ADBDD0E7896FA5FB47274F73FE668C2B8DD1C59C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169089.jpgsave_picture_169089.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Horus - Рифмономикон 2 (2022) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169090.jpgsave_picture_169090.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Telegram Desktop 3.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169091.jpgsave_picture_169091.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:63B4CDD608FB72BCD75531A2C621FCE16D8ED4D5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169092.jpgsave_picture_169092.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ NG. Ледяная дорога / Ice Road Rescue (2021) HDTV [H.264/1080i] (с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169093.jpgsave_picture_169093.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Debut Professional 6.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169094.jpgsave_picture_169094.jpg" />
 </div>
 
 

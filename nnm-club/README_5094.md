@@ -6,7 +6,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159157.jpgsave_picture_159157.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:07F47AF0A6CBD253477292236A45A347E8A0B824
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159158.jpgsave_picture_159158.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ CGcircuit, Florian Girardot | Mastering Nuke Vol 1 – 10 (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159159.jpgsave_picture_159159.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Plugin Alliance - All Bundle 2022 VST / VSTi, VST3 / VSTi3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159160.jpgsave_picture_159160.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:117BDAD795B8B22883677444F0E763D02DEB0444
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159161.jpgsave_picture_159161.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:62189FE68CB60FC94610239EF3B79DE2487B789E
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159162.jpgsave_picture_159162.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Uzaki-chan wa Asobitai! Double | Uzaki-chan Wants to Hang Out! W | Узаки х
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159163.jpgsave_picture_159163.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:89735D7DAB2321C24C97812095D24E9601CB1E80
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159164.jpgsave_picture_159164.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:662BEC28F50AF53922955C51180C8F654557CD24
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159165.jpgsave_picture_159165.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Bocchi the Rock! / Одинокий рокер! [2022, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159166.jpgsave_picture_159166.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:ECA0D4030D214B52927FECEA0AF88F29E36B5B04
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159167.jpgsave_picture_159167.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:F13C948BC9D97205ED4BFDD099518DEBA7878453
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159168.jpgsave_picture_159168.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:DBFC4C1097F5ECBFBDC3744B2F5349D2FBB105E8
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159169.jpgsave_picture_159169.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Fuufu Ijou, Koibito Miman. | More Than a Married Couple, But Not Lovers | Бол
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159170.jpgsave_picture_159170.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:A09F8BB4B4EAFAF24EDD6EDF11D7CC8575A38B18
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159171.jpgsave_picture_159171.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:30CDD4833C6DAA9CD44199EAAED8BEBA83F04B60
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159174.jpgsave_picture_159174.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Soft Pop Hits (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159175.jpgsave_picture_159175.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Skillshare, Iva Mikles | Drawing Colorful Room Scene in Procreate: Practice Pers
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159176.jpgsave_picture_159176.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:8CA8BE88EF469849730F72A5F67E308345F15A70
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159177.jpgsave_picture_159177.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:7BE7D75138264C107CC7C081224E8581AD3B124A
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159178.jpgsave_picture_159178.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:5A3572AEE79C1E86A411C1BA453F0F70DEA0837C
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159179.jpgsave_picture_159179.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:C1B56F79D2D03AE5D6BABB043D47CA1ADA913A4B
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159180.jpgsave_picture_159180.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:ADA301448295EC660E52F6577CCF58737BB8F237
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159181.jpgsave_picture_159181.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:17B06B7C1A9EB011014C6C0E127C8461A8E156BA
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159182.jpgsave_picture_159182.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:554E8E05F02F401B5E1F8C5B7995321525A954BE
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159183.jpgsave_picture_159183.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:A8F53258DF40BAD1C5051E25376153388D28F3B4
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159184.jpgsave_picture_159184.jpg" />
 </div>
 
 

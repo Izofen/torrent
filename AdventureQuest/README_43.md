@@ -6,7 +6,7 @@ Tex Murphy: Under a Killing Moon (1994) [Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65664.jpgsave_picture_65664.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Star Trek: Judgment Rites (1993) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65795.jpgsave_picture_65795.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Tesla Effect: A Tex Murphy Adventure (2014) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65798.jpgsave_picture_65798.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sally Face (2016) [Ru/Multi] (1.5.44) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65891.jpgsave_picture_65891.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Leafing Home (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65896.jpgsave_picture_65896.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Nine Sols (2024) [Ru/Multi] (Build 7c478ba3) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69655.jpgsave_picture_69655.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Secret of Monkey Island: Special Edition [Ru/En] (RePack) 2009 | R.G. Мех
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74563.jpgsave_picture_74563.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:A865979D5F04F94A92942B33B456AFC37686E04E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79273.jpgsave_picture_79273.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:7A5AEC7B32A7EC4D2430D0D06DED48E3E82B18D0
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81445.jpgsave_picture_81445.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Lost Horizon [Ru] (RePack) 2010 | LandyNP2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81487.jpgsave_picture_81487.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:E95CD534BB627A99533420D8710697E3CB385341
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81511.jpgsave_picture_81511.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Gabriel Knight 3: Blood of the Sacred, Blood of the Damned / Гэбриэл На
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81919.jpgsave_picture_81919.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Memento Mori / Memento Mori: Помни о смерти (RePack) [Ru] 2008 | a-l
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82734.jpgsave_picture_82734.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (L/Steam-Rip) 2012
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82983.jpgsave_picture_82983.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Torin's Passage / Странствия Торина [Ru] (RePack) 1995 | DosPet
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83515.jpgsave_picture_83515.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83561.jpgsave_picture_83561.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack/1.0.0.1) 2012|
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83585.jpgsave_picture_83585.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Back to the Future: The Game Episode 1: It’s About Time / Назад в буд
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83776.jpgsave_picture_83776.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83808.jpgsave_picture_83808.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84202.jpgsave_picture_84202.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ To the Moon (P) [Ru] 2011
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85416.jpgsave_picture_85416.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе [En] (P) 2011
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85568.jpgsave_picture_85568.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Lone Survivor [En] (L) 2012
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86446.jpgsave_picture_86446.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru/En] (RePack) 2012 | R.G
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86450.jpgsave_picture_86450.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Alone in the Dark: The New Nightmare / Alone in The Dark 4: По Ту Сторо
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86881.jpgsave_picture_86881.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Morpheus [Ru] (P) 1998
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86985.jpgsave_picture_86985.jpg" />
 </div>
 
 

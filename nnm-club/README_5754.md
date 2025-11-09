@@ -6,7 +6,7 @@ Viber 21.1.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178262.jpgsave_picture_178262.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Anomaly - Planet Storm (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178263.jpgsave_picture_178263.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Q-Dir 11.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178265.jpgsave_picture_178265.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Skype 8.105.0.214 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178269.jpgsave_picture_178269.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ NIUBI Partition Editor 9.8.0 Pro / Unlimited / Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178272.jpgsave_picture_178272.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:BD391FE1E22D91169012B14646A9A672BA0281CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178277.jpgsave_picture_178277.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:D896BEE8FBD459E6F69217FE14417279848DF925
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178280.jpgsave_picture_178280.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Crysis 2 Remastered (2022) [Ru/Multi] (9461303) Repack dixen18
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178283.jpgsave_picture_178283.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ O&O DiskImage Professional 18.4 Build 322 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178285.jpgsave_picture_178285.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178288.jpgsave_picture_178288.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:0F5FCF24704BB24765C83F7D04344157724E5510
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178289.jpgsave_picture_178289.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Minecraft 1.19.21.01 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178291.jpgsave_picture_178291.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Brave Browser 1.58.137 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178292.jpgsave_picture_178292.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ The Darkness - Permission To Land... Again (2003) 20th Anniversary Edition, 2023
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178297.jpgsave_picture_178297.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ grust200 - Традиционные ценности (2023) [MP3|320 Kbps] <Alte
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178300.jpgsave_picture_178300.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:AE736A7BB2CB3323F8CFBFBFD26F6608115101AD
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178305.jpgsave_picture_178305.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Calibre 6.28.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178308.jpgsave_picture_178308.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:8201D21B2D944A905E509EB5A153F8470A0FA335
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178309.jpgsave_picture_178309.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Sandboxie 5.66.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178311.jpgsave_picture_178311.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:4446D8188CD1F906D3D24542CDEC8AC3DF6B98CE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178313.jpgsave_picture_178313.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:56DA0393029CB93E5E6F91DD52FA10E27C99200D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178315.jpgsave_picture_178315.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:0EB805A90C9BC3F0DE607192E41BAD58910D05B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178317.jpgsave_picture_178317.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Poweramp v3-build-946-uni [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178319.jpgsave_picture_178319.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:6E3E3177B46705DBF7257B1163277CD0C0E648F7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178322.jpgsave_picture_178322.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Poweramp Music Player 3 build-946-uni [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178324.jpgsave_picture_178324.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:8ABA63D6D61E0F9853A1E13BB3F37ADDE1FDC2EC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178327.jpgsave_picture_178327.jpg" />
 </div>
 
 

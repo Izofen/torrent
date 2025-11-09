@@ -6,7 +6,7 @@ Testament - The Formation of Damnation (2008) 2CD, Deluxe Edition [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141490.jpgsave_picture_141490.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Wise Care 365 Pro 3.95.353 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141492.jpgsave_picture_141492.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:9D019444E5164620856D2AFE449309998AD0AD04
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141493.jpgsave_picture_141493.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ magnet:?xt=urn:btih:667A0431BCB4D56C5C14E0334141489ECFF97898
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141494.jpgsave_picture_141494.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Legal Academy, Юрий Брисов, Глеб Крохмалюк, Марина 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141495.jpgsave_picture_141495.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Counter-Strike 1.6 Green Edition (2015) [Ru] (1.1.2.6/pv48/b4554) Repack Vin4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141497.jpgsave_picture_141497.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Kenny Dorham - 'Round About Midnight At The Cafe Bohemia (1956) 2CD, 1995, Blue 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141499.jpgsave_picture_141499.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Холодных Глаз Очарованье (2015) [MP3|256 кб/с] <Ш
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141500.jpgsave_picture_141500.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:A85FD0022EDC9532ADDEDE2A2C6945CA43B15ABD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141501.jpgsave_picture_141501.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Windows 8.1 with Update 3 [November 2014] - Оригинальные образ�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141502.jpgsave_picture_141502.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Markus Schulz - Global DJ Broadcast (Classics Showcase 2019) (2018) [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141503.jpgsave_picture_141503.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:62B638F634703BBBD6BC584D28EE1EE91CAE3EEB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141504.jpgsave_picture_141504.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:79FDF21D283AFA9549BEB349A08CDBA0982336CD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141505.jpgsave_picture_141505.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Polarity 7.2.2 Build 647 [En] (Online-Installer)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141506.jpgsave_picture_141506.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ NetLimiter 5.3.6.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141508.jpgsave_picture_141508.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:49F17EB8007CB01792C7109980E061F51788FE25
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141510.jpgsave_picture_141510.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Sparks - Past Tense: The Best Of (2019) 3CD [FLAC|Lossless|tracks + .cue] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141511.jpgsave_picture_141511.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:23CD57BA6AB6F7D6AD7B5CACD6EB6D2CC0305461
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141512.jpgsave_picture_141512.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Rock Blues Ballads Compilation (2021) [MP3|320 Kbps] <Rock, Blues, Ballads>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141514.jpgsave_picture_141514.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:23F28802446F0912C687781A9213444CACEB481E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141515.jpgsave_picture_141515.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Christmas piano collection (2015) [MP3|320 кб/с] <Piano, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141517.jpgsave_picture_141517.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:7620B287C67DD70F04AF7F538760E8345CCB3940
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141519.jpgsave_picture_141519.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ CoolUtils Total Image Converter 8.2.0.229 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141521.jpgsave_picture_141521.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:8C6E7685C055E50677C94FDC6E2A01A5AC2A2689
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141522.jpgsave_picture_141522.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:E6B6A1818A10243A89EBB73C454175786DEBA424
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141523.jpgsave_picture_141523.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:7FA4744E3C0DFC4FAF6465A1AE8BB14E9DC28EDD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141524.jpgsave_picture_141524.jpg" />
 </div>
 
 

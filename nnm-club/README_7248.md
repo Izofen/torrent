@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247718.jpgsave_picture_247718.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Reg Organizer 9.21 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247719.jpgsave_picture_247719.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:221DCC2B1588F951F9D884291BE1DA9777845E90
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247720.jpgsave_picture_247720.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Farthest Frontier (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247721.jpgsave_picture_247721.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:D08A59B9ED9EFC364D2EC06234099D9448D6B4A7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247722.jpgsave_picture_247722.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:9762F01F90BB739E870C75D413C95FE9FC1D3B06
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247723.jpgsave_picture_247723.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:8D2691307DCF3697040D69A039ED3D01A56509FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247724.jpgsave_picture_247724.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:17FB8519AC46CB23DFDF12BBAC24ADF70C1EADE6
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247725.jpgsave_picture_247725.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Bread & Fred (2023) [Multi] (1.011) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247726.jpgsave_picture_247726.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:70C9F9C405DCE7C75C53EF7C685DE2F69337D6BE
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247727.jpgsave_picture_247727.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:83EB3A06A19DE4083AA0168C57505F59BA198E7D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247728.jpgsave_picture_247728.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Adobe Acrobat Pro 2023.003.20201 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247729.jpgsave_picture_247729.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ The Bat! Professional 10.4.0.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247732.jpgsave_picture_247732.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:CE5F64D16635BFD59E7628478385EAA9F6C0301B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247733.jpgsave_picture_247733.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:5BC5419E2D1669E73EAB8E68174F1DF6670A8770
 >>КВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247734.jpgsave_picture_247734.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Tin Hearts (2023) [Ru/Multi] (1.0.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247735.jpgsave_picture_247735.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:2E893CF552F8FE0B49D4E6B0D01CC9255B0B48F5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247736.jpgsave_picture_247736.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Hitman: Codename 47 (2000) [En] (b192 v2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247737.jpgsave_picture_247737.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:88B623F901792936E77F503324DC172A2C0A4C32
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247738.jpgsave_picture_247738.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Dreams of Another (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247739.jpgsave_picture_247739.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:A6815BC2F8C4A34CEA878B4711919F874A895854
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247740.jpgsave_picture_247740.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:B57615A79DE1CE567856EBAE190DE0B6522123F2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247741.jpgsave_picture_247741.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:8BBF34212D8FB0C8DABA5813A8F2CFBE46EE424A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247742.jpgsave_picture_247742.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:6AA386E29C74B1CF99742F041BFE64FB0D9373D0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247743.jpgsave_picture_247743.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:527CC6FFDD1CC23A1C19A79C01C7F75A23D23AE0
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247744.jpgsave_picture_247744.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Crime Detective: Red Flags (2025) [Ru/Multi] (Build 20464442) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247745.jpgsave_picture_247745.jpg" />
 </div>
 
 

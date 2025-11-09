@@ -6,7 +6,7 @@
 >>84
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139641.jpgsave_picture_139641.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Marcus King Band - Carolina Confessions (2018) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139643.jpgsave_picture_139643.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:00EF7B09BB0EC15DD8463320C21B2CA2A0BF39E1
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139645.jpgsave_picture_139645.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:7CE906C5420F5B032675119773B426B74C0418A1
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139646.jpgsave_picture_139646.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:8B7A7DDCC274EF7A879DB345E0C76DA6FF239780
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139647.jpgsave_picture_139647.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:225A973F0C642D340036DD7AB28BC3B12C21B646
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139648.jpgsave_picture_139648.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2022A7D3A795B5F24F6937CB4CE935AF2049E9EF
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139650.jpgsave_picture_139650.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:5CD9A475A5C2944CB8A41408F61A5750641B20FE
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139651.jpgsave_picture_139651.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C65D9F6747B60E41AB5342C0BAE5E5F36A973234
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139653.jpgsave_picture_139653.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Pond5 - Night Christmas - 44496449 [AEP]
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139654.jpgsave_picture_139654.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ John Hackett & Nick Fletcher - Beyond the Stars (2018) [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139655.jpgsave_picture_139655.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:45258ABBB8FE775E156A9B511405952EDB1EC89E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139656.jpgsave_picture_139656.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:6F4111E2B9C48D26E0CA45CE24E1F06DBC22987D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139657.jpgsave_picture_139657.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:B7E37AF09AFEBC9F3E09C793B481F3C72A071142
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139660.jpgsave_picture_139660.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:EB659968E38D196692408C885E493999B8E8F32D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139661.jpgsave_picture_139661.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:E078892606CB08455FB8B4EB34D3646EE21D65BC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139662.jpgsave_picture_139662.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:83F4C2AF291AC00AD0DC5A0F83549AFEC5019ABE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139663.jpgsave_picture_139663.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Riot Horse - Cold Hearted Woman (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139664.jpgsave_picture_139664.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:03E2671EF2FCC6DCC0FE71FB4652FD6390D348A7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139665.jpgsave_picture_139665.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Need for Speed: Undercover (2008) [Ru/Multi] (1.0.1.17) License PROPHET
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139666.jpgsave_picture_139666.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:338957DC9C82D38735B6611FD1C2666603AE6C95
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139667.jpgsave_picture_139667.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - DNA Techno Mix (2020) [MP3|320 Kbps] <Techno, Tech House, Electro, EDM>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139668.jpgsave_picture_139668.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:662567C61CA5D23993C285DD8CDA25FB6CFBA7F1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139669.jpgsave_picture_139669.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Kennelklubben - Kennelklubben (2018) [FLAC|Lossless|tracks + .cue] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139670.jpgsave_picture_139670.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Bonnie Tyler - The RCA Years (2019) Compilation, 4CD,  Reissue, Remastered [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139671.jpgsave_picture_139671.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:AC3AAD5DD6D5EBBD6E91B38AC3DEB00976235AEB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139672.jpgsave_picture_139672.jpg" />
 </div>
 
 

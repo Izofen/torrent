@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83638.jpgsave_picture_83638.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Time Life - Hard and Heavy Box Set 9CD (2008) [MP3|320 кб/с]<Rock, Hard 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83639.jpgsave_picture_83639.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EC4173240121A3E93EF318DAC8729E23390E0765
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83640.jpgsave_picture_83640.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8F7153241A731A731875836D9329FCECA9728B2A
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83641.jpgsave_picture_83641.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:DEC1B3FB3A14E8618F9AC6D15C9462FA10661A19
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83643.jpgsave_picture_83643.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:A44DDD75BA737B76DF82621C1957B7062B3D23E0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83645.jpgsave_picture_83645.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mozilla Firefox 12.0 Beta 2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83648.jpgsave_picture_83648.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Stefanie Heinzmann - Stefanie Heinzmann (2012) [MP3|320 кб/с]<Soul, Indie Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83651.jpgsave_picture_83651.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Лучшие Из Лучших Зарубежный №19 (2012) [MP3|256 k
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83652.jpgsave_picture_83652.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:8FAFF6DC7BB093825A33AF74655BF2B8786355F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83655.jpgsave_picture_83655.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:567EDF516D13F125E1C7C9AC41EDE9EB8F4A70C8
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83658.jpgsave_picture_83658.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:510D4FBC670ACAF8FE7722CC3F055B9BEB8A369D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83660.jpgsave_picture_83660.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:D67D7390E11656AB732E79FDCC428F909DCF57C6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83661.jpgsave_picture_83661.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:D67D7390E11656AB732E79FDCC428F909DCF57C6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83666.jpgsave_picture_83666.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:3D83F658DB73ADF17854FE76AAF4AAF92EC55927
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83671.jpgsave_picture_83671.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:734FDD0A48368C60C0055CC3975EABCED54D427F
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83676.jpgsave_picture_83676.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Esperanza Spalding - Radio Music Society (2012) [FLAC|Lossless]<Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83677.jpgsave_picture_83677.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Esperanza Spalding - Radio Music Society (2012) [FLAC|Lossless]<Contemporary Jaz
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83679.jpgsave_picture_83679.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Esperanza Spalding - Radio Music Society (2012) [FLAC|Lossless]<Contemporary Jaz
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83680.jpgsave_picture_83680.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Esperanza Spalding - Radio Music Society (2012) [FLAC|Lossless]<Contemporary Jaz
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83682.jpgsave_picture_83682.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ The Mars Volta - Noctourniquet (2012) [FLAC|Lossless]<Progressive Rock / Experim
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83683.jpgsave_picture_83683.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ The Mars Volta - Noctourniquet (2012) [FLAC|Lossless]<Progressive Rock / Experim
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83684.jpgsave_picture_83684.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:D95EA7C2451017C5B4863FD9CD6393E4F97C88D9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83687.jpgsave_picture_83687.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:D95EA7C2451017C5B4863FD9CD6393E4F97C88D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83691.jpgsave_picture_83691.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:74D09B279B34354BE9994AD74B2DE8F06DC82255
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83693.jpgsave_picture_83693.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Speedsoft - MAZ Sound Tools - VSampler v3.5.2 x86  by TEAM H2O (VSTi, DXi, STADA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83695.jpgsave_picture_83695.jpg" />
 </div>
 
 

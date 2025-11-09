@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45337.jpgsave_picture_45337.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cockos REAPER 7.22 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45338.jpgsave_picture_45338.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Fast Video Cutter Joiner 5.3.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45339.jpgsave_picture_45339.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Topaz Video AI 5.3.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45340.jpgsave_picture_45340.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:65E346E5C5FA288723DE5BA1ED77D47FC8F014D3
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45341.jpgsave_picture_45341.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3A24248DFED1F4CBFDAF0A071E5359D82D6BA2D5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45342.jpgsave_picture_45342.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ PotPlayer 240827 (1.7.22317) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45343.jpgsave_picture_45343.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ PotPlayer 240827 (1.7.22317) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45344.jpgsave_picture_45344.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:C88F7F3B0D535B80A9C85D08C54956D7236A6CBE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45345.jpgsave_picture_45345.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:8139BF1DC227E54F9DAB6585BB92F7875EE725E2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45346.jpgsave_picture_45346.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ WinCatalog 2024.8.0.826 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45347.jpgsave_picture_45347.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:364F212F69C41D5C87A199A666AABEF17FC83AB5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45348.jpgsave_picture_45348.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:9ECA4FA5CDB800D14934BAB307B855136CFC01F2
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45349.jpgsave_picture_45349.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Rock Identifier - Stone ID v2.3.39 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45350.jpgsave_picture_45350.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:3429505652FF73AB36E23BFF48CA90AC64745CE9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45351.jpgsave_picture_45351.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:26E2DA0C6F53D448605BFD8D61BF974881443EBA
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45352.jpgsave_picture_45352.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:DFD203692D2BD453907802A2A25AD057D6127326
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45353.jpgsave_picture_45353.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ WinCatalog 2024.8.0.826 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45354.jpgsave_picture_45354.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ inPixio Photo Focus Pro 4.3.8622 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45355.jpgsave_picture_45355.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ MediaHuman YouTube Downloader 3.9.9.95 (2408) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45356.jpgsave_picture_45356.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:698FE68AFE886D8A04F3AD6EA4B26D0500999986
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45357.jpgsave_picture_45357.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ ToonMe v0.7.12 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45358.jpgsave_picture_45358.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:B8BBE03842C3BCABB5BE66E9EB25DEF68E56E7D9
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45359.jpgsave_picture_45359.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:15836451903743932104076DA4281168F3AB4D28
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45360.jpgsave_picture_45360.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:8D1ED33971EDD2893B86FC19012594AAFA6C3850
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45361.jpgsave_picture_45361.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ PowerISO 8.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45362.jpgsave_picture_45362.jpg" />
 </div>
 
 

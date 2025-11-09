@@ -6,7 +6,7 @@ v2rayN 6.55 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47313.jpgsave_picture_47313.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Beth Hart / Live at Paradiso (2005) DVD9 <Blues rock, Jazz fusion, Soul>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47314.jpgsave_picture_47314.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:176F0724A4DD713E65AE20FC44FAB15AF12140D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47315.jpgsave_picture_47315.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:4DEFCF894DA8805E57A6EBADC691AC412B18F77F
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47316.jpgsave_picture_47316.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:8FF0366A10E7964C3E76F2F552E3903BB4F538B0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47317.jpgsave_picture_47317.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ HammerFall - Avenge The Fallen (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47318.jpgsave_picture_47318.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:43BB64DA319D01A16A28911FD09CA761DFCF87CF
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47319.jpgsave_picture_47319.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Surge XT 1.3.3 Standalone, CLAP, VSTi 3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47320.jpgsave_picture_47320.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Space Purr - X-Meow | Once Upon a Space (2016, 2018) [FLAC|Lossless|WEB-DL|track
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47321.jpgsave_picture_47321.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:5033BCAD9600585D1A1112FCF4B575909E6E79CE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47322.jpgsave_picture_47322.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:5033BCAD9600585D1A1112FCF4B575909E6E79CE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47323.jpgsave_picture_47323.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:9E8146D81C276FD5F8B970AE8FE06561B370CD89
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47324.jpgsave_picture_47324.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ StartAllBack 3.8.2 build 5125 (DC-07-08-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47325.jpgsave_picture_47325.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Rondo Fantastico - La Serenissima (2006) [WavPack|Lossless|image + .cue] <Pop In
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47326.jpgsave_picture_47326.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:A39967584759CC555AED68EEF849E757FE8DA8FE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47327.jpgsave_picture_47327.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Revoльvers - Целуешь меня (2007) [WavPack|Lossless|image + .cue] <P
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47328.jpgsave_picture_47328.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Avi Rosenfeld - Black Rock Mountain (2023) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47329.jpgsave_picture_47329.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Phineas Newborn, Jr. - Please Send Me Someone To Love (1969) 1997, Original Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47330.jpgsave_picture_47330.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ A Rising Force - Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47331.jpgsave_picture_47331.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Armin van Buuren - A State Of Trance 1185 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47332.jpgsave_picture_47332.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:FB50F77C66F4CA0145BBFB9F20670C52CDAC281B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47333.jpgsave_picture_47333.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Kaisas - Ieria (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47334.jpgsave_picture_47334.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Social Distortion (Social D; SxDx) - Studio Albums (3 releases) (1996-2011) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47335.jpgsave_picture_47335.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ The Mantle - Violent Cosmic Fortune (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47336.jpgsave_picture_47336.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Italo Disco Hits Vol. 1-2 Collectors Edition (2010) [MP3|320 Kbps] <Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47337.jpgsave_picture_47337.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ FinePrint 12.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47338.jpgsave_picture_47338.jpg" />
 </div>
 
 

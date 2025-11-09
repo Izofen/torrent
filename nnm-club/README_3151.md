@@ -6,7 +6,7 @@ Apollo Brown - This Must Be The Place (2022) [FLAC|Lossless|tracks + .cue] <Inst
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101503.jpgsave_picture_101503.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Apollo Brown & Planet Asia - Sardines (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101504.jpgsave_picture_101504.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Apollo Brown & Philmore Greene - Cost of Living (2022) [FLAC|Lossless|Web-DL|tra
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101505.jpgsave_picture_101505.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Apollo Brown & Stalley - Blacklight (2021) [FLAC|Lossless|tracks + .cue] <Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101506.jpgsave_picture_101506.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Text Editor Pro 31.0.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101507.jpgsave_picture_101507.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:015E1704D42BE4A56732672515A30355CB9E7EC3
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101508.jpgsave_picture_101508.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ The Smoothies - December Chill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101509.jpgsave_picture_101509.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Jim Jones - Pray IV Reign (2009) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101510.jpgsave_picture_101510.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:8091BD45C702588A791998A9A97AA0AC477FACF7
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101511.jpgsave_picture_101511.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:C02A74C7DC383C1DD7EBDC424D2176C76EF2F7D5
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101512.jpgsave_picture_101512.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mawuena Kalu - Smooth Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101513.jpgsave_picture_101513.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:9837E34E0B885FA76128198683C0A2D04D57795A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101514.jpgsave_picture_101514.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Seefeel - Everything Squared (2024) EP [FLAC|Lossless|Web-DL|tracks] <IDM, Dub, 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101515.jpgsave_picture_101515.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Fighter V - Heart Of The Young (2024) Japanese Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101516.jpgsave_picture_101516.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Fate - Reconnect 'n Ignite (2024) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101517.jpgsave_picture_101517.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:BC5D90226CAFAE3E3961B1B46D5A8959C7A579AD
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101518.jpgsave_picture_101518.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:83E563791602AB9A6BBE33DB2A7B43B9048F83F1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101519.jpgsave_picture_101519.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Powell-Payne - Voilà (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101520.jpgsave_picture_101520.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ King King Kings - Can't Keep from Crying (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101521.jpgsave_picture_101521.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Sly & The Family Stone - The Best of Sly & The Family Stone (2024) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101522.jpgsave_picture_101522.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:3AC534737EF7ABB1562BB2CFB2D3EFC92E059CFB
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101523.jpgsave_picture_101523.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ John Hicks - John Hicks (1982) 2003, Evidence [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101524.jpgsave_picture_101524.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ The Old Dead Tree - Second Thoughts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101525.jpgsave_picture_101525.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Brazen Abbot - Bad Religion (1997) Remastered, 2024, Frontiers Records s.r.l. [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101526.jpgsave_picture_101526.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:962A7069B255BE2DDE5A79D97F71F3F6CE05D0BA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101527.jpgsave_picture_101527.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ magnet:?xt=urn:btih:90C0831C3FE25F709CBF06B2C13224857F8E8AC2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101528.jpgsave_picture_101528.jpg" />
 </div>
 
 

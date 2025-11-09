@@ -6,7 +6,7 @@
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62793.jpgsave_picture_62793.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:017F807967C36D5931CE3B6753BB983ACDA9F426
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62794.jpgsave_picture_62794.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:23FF1BE1FFAFF501623F099006F0A42B9262ADB6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62795.jpgsave_picture_62795.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6F6EE32199C94E2FA0F8FD130EF35DD4DD391257
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62796.jpgsave_picture_62796.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ D: Жажда крови / Banpaia Hunter D: Buraddorasuto / Vampire Hunter D: B
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62797.jpgsave_picture_62797.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:9F850651A91DA56D537B61B91B7A57B1C153D420
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62798.jpgsave_picture_62798.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Unknown (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62799.jpgsave_picture_62799.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ AOMEI Partition Assistant Standard Edition 10.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62800.jpgsave_picture_62800.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ StartAllBack 3.7.7 build 4898 (DC 15.03.2024) StartIsBack++ 2.9.20 (2.9.1 for 16
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62801.jpgsave_picture_62801.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Ubuntu GamePack 20.04 (март 2024) [amd64] DVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62802.jpgsave_picture_62802.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ StartAllBack 3.7.7 build 4898 (DC-15-03-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62803.jpgsave_picture_62803.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:E7AE42C938DBB171D2DC2ACF09A2D6B6B5E22A8A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62804.jpgsave_picture_62804.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Udemy, Jacob Zirkle | Blender VFX Course: From Beginner To Pro! (2024) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62805.jpgsave_picture_62805.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:29A10EC219F7B3EAF1D0C327BB83C6BE4A12E2F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62806.jpgsave_picture_62806.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:9FE5454FB7EE448DCE97943A5DE319C5908C4186
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62807.jpgsave_picture_62807.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:D95E507FC44453F5500B798F3BD75D8C7E6716B6
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62808.jpgsave_picture_62808.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ BBC: Гении современного мира / Genius Of The Modern World (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62809.jpgsave_picture_62809.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:57CC6C244C27DAB600A79EE13756D86FB4FAB662
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62810.jpgsave_picture_62810.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:C72E34879515E14E4A280E7F9C465D7F42E0040D
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62811.jpgsave_picture_62811.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:7FF1F7B192E69447FB1EEA9A30DE278A434024EB
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62812.jpgsave_picture_62812.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Tank Operations: European Campaign (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62813.jpgsave_picture_62813.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Oshi no Ko | Звёздное дитя [ТВ-1] [2023, TV, 11 из 11] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62814.jpgsave_picture_62814.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:02866B142B0428A838F5045557AC8165A2943CF4
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62815.jpgsave_picture_62815.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ BBC: Доминик Монаган и дикие существа / Wild Things 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62816.jpgsave_picture_62816.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Gumroad, Thiago Klafke | Environment Art Mastery (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62817.jpgsave_picture_62817.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:499954237BCF9B1700B91F1C3244E13916B275C2
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62818.jpgsave_picture_62818.jpg" />
 </div>
 
 

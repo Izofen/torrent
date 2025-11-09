@@ -6,7 +6,7 @@ Unto Others - Never, Neverland (2024) Deluxe Edition [FLAC 24/96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104231.jpgsave_picture_104231.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Defiled - Horror Beyond Horror (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104232.jpgsave_picture_104232.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:15FE8FA059E06B9D1C14C7DA2B6BDEDB228F9D35
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104233.jpgsave_picture_104233.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:CE53915E91D36F56A138ED9B938FE05BB0842694
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104234.jpgsave_picture_104234.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Vivaldi 6.9.3447.46 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104235.jpgsave_picture_104235.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:84391E044164035694D7B7D99A96DEACA151BFFD
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104236.jpgsave_picture_104236.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Fleetwood Mac - Mirage Tour '82 (1982) Remaster, 2024,  Rhino - Warner Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104237.jpgsave_picture_104237.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:34EA7777E5D4D0DD024A2F9FA677BB5B38EBA83F
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104238.jpgsave_picture_104238.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ XYplorer 26.40.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104239.jpgsave_picture_104239.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Skid Row - Live in London (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104240.jpgsave_picture_104240.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ VA - Arabic Deep House (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104241.jpgsave_picture_104241.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:56CA0C9F7BC97F3C0D225188EFC0174A4E133114
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104242.jpgsave_picture_104242.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Deep House 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104243.jpgsave_picture_104243.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Bones Uk - Soft (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Imdustrial Rock, G
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104244.jpgsave_picture_104244.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 6 (2024) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104245.jpgsave_picture_104245.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ VA - DJ Hits Vol. 5100 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104246.jpgsave_picture_104246.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Eclipse - Megalomanium II (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104247.jpgsave_picture_104247.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:A2B58AF348B2D8E355AAD4EA803066E20BE3ED9C
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104248.jpgsave_picture_104248.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:26D1E4AF85A7E176C952F02FCC5D56075725CF9B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104249.jpgsave_picture_104249.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:FE68BAE3830A4FE230355E0E489046F724F5AB9A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104250.jpgsave_picture_104250.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Miseration - Studio Albums (4 releases) (2006-2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104251.jpgsave_picture_104251.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:45D98CA2F86CF4B4186141BB5BE9EA92C99D17C5
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104252.jpgsave_picture_104252.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:B33F18A56F88425883AFB0FB7F48D8B6E80D8B4F
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104253.jpgsave_picture_104253.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:B77C852E11AC04CC7D31792F473A5DDD02F782AA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104254.jpgsave_picture_104254.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Earth Lux - Earth Lux (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104255.jpgsave_picture_104255.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:6ED0AB1FD3412E55410BB008581263A0F685DF45
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104256.jpgsave_picture_104256.jpg" />
 </div>
 
 

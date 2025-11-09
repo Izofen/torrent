@@ -6,7 +6,7 @@ Cymatics - Illusion 1.0.0 VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108602.jpgsave_picture_108602.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Togu Audio Line - TAL-Pha 1.2.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109210.jpgsave_picture_109210.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Togu Audio Line - TAL-Dub-X 2.1.0 VST, VST 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109233.jpgsave_picture_109233.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ GForce - impOSCar 3 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109437.jpgsave_picture_109437.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Knif Audio & Plugin Alliance - Soma 1.3.1 VST, VST 3, AAX (x64) RePack by TCD [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109481.jpgsave_picture_109481.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Audio Damage - Other Desert Cities 1.0.11 VST 3, AAX, CLAP (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109626.jpgsave_picture_109626.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Plugin Alliance & Dmitry Sches - DS Thorn 1.3.3 VSTi, VSTi 3, AAX (x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109649.jpgsave_picture_109649.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Plugin Alliance - Brainworx Bx_glue 1.0.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109916.jpgsave_picture_109916.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Audio Damage - Replicant 3 3.0.9 VST 3, CLAP, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110013.jpgsave_picture_110013.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Futurephonic - Rhythmizer Ultra 1.1.0 CLAP, VSTi 3 (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110193.jpgsave_picture_110193.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Tracktion Software & Dawesome - Novum 1.17 VSTi 3 (x64) RePack by TCD + Content 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110262.jpgsave_picture_110262.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Plugin Alliance & ADPTR Audio - Hype 1.0.0 VST, VST 3, AAX (x64) RePack by TCD [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110271.jpgsave_picture_110271.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ FigrCollage Professional 3.3.6.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110274.jpgsave_picture_110274.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Nevercenter CameraBag Pro 2024.1.0 (x64) Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110304.jpgsave_picture_110304.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ PSPaudioware - PSP stompDelay 1.1.4 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110529.jpgsave_picture_110529.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ W.A. Production - Instachord 2 2.0.6.240204 VSTi, VSTi 3, AAX (x86/x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111763.jpgsave_picture_111763.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ PhotoResizerOK 2.91 Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111976.jpgsave_picture_111976.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Togu Audio Line - TAL-Pha 1.1.8 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112525.jpgsave_picture_112525.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ TONSTURM - DopplerPRO 1.1.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112537.jpgsave_picture_112537.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ BABY Audio - BA-1 1.5.0 STANDALONE, VSTi, VSTi3, AAX (x86/x64) + Expansion Packs
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112985.jpgsave_picture_112985.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Sugar Bytes - Effectrix 2 v2.0.3 Standalone, VST, VST 3, AAX (x64) RePack by TCD
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114219.jpgsave_picture_114219.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ mp3Tag Pro 12.1 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114565.jpgsave_picture_114565.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ ZBrush 2024.0.2.22 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115123.jpgsave_picture_115123.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Photo Mechanic Plus v6.0 build 7102 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115267.jpgsave_picture_115267.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ FFmpeg Batch AV Converter 3.0.4 + Portable [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115406.jpgsave_picture_115406.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Axialis IconWorkshop Professional 6.9.5.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116093.jpgsave_picture_116093.jpg" />
 </div>
 
 

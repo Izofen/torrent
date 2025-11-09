@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252202.jpgsave_picture_252202.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9551C5B744AC1CA6F0E00FE0BFFA11E039BB00BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252214.jpgsave_picture_252214.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Air: Большой прыжок / Air (2023) WEB-DLRip [H.264] [MVO]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252216.jpgsave_picture_252216.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:12F002721B4137DA88D0D2EB46F57DF6D8C984C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252225.jpgsave_picture_252225.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3265CDF450F661BCCBB2C9471A2DC7C71F9146B2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252232.jpgsave_picture_252232.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4E1836E87D0500302B833556B157DF5CA8D0DBE7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252236.jpgsave_picture_252236.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:5AE032E0E674AFE30B53DCE506C498F79713EC2C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252246.jpgsave_picture_252246.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:9D9C187AA6673432846AEDE170E85A0BB23D7655
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252248.jpgsave_picture_252248.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:51456A60A37405F885B3239ADD815E20E1C61435
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252257.jpgsave_picture_252257.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:8C208CE9ECD2290943A1D4DF3F274C50F1ECC808
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252261.jpgsave_picture_252261.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:31FCF614BFBAC237D46C6FB9E409A8EA8C2CF840
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252266.jpgsave_picture_252266.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:7F96225E1EAC30218B5C1D01E590F345015F57C2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252307.jpgsave_picture_252307.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:38FBC2C06B3C66A59E40F1FE4544DE98B5294E4C
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252323.jpgsave_picture_252323.jpg" />
 </div>
 
 

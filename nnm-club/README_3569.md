@@ -6,7 +6,7 @@ Firefox Browser 124.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113169.jpgsave_picture_113169.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bossa Cafe en Ibiza, Bossanova, Instrumental Jazz School, Marco Rinaldo - Sensua
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113170.jpgsave_picture_113170.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ StaxRip 2.37.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113171.jpgsave_picture_113171.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Finder Windows 1.5.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113172.jpgsave_picture_113172.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Unclutter 2.2.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113173.jpgsave_picture_113173.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Photo Studio PRO v2.7.3.2413 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113174.jpgsave_picture_113174.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:33A26EA5E40EB867A231692CC891EE3C201C0FE6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113175.jpgsave_picture_113175.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:2731734982321637637CDEECC39C47EAD613EB06
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113176.jpgsave_picture_113176.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:26419B34646790901DA0D04F353440E000F04C65
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113177.jpgsave_picture_113177.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:41C5A92C810EFB082E0C0779B98530F1E9DB149E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113178.jpgsave_picture_113178.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Craig Erickson - 12 Albums (1992 - 2015) [FLAC|Lossless|tracks + .cue|image + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113179.jpgsave_picture_113179.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Ganymed - Dimension No.3 (1980) [FLAC 24/96|Lossless|tracks] <Pop, Electronic, D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113180.jpgsave_picture_113180.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:00CF73F01D3BF8E68D8E947EF532B60781A05216
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113181.jpgsave_picture_113181.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ DiskCatalogMaker 9.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113182.jpgsave_picture_113182.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:45FEE49A0F877D5FD739C625960A7E837338642F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113183.jpgsave_picture_113183.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:49E9EBCEB4D4A64833AD73429976DD3369389460
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113184.jpgsave_picture_113184.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:F71F79F5739AE2FBB65E834F0709359F539181A8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113185.jpgsave_picture_113185.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:75090211A0F7566C92B566FC3D3FB67DB392F90D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113186.jpgsave_picture_113186.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ DesktopOK 11.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113187.jpgsave_picture_113187.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Feel Good Classic Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113188.jpgsave_picture_113188.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Strava: бег, велоезда, хайкинг v351.15 Mod by ReVanced Team [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113189.jpgsave_picture_113189.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - От мелодии к мелодии (5 серия) - Концерт ит�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113190.jpgsave_picture_113190.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Эстрадная орбита (1974) [FLAC 24/192|Lossless|tracks] <Retro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113191.jpgsave_picture_113191.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:A39791309F904E0D8D047E95DAFCD43EF6E69010
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113192.jpgsave_picture_113192.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - Музыкальный телетайп 2 (1987) [FLAC 24/192|Lossless|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113193.jpgsave_picture_113193.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - Парад ансамблей (3) (1985) [FLAC 24/192|Lossless|tracks] <Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113194.jpgsave_picture_113194.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176261.jpgsave_picture_176261.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5E746B9C466CB6034B8824F00870F0C09A25C0BB
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176263.jpgsave_picture_176263.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Devils Paradise - Post Mortem (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176264.jpgsave_picture_176264.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:041AD7F864D96432A1F665B077AC40214ECB706C
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176266.jpgsave_picture_176266.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ That Joe Payne - Ding Dong (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176267.jpgsave_picture_176267.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:4E9370BFE3FEFA08852DFD95CF5ACF8697C8C961
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176269.jpgsave_picture_176269.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Kevin DePetrillo - Magic Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176270.jpgsave_picture_176270.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:83F9B99B788333D83D92ABAA35F3CF5EA22833E2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176272.jpgsave_picture_176272.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Meteora - …of Shades and Colours (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176273.jpgsave_picture_176273.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:FA36736260D736BF257735B79E57A93DD503CABF
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176275.jpgsave_picture_176275.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Threshold - Dividing Lines (2022) [FLAC|Lossless|image + .cue] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176276.jpgsave_picture_176276.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:C1A341928873C27F6E8F4FEDFE5BF70964DA45F5
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176278.jpgsave_picture_176278.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:1E8045D57F95167620263BE520D075D78DAD0049
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176279.jpgsave_picture_176279.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Softline - Маяки (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176280.jpgsave_picture_176280.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:B40AF169C1F808C6B544FED7C6A30A2630E8B58B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176282.jpgsave_picture_176282.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Synestia - Maleficium (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Deathcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176283.jpgsave_picture_176283.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:E43A812FCF5024C64A3156186568EAC9503A72CE
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176284.jpgsave_picture_176284.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:B943D689E048777277BF0A99F46ADE43D33CD536
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176285.jpgsave_picture_176285.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Who Dies in Siberian Slush - 4 Albums (2013-2020) [MP3|320 Kbps] <Funeral Doom, 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176286.jpgsave_picture_176286.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Panzerkreuzer - 2 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Old School D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176287.jpgsave_picture_176287.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Node University | Подборка курсов по разработке на N
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176288.jpgsave_picture_176288.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Newman - Into The Monsters' Playground (2021) [FLAC|Lossless|image + .cue] <Melo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176289.jpgsave_picture_176289.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:2735986341748BC65DDB8F84BE3DA1E66290CE42
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176290.jpgsave_picture_176290.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Manuel Sirgo Alvarez | Бумажные жуки и другие экзотич�
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176291.jpgsave_picture_176291.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:9E5DF34F00EFE2713FEC701A73AB7B0ADD599B54
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176292.jpgsave_picture_176292.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:FC975DCB7876750CDB7EA9D18C8B681830AA1593
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176293.jpgsave_picture_176293.jpg" />
 </div>
 
 

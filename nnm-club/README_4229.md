@@ -6,7 +6,7 @@ Speedtest от Ookla 5.2.4 Mod by LEEAPK [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131104.jpgsave_picture_131104.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:440B5B6CF9173973995F70EB127EC5CF19F932EA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131105.jpgsave_picture_131105.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:26024AEBD1E8B1316B86CE99CD4E57C33C32E85A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131106.jpgsave_picture_131106.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Donnie B & The Hot Damn Band - Live & On Fire (2010) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131107.jpgsave_picture_131107.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Donnie B & The Hot Damn Band - Live & On Fire (2010) [FLAC|Lossless]<Blues-Rock>
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131108.jpgsave_picture_131108.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - Melodic Rock Throwback (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131109.jpgsave_picture_131109.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Atreyu - The Beautiful Dark of Life (2023) [MP3|320 Kbps] <Alternative-Rock, Har
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131110.jpgsave_picture_131110.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Dance With the Dead - Out of Body (2013) Remastered Edition, 2023 [FLAC|Lossless
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131111.jpgsave_picture_131111.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:9CCB57CAB8602DA30D5B2C495CE054D52B6E693B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131112.jpgsave_picture_131112.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:E0059E7F0614D8EC5902AD89F9CA37EB6B2B680A
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131113.jpgsave_picture_131113.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:F9176264B4BB3726DFA7575C6FF026BFFD4A2BCF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131115.jpgsave_picture_131115.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:25B17A11DAD1E8907FC96851B1FD1E745C8ABD23
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131117.jpgsave_picture_131117.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Everdawn - Venera (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131118.jpgsave_picture_131118.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:FA3DB30AD23973D223FFE448006C5FB47099FCB2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131120.jpgsave_picture_131120.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Dawn of Relic - Night on Earth (2005) [WavPack|Lossless]<Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131121.jpgsave_picture_131121.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Don Ray Band - Lonesome Rider (2010) [APE|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131122.jpgsave_picture_131122.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Don Ray Band - Lonesome Rider (2010) [APE|Lossless]<Blues-Rock>
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131123.jpgsave_picture_131123.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:54AB239E05D20966BF9B8C946F4F91CBA0CD99D5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131124.jpgsave_picture_131124.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:084FDDF461004E2A400C810C148D111AE39A979A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131125.jpgsave_picture_131125.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:4D71BEF183AE0CE5304E89E3622181357213AF0B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131127.jpgsave_picture_131127.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:BAF06B808A73B4BF16B1C0BC7CCA04D5B1557B38
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131128.jpgsave_picture_131128.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Sexy Girls Wallpapers (30.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131129.jpgsave_picture_131129.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Spirits of Fire - Embrace the Unknown (2022) [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131130.jpgsave_picture_131130.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Paul Reed Smith - Eightlock - Lions Roaring in Quicksand (2023) [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131132.jpgsave_picture_131132.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ REC. - Мордой В sWeg (2012) [MP3|320 кб/с]<Rap|Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131133.jpgsave_picture_131133.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ magnet:?xt=urn:btih:84AD68B98916FBDAD0C1486386786E91FD86375F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131134.jpgsave_picture_131134.jpg" />
 </div>
 
 

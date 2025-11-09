@@ -6,7 +6,7 @@
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45961.jpgsave_picture_45961.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:1AD5F92EA245928ACA6FF9184507A15A858924EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45962.jpgsave_picture_45962.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Depeche Mode - Personal Jesus (1990) HDTV [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45963.jpgsave_picture_45963.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:037D34E0EB41E1597AA9C93161F3287BD84852F8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45964.jpgsave_picture_45964.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0CC4B5A282EB1410C6ED52C47B9A5E82BB7E7ACE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45965.jpgsave_picture_45965.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:13694E176385E2AFD4F3912F679BFA8973F1305A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45966.jpgsave_picture_45966.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Celemony - Melodyne Studio 5.4.1.004 STANDALONE, VST 3, AAX (x64) Repack by R2R 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45967.jpgsave_picture_45967.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Music News For Forum vol.014 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45968.jpgsave_picture_45968.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:88A8BEB49C0989E199B3EE1FCABA9A76E114DDF4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45969.jpgsave_picture_45969.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:8FFFFB92BCB30D3B0457728F2B12DA835319717C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45970.jpgsave_picture_45970.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:8FFFFB92BCB30D3B0457728F2B12DA835319717C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45971.jpgsave_picture_45971.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:D40E8A63A46BF0F2AE9B4C04518EAD9248C0061D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45972.jpgsave_picture_45972.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:F52D8098A97D0B5E14AD7FF21BF0F523F5296BA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45973.jpgsave_picture_45973.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Firefox Browser 129.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45974.jpgsave_picture_45974.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:35AB3FD460B7408B8135F240AFB33B7AECFC7187
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45975.jpgsave_picture_45975.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ KORG - ARP 2600 1.0.5 Standalone, VSTi 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45976.jpgsave_picture_45976.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:CD852BAF6241B1778E9DDA232FBF741776AC8A68
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45977.jpgsave_picture_45977.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:F41C4687114D619B5BD0BADC2ED2DC0DF184F009
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45978.jpgsave_picture_45978.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Google Chrome 128.0.6613.85 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45979.jpgsave_picture_45979.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:84E31A39EEAB74C74ED85717FE229CA73B7A597A
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45980.jpgsave_picture_45980.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:C5E8CCF9C28A80817155EACC79587250C78E43DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45981.jpgsave_picture_45981.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ashampoo UnInstaller 15.00.00 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45982.jpgsave_picture_45982.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:BF780B9DBE623AE01ADAD4A46653C43ED233FF2B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45983.jpgsave_picture_45983.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:BF780B9DBE623AE01ADAD4A46653C43ED233FF2B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45984.jpgsave_picture_45984.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:091D892BE9ECA4FA3FB47F6059EC8A197A707455
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45985.jpgsave_picture_45985.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ NirLauncher Package 1.30.13 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45986.jpgsave_picture_45986.jpg" />
 </div>
 
 

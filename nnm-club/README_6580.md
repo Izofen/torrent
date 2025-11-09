@@ -6,7 +6,7 @@ Emurasoft EmEditor Professional 22.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210716.jpgsave_picture_210716.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Jessi Frey - Warrior (2022) [MP3|320 Kbps] <Industrial Rock, Synthpop, Electroni
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210719.jpgsave_picture_210719.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:173C4A29715512792B97F6B2F5C39707BF64016F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210721.jpgsave_picture_210721.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Native Instruments Kontakt 7 v.7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210722.jpgsave_picture_210722.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:A811369DECCC3D4568E9CDF0A93935B54CD9CC72
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210725.jpgsave_picture_210725.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:98CD24819AE327669D22979E8098708A9EABB841
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210727.jpgsave_picture_210727.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:65DE168CA5F02CC4BF5B0290405741B4A1C93C16
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210728.jpgsave_picture_210728.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Eloy - Echoes from the past (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210730.jpgsave_picture_210730.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Seal 1.10.0-beta.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210733.jpgsave_picture_210733.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:CE575731899D7621309747EBA7876917B5B94CB8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210737.jpgsave_picture_210737.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:A3FB48041C42CE2F7C9B3A2251ED5E2686CAFABF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210738.jpgsave_picture_210738.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - Suanda Ibiza (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210741.jpgsave_picture_210741.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Native Instruments Komplete Kontrol 2.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210743.jpgsave_picture_210743.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Downie 4.6.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210744.jpgsave_picture_210744.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:0A2859AD622DCC1B59D19CBB40D949A1375282C1
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210746.jpgsave_picture_210746.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Nothing But... Trancetopia, Vol. 04 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210748.jpgsave_picture_210748.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Mimestream 1.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210751.jpgsave_picture_210751.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ FinePrint 11.39 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210756.jpgsave_picture_210756.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Topaz Photo AI 1.3.9 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210759.jpgsave_picture_210759.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Altair PSIM 2022.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210760.jpgsave_picture_210760.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:AECEB9EC924E35B75A4FB113A1A18F0F1F962155
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210761.jpgsave_picture_210761.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Wise Care 365 Pro 6.5.5.628 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210764.jpgsave_picture_210764.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ WinSCP 6.1.1 Build 13736 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210765.jpgsave_picture_210765.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft .NET 7.0.8 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210767.jpgsave_picture_210767.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Slimjet 39.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210769.jpgsave_picture_210769.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Wondershare PDFelement 9.5.11.2311 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210770.jpgsave_picture_210770.jpg" />
 </div>
 
 

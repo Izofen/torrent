@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141334.jpgsave_picture_141334.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FF9F7D5ED0A0E1AE7BF6E6ED225C0AEBD94E0B71
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141335.jpgsave_picture_141335.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Garmin: AnaDigit Map 6.41 (Greek Anavasi TopoNavigator) [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141336.jpgsave_picture_141336.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Privatus 5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141337.jpgsave_picture_141337.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:E07189A4FAC0AB1BA2757EDCD36D7F4CC527BB1A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141338.jpgsave_picture_141338.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:F2B77D7B716D6ABD9114EA3F90B65A6FB9483C45
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141340.jpgsave_picture_141340.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:2784DB3F35E9CA5B91543B8FEE2915A8290B40DC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141341.jpgsave_picture_141341.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ DJ Skydreamer - Happy Hardcore (2005) Монолит [APE|image+.cue] <Hardcore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141342.jpgsave_picture_141342.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141343.jpgsave_picture_141343.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Sam Most - From The Attic Of My Mind (1978) 2015, Xanadu[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141344.jpgsave_picture_141344.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - German Top 100 Single Jahrescharts 2018 (2018) [MP3|320 Kbps] <Pop, Rap>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141345.jpgsave_picture_141345.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:9F891C1BF4C4F8CFE82BE5388FACE2A8D98B9621
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141346.jpgsave_picture_141346.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:5EBA764678398D74F3067A532DCB612436DDF7B9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141347.jpgsave_picture_141347.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - Пацаны - Ваще Ребята! vol.23 (2015) [MP3|128-320 кб/с] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141348.jpgsave_picture_141348.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:845505FE07AE987D98AAE3793C0457B2F4B118FB
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141350.jpgsave_picture_141350.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:FD9D3CEA5F32532C9D5F3DE86F3F27B2443BE632
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141351.jpgsave_picture_141351.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:F61BD8C190E52977ADD3D306B4DB7DC6C20F57E4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141352.jpgsave_picture_141352.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:F61BD8C190E52977ADD3D306B4DB7DC6C20F57E4
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141353.jpgsave_picture_141353.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Digest - Digest (1994) Qvalitet[FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141354.jpgsave_picture_141354.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:1659B140BF775EC40A36503B58431DB9A4A1BEA8
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141355.jpgsave_picture_141355.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:609B1B2D4E21E79FEBDD0EC3F605441F6841F144
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141357.jpgsave_picture_141357.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:0F8EC3BDEC028C55283ED3EEBFC1AB8DCBC5D9DA
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141358.jpgsave_picture_141358.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:4B63599851858A99270E55D225D3474DA0AA9329
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141359.jpgsave_picture_141359.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:FFF7C64DA631027B32A5E3CCE9EC27B716527FDE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141360.jpgsave_picture_141360.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Eero Koivistoinen - Altered Things (1991) Remaster, 2015, Solid Records[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141361.jpgsave_picture_141361.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:9A0BA2342D07415BBAAEBBA8FBCEAC72ACAF0706
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141363.jpgsave_picture_141363.jpg" />
 </div>
 
 

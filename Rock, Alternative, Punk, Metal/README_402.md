@@ -6,7 +6,7 @@ Nita Strauss - The Call of the Void (2023) [FLAC|24/48|tracks|WEB-DL] <Instrumen
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233141.jpgsave_picture_233141.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rhegia - The Battle of Deliverance (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233145.jpgsave_picture_233145.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lotan - Lotan (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233147.jpgsave_picture_233147.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lamp of Murmuur - Saturnian Bloodstorm (2023) [FLAC|Lossless|WEB-DL|tracks] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233153.jpgsave_picture_233153.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Def Leppard with the Royal Philharmonic Orchestra - Drastic Symphonies (2023) [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233158.jpgsave_picture_233158.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Vortex - The Future Remains In Oblivion (2023) [MP3|320 Kbps] <Melodic Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233160.jpgsave_picture_233160.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Deville - Heavy Lies the Crown (2022) [MP3|320 Kbps] <Heavy Rock, Stoner Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233167.jpgsave_picture_233167.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Raven - All Hell's Breaking Loose (2023) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233172.jpgsave_picture_233172.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Def Leppard - Let's Get Rocked (1992) Single [OGG Vorbis|484 Kbps] <Rock, Hard R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233174.jpgsave_picture_233174.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - classic rock classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233184.jpgsave_picture_233184.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Thelemite - Survival Of The Fittest (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233191.jpgsave_picture_233191.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Boys From Heaven - The Descendant (2023) [FLAC|Lossless|image + .cue] <Melodic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233216.jpgsave_picture_233216.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Nita Strauss - The Call of the Void (2023) [FLAC|24/48|tracks|WEB-DL] <Heavy Met
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233224.jpgsave_picture_233224.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Kotipelto - Coldness (2004) [OGG Vorbis|484 Kbps] <Rock, Speed Metal, Heavy Meta
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233229.jpgsave_picture_233229.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Ignis Noctem - Desecrated Darkness (2021) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233242.jpgsave_picture_233242.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Greg Puciato - 1 Album, 3 Singles (2021-2022) [FLAC|24/48, 96|WEB-DL|tracks] <Ma
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233245.jpgsave_picture_233245.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Circus Of Rock - Lost Behind The Mask (2023) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233251.jpgsave_picture_233251.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Nova Era - The Curse (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233258.jpgsave_picture_233258.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Wolfheart - King Of The North (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233261.jpgsave_picture_233261.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Fish - 13th Star (2007) Deluxe Digital 2023 Remix, 7Hz Productions [FLAC|24/44.1
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233262.jpgsave_picture_233262.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ The London Suede - Autofiction (2022) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233272.jpgsave_picture_233272.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ The Flaming Lips - Zaireeka (1997) 4CD Deluxe, Warner Records Inc., 2023 [FLAC|2
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233276.jpgsave_picture_233276.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Edenbridge - 3 Albums (2019-2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocals
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233282.jpgsave_picture_233282.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Sovrag - Perfect Form from Chaos Born (2023) [FLAC|Lossless|WEB-DL|tracks] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233283.jpgsave_picture_233283.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Big Big Train - Ingenious Devices (2023) [MP3|320 Kbps] <Crossover Progressive R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233298.jpgsave_picture_233298.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:322D07557D58B02774DA08F27B9D6C3ED744F97C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233301.jpgsave_picture_233301.jpg" />
 </div>
 
 

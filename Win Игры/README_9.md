@@ -6,7 +6,7 @@ Missing Hearts: Crimson Cruise (2025) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2614.jpgsave_picture_2614.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Myth Finders / Искатели мифов (2025) [Ru] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2639.jpgsave_picture_2639.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lost Eidolons (2022) [Ru/Multi] (1.5.4/dlc) Repack Let'sРlay [Digital Deluxe]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2674.jpgsave_picture_2674.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Tokyo Underground Killer (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2676.jpgsave_picture_2676.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ RoadCraft (2025) [Ru/Multi] (4.1.PATCH.529928/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2687.jpgsave_picture_2687.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0a) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2695.jpgsave_picture_2695.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250908/dlc) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2704.jpgsave_picture_2704.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Dead Reset (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2717.jpgsave_picture_2717.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.43050s/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2719.jpgsave_picture_2719.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ KeeperRL (2024) [En] (1.2.6) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2721.jpgsave_picture_2721.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Riftbreaker (2021) [Ru/Multi] (Exe:1101 Data:732/dlc) Repack Let'sРlay [Com
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2722.jpgsave_picture_2722.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Elder Scrolls IV: Oblivion Remastered (2025) [Ru/Multi] (1.512.105.0/dlc) Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2725.jpgsave_picture_2725.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Metro Simulator (2019) [Ru/Multi] (5.1c) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2788.jpgsave_picture_2788.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Captain of Industry (2022) [Ru/Multi] (0.7.9) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2810.jpgsave_picture_2810.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Procession to Calvary (2020) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2817.jpgsave_picture_2817.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Antioma (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2820.jpgsave_picture_2820.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Infestation: Origins (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2822.jpgsave_picture_2822.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dream Engines: Nomad Cities (2024) [Ru/Multi] (1.0.547) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2825.jpgsave_picture_2825.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Metro Simulator 2 (2022) [Ru/Multi] (1.6.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2834.jpgsave_picture_2834.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ X-Morph Defense (2017) [Ru/Multi] (SVN_29109.TC_129.DATA_12/dlc) Repack Let'sРl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2835.jpgsave_picture_2835.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Gloomy Eyes (2025) [Multi] (1.0.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2837.jpgsave_picture_2837.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28561) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2839.jpgsave_picture_2839.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Technobabylon (2015) [En] (3.6) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2840.jpgsave_picture_2840.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Atari 50: The Anniversary Celebration (2022) [Multi] (1.04/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2847.jpgsave_picture_2847.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ready or Not (2023) [Ru/Multi] (94572/dlc) Repack Let'sРlay [LSPD Bundle]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2855.jpgsave_picture_2855.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.9/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2881.jpgsave_picture_2881.jpg" />
 </div>
 
 

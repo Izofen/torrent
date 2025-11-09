@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40708.jpgsave_picture_40708.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Ru/Multi] (1.0.0.349/dl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40709.jpgsave_picture_40709.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:3E95B2CC3343350A18F6D16B786E4B1D8F9AA42B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40710.jpgsave_picture_40710.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:3C005B19E6794166EF32341B07828CA98749632E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40711.jpgsave_picture_40711.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Axel Rudi Pell - Studio Albums (28 releases) (1989-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40712.jpgsave_picture_40712.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:584F4A6A3A62C72AC07FA1D95796F2C7D873DD02
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40713.jpgsave_picture_40713.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:5F3A0A3913C63585E9967E4EA97EB5F75BA68B86
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40714.jpgsave_picture_40714.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:3E34FD154BD249472AF578DA2FADD13D2C16545E
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40715.jpgsave_picture_40715.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:0D18853FFC516398D1ACCFE429F3952606D65805
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40716.jpgsave_picture_40716.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Grim Realms (2024) [Multi] (1.0.1.7) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40717.jpgsave_picture_40717.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:4B952A2D41EBF5AAC860F45F0C6D02BEE20BA795
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40718.jpgsave_picture_40718.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Thyria (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40719.jpgsave_picture_40719.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:390F98C64EC42CF2B32A2CECA266AA1007F11D59
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40720.jpgsave_picture_40720.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:159D9C2DC394B7CA965A59CEADD5213E6C9512FB
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40721.jpgsave_picture_40721.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:5C778FD0D353570085F6E3D203F1C62FB85348DD
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40722.jpgsave_picture_40722.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ The Forest (2018) [Ru/Multi] (1.12) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40723.jpgsave_picture_40723.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:651FF423BFE28D5A05E80DD04C9A7781EBD6C239
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40724.jpgsave_picture_40724.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:7A9819547868D345BB79DAFD66BE37D335EBD470
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40725.jpgsave_picture_40725.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:2491C44F1A23CC532CEB328B4E8AC91BDB0C1967
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40726.jpgsave_picture_40726.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ IObit Driver Booster Pro 12.0.0.356 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40727.jpgsave_picture_40727.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ IrfanView 4.70 + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40728.jpgsave_picture_40728.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:F7E18F83672A94B1D0EE159899FF3D25931002E0
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40729.jpgsave_picture_40729.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ The Dark Pictures Anthology: The Devil in Me (2022) [Ru/Multi] (build 11855829/d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40730.jpgsave_picture_40730.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:A22A4CBF503059AADB27A859CA30EBFF5E6DDE2C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40731.jpgsave_picture_40731.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:6B27C71FD53987799AC379228189EAC60A2E4886
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40732.jpgsave_picture_40732.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ AOMEI Backupper Technician Plus 7.4.1 WinPE by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40733.jpgsave_picture_40733.jpg" />
 </div>
 
 

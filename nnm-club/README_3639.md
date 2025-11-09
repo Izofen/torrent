@@ -6,7 +6,7 @@ Brymir - Studio Albums (4 releases) (2011-2022) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114989.jpgsave_picture_114989.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ James Harman - Didn't We Have Some Fun Sometime (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114990.jpgsave_picture_114990.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B519A40A32B088AE6B5A2A2574E8C1EA3B470394
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114991.jpgsave_picture_114991.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:5238997836B32FA01B1BE91F11FF12AFC0456B66
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114992.jpgsave_picture_114992.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:C9744F02CB64BE6380EA985E0195B93FA12C125A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114993.jpgsave_picture_114993.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Doro - Conqueress - Extended (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114994.jpgsave_picture_114994.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VA - Uplifting Only Top 15: February 2024 (Extended Mixes) (2024) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114995.jpgsave_picture_114995.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ AC/DC - T.N.T (1975) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114996.jpgsave_picture_114996.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Steve Shive & the Urban Saints - Hard Bargain (2024) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114997.jpgsave_picture_114997.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ AC/DC - Dirty Deeds Done Dirt Cheap (1976) Reissue, 1987, Albert Productions [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114998.jpgsave_picture_114998.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ PhotoDirector v19.0.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114999.jpgsave_picture_114999.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Walter Trout - Broken (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115000.jpgsave_picture_115000.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:395BF883B6759FBAD6A865F8DF7D44FE7491BED1
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115001.jpgsave_picture_115001.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:D295F16246BD5E00A891472FB94BBC9C081D1322
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115002.jpgsave_picture_115002.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:B935BE0A44B6B91AFF27BCFB7301B627CDEF3895
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115003.jpgsave_picture_115003.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Doro - Conqueress - Extended (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115004.jpgsave_picture_115004.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Emurasoft EmEditor Professional 24.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115005.jpgsave_picture_115005.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Band of Experts - Revisiting the Songs of Jimi Hendrix (2024) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115006.jpgsave_picture_115006.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:704F170421093F63A694B6B6F2802D2EA4DB391E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115007.jpgsave_picture_115007.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Hell Boulevard - Requiem (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115008.jpgsave_picture_115008.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Nathan Beretta - Love Taxman (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115009.jpgsave_picture_115009.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Luca Giordano, Victor Puertas, Netto Rockfeller Trio - Night Time Boogie (2024) 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115010.jpgsave_picture_115010.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - The Orient Collective: Mithras (2024) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115011.jpgsave_picture_115011.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Above & Beyond - Group Therapy 500 Live from Los Angeles (2024) (Live) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115012.jpgsave_picture_115012.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:08F80C335F6FAA0A0DC8D4D7E19052BDB119C28E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115013.jpgsave_picture_115013.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ YT Downloader 9.6.11 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115014.jpgsave_picture_115014.jpg" />
 </div>
 
 

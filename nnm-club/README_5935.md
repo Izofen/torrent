@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186910.jpgsave_picture_186910.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:51839486DC9519634009B3973E9952CD340A3D13
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186912.jpgsave_picture_186912.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A8A1F8F6CEE9A79222D6DFF5D63B74FD92DA721B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186913.jpgsave_picture_186913.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Threshold - Dividing Lines (2022) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186915.jpgsave_picture_186915.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:11F61D77488C187AEE0910EB59021E18811C8B80
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186916.jpgsave_picture_186916.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:88040FFED70B69774CA6F3A886B6F4AE73ADC37D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186917.jpgsave_picture_186917.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:1BA54A8ED7988649A28D5BE4B1C6DA443AA1DF3B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186918.jpgsave_picture_186918.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Windows 11 x64 Rus by OneSmiLe [22621.2283]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186920.jpgsave_picture_186920.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Joe Pass & J.J. Johnson - We'll Be Together Again (1983) 1996, Original Jazz Cla
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186921.jpgsave_picture_186921.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:642A6066B8638459C4F29E0CB8AA98EE36AA1619
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186922.jpgsave_picture_186922.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Joe Pass - Unforgettable (1992) 1998, Pablo Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186923.jpgsave_picture_186923.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Candlemass - Green Valley (Live in Lockdown, July 3rd 2020) (2021)  [FLAC 2.0|44
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186925.jpgsave_picture_186925.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:74B09318FC6A6F051E456CFD5FCF2526EC8E93B1
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186926.jpgsave_picture_186926.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Riot City - Electric Elite (2022) [FLAC|Lossless|image + .cue] <Heavy, Speed Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186927.jpgsave_picture_186927.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Repus Tuto Matos - МЫ(НЕ)МЫ (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Indus
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186929.jpgsave_picture_186929.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Joe Pass - Virtuoso #2 (1976) 1987, Pablo Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186930.jpgsave_picture_186930.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou | Reborn as a Vending Mac
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186931.jpgsave_picture_186931.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:B440C1109BD6AB84A765AABDB5710BF50D58F9C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186932.jpgsave_picture_186932.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Pagan Sword - Enter the Mountain (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Folk M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186933.jpgsave_picture_186933.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Dominus - The First 9 (1996) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186935.jpgsave_picture_186935.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Andysoul - 08535510n (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186936.jpgsave_picture_186936.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Yumemiru Danshi wa Genjitsushugisha / The Dreaming Boy is a Realist / Из ме�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186937.jpgsave_picture_186937.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:50D3CC87035EFEEBEAC6FF200D3B67F1AABE4A46
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186939.jpgsave_picture_186939.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:F9DFBD80FA0314A81604FA4AA8A5C83D0E1E82A2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186940.jpgsave_picture_186940.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:8909BB865A61A53169EB73A7322AC1E50AC21D23
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186942.jpgsave_picture_186942.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Microsoft® Windows® 11 Professional VL x64 22H2 RU by OVGorskiy 11.2022
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186944.jpgsave_picture_186944.jpg" />
 </div>
 
 

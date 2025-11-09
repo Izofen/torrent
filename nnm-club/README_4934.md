@@ -6,7 +6,7 @@ VA - Fireplace Chill - Winter Edition (2021) [AAC|~319 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154290.jpgsave_picture_154290.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7AAE3F446FA0B7C7CCB22F432CDB15DB271328AE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154291.jpgsave_picture_154291.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ PJ O'Brien - High Cost (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154292.jpgsave_picture_154292.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:5B6DC3A8C41432C38E8C25A830F10CDF7B08DA90
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154293.jpgsave_picture_154293.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Andre Camilleri - Layin' Low (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154294.jpgsave_picture_154294.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ SolarFlow - Specter (2020) [AAC|~332 Kbps] <Electronic, Lounge, Chill Out, Enigm
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154295.jpgsave_picture_154295.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:8023F0ADCAF144A7CC2DA45E073D6D3D278D4493
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154296.jpgsave_picture_154296.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:8C97CEFE55FE65E75AB0D8B7FE7AE9CEA85C5138
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154297.jpgsave_picture_154297.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:CB848E787B4578523C71FC2BC0C4740D4306486D
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154298.jpgsave_picture_154298.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:1B580E73E2A432A847C6075055EEF4B14F547480
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154299.jpgsave_picture_154299.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Ocean of Grief - 3 Albums, 2 Singles (2016-2022) [MP3|320 Kbps] <Doom, Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154300.jpgsave_picture_154300.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:D0CBB45B24004839DC64BFF5DE8F9BCBF8C9B9B6
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154301.jpgsave_picture_154301.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:A4F31142064932E33397FAD32FAFEDBDD8E56B0C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154302.jpgsave_picture_154302.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:659DF41DDD19DBB5F54F01CE7CCB0B6DA4C84998
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154303.jpgsave_picture_154303.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ H.1, Hevi - Indigo Night (2021) [AAC|~310 Kbps] <Lounge, Chill Hop, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154304.jpgsave_picture_154304.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Warren Wolf - Christmas Vibes (2020) Mack Avenue [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154305.jpgsave_picture_154305.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:A48B3D68247672BDC14E3552F62F55A915AC2FC5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154306.jpgsave_picture_154306.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:79301B61B3887C8C5991F14BB08F577B1AEFCDA4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154307.jpgsave_picture_154307.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Downie 4 v4.0 (beta) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154308.jpgsave_picture_154308.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:014CF2C0E4F5A315782A67B72A05DEB6AA4DEB4E
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154309.jpgsave_picture_154309.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:42D57A92316AF8189CB9C6637EE3F0C347FE1C35
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154310.jpgsave_picture_154310.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:340A22D032A0081640DB2D7D14FFF3B0DBE5BD94
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154311.jpgsave_picture_154311.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:8FAF62462C2DD29D5AF48309462A8DD2131EE6AF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154312.jpgsave_picture_154312.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154313.jpgsave_picture_154313.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:CF92942A261BC6F44B298D80980EAA73414E2A87
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154314.jpgsave_picture_154314.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Divna Ljubojeviс / Дивна Любоевич & Melodi - In Search Of Divine L
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154315.jpgsave_picture_154315.jpg" />
 </div>
 
 

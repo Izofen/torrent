@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1493.jpgsave_picture_1493.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8DF5F90566769C4CAA5588A7252164CBD20A4B66
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1494.jpgsave_picture_1494.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:1657CC37E9FEE0506B63B60891A2772534FB1437
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1495.jpgsave_picture_1495.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Jibaku Shounen Hanako-kun 2 Kouhen | Toilet-bound Hanako-kun Season 2 (2025) | �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1496.jpgsave_picture_1496.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:80ACBA1C032B7AE07BE5C37D2D9ADE8CC2709583
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1497.jpgsave_picture_1497.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ NASA модернизировало ракету SLS для первой лун�
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1498.jpgsave_picture_1498.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ NASA завершило ключевые усовершенствования р
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1499.jpgsave_picture_1499.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:3A4D2E52F05C964C540C9665F3B07A75CD64A03F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1500.jpgsave_picture_1500.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ AOMEI Backupper Technician Plus 8.0.0 (DC 19.09.2025) RePack by KpoJIuK [Multi/R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1501.jpgsave_picture_1501.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:66D626DC9E7117DBEA56C64499F678A06BF6444B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1502.jpgsave_picture_1502.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:A7441EBEE471DE47084F6B64412FCBF0388C4EE5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1503.jpgsave_picture_1503.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:0F8580B05E30D61F442BB22023D8D03A6D5BE51F
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1504.jpgsave_picture_1504.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:E6DDF170C491BCF363F5C622A8B6B2B77AF3A447
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1505.jpgsave_picture_1505.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Hotel Inhumans | Отель для нелюдей [2025, TV, 12 из 13] WEBRip 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1506.jpgsave_picture_1506.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Echoes of the End (2025) [Ru/Multi] (1.05) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1507.jpgsave_picture_1507.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:067CAADA4F84C431E36FD63C6ADC93EE2FFDD8F4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1508.jpgsave_picture_1508.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:26EC645F9291ED6B2B849B003A28E55280373ADC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1509.jpgsave_picture_1509.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:AE27CEDAAC28C11FED7D797E47369856F7AC31FC
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1510.jpgsave_picture_1510.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Open Server Panel 6.4.0 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1511.jpgsave_picture_1511.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ FATE: Reawakened (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1512.jpgsave_picture_1512.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:FD0E8CDBD8DB8165345DF9706CACA014A1718FCD
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1513.jpgsave_picture_1513.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3781977) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1514.jpgsave_picture_1514.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:D04E20940CB788A5B40677E91538E2AF5989FA13
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1515.jpgsave_picture_1515.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:BC3BC1E8C3F37897FDC9E895D72F42E171DE016F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1516.jpgsave_picture_1516.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Barbra Streisand - A Collection-Greatest Hits ... And More - 1989, FLAC (image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1517.jpgsave_picture_1517.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Nyaight of the Living Cat / Night of the Living Cat / Ночь живых кош
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1518.jpgsave_picture_1518.jpg" />
 </div>
 
 

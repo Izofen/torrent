@@ -6,7 +6,7 @@ Papik - Enjoy The Ride (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181787.jpgsave_picture_181787.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gilles Peterson & Lionel Loueke - HH Reimagined (2022) [FLAC 2.0|44/24|tracks|WE
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181789.jpgsave_picture_181789.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ NASCAR Arcade Rush (2023) [En] (1.0.0.2/dlc) Scene Tenoke [Project-X Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181790.jpgsave_picture_181790.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Candlemass - Sweet Evil Sun (2022) [FLAC|Lossless|image + .cue] <Epic Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181792.jpgsave_picture_181792.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:C26AD9950F5BF5FADBBB79ED51250102E42BF007
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181793.jpgsave_picture_181793.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:430F31E6B87602FE830142EF68FCFAE5A3CD14F2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181795.jpgsave_picture_181795.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:E9465C3E20F724CE0F78DBA38C3D5F151A3335BA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181797.jpgsave_picture_181797.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Sunny Bleau & The Moons - Breakfast Served Cold (2021) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181800.jpgsave_picture_181800.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Burak Serdar | Effective Concurrency in Go (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181802.jpgsave_picture_181802.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Best Of FSOE (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181804.jpgsave_picture_181804.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Spy Kyoushitsu 2 / Spy Classroom 2 / Шпионский класс 2 [2023, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181806.jpgsave_picture_181806.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:88B5E317EA29B72401E8EA1714617B8E4E47D1D3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181809.jpgsave_picture_181809.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:9A1F4222BF4DFE483D59D229306DD3C1674F0CAA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181810.jpgsave_picture_181810.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Som Prakash Rai | Core Java: Made Simple (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181813.jpgsave_picture_181813.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Bennie And The Jets - Lipstick and Leather (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181815.jpgsave_picture_181815.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Walk In Darkness - 4 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181819.jpgsave_picture_181819.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Marcelo Guerra Hahn, Araks Tigranyan, John Asatryan | Expert C++, 2nd Edition (2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181820.jpgsave_picture_181820.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:A4971FF48DE4AD01D967029C9784514728B1AA20
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181823.jpgsave_picture_181823.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:2910552305C746CF51AC461505B5F7435E8FC9F3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181825.jpgsave_picture_181825.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ AI no Idenshi | The Gene of AI | Ген искусственного интел�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181828.jpgsave_picture_181828.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ An Abstract Illusion - Woe (2022) [FLAC|Lossless|tracks + .cue] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181829.jpgsave_picture_181829.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:E1C1A54E2253A0B69C30B5D72F21EC67FCA15E18
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181832.jpgsave_picture_181832.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:FE0094F487C4210B13A6C3A6C07560A90976A51A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181833.jpgsave_picture_181833.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:A3AC7153871EE15E2E1FD7B289B862D9B73F63C8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181836.jpgsave_picture_181836.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Kanojo, Okarishimasu 3 | Rent-a-Girlfriend (2023) | Девушка на час [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181845.jpgsave_picture_181845.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:3A098952303E44142C8215D97EC169CA872A2134
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181850.jpgsave_picture_181850.jpg" />
 </div>
 
 

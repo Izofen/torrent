@@ -6,7 +6,7 @@ Legend of Keepers: Career of a Dungeon Manager (2020) [Ru/Multi] (1.1.0.3/dlc) L
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127331.jpgsave_picture_127331.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 7 (3in1) x64 by Updated Edition (07.12.2023) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127332.jpgsave_picture_127332.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Udemy, Konstantin Fink | Нейросети: Chat GPT от Новичка до �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127333.jpgsave_picture_127333.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:A1893E597ECDA56E8FD9B59F0E82C5440AB05754
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127334.jpgsave_picture_127334.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:ECBEA554FA12C484C5DFE5E45E6E6E04C68AE72A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127335.jpgsave_picture_127335.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:28EF814ED5A8FE79D5DCF9F74732B172CF84ACD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127336.jpgsave_picture_127336.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:0E5463EA4A66DF9CAA214D076CD609450FAEEC68
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127337.jpgsave_picture_127337.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:A43CADEFE8C4D61E3CB07DFA72738D7DB0DD833C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127338.jpgsave_picture_127338.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:EF5F5EF3F4A3037AE1080F2C4B1FC62062013E37
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127339.jpgsave_picture_127339.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:94963315E16597349C0341693CBFC5C756AF48F0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127340.jpgsave_picture_127340.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:34D701360801435E0B9DC3233136958E708FA869
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127341.jpgsave_picture_127341.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:296CD96E750C6293CC7DD2027AE531EE833F3C4E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127342.jpgsave_picture_127342.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ DefenderKiller 11.0.8 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127343.jpgsave_picture_127343.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:31D45981828E4FE00DA5DD9FD2B1921B0F22C9A8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127344.jpgsave_picture_127344.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:BA3C0979FB79E840E2B89FC4892682078C687D68
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127345.jpgsave_picture_127345.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [USA] 9.0 [HEN] [Repac
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127346.jpgsave_picture_127346.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:0F25553CD1CFB98293D1CA07E1D4DDF1C026C755
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127347.jpgsave_picture_127347.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ UseEye - Stoned Mental (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127348.jpgsave_picture_127348.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Monty Alexander - The River (1985) 1990, Concord Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127349.jpgsave_picture_127349.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Shamayna - Shamacaine (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127350.jpgsave_picture_127350.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Phantasm - Keeper of Death (1993) [WavPack|32/176,4|image + .cue|Vinyl-Rip] <Thr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127351.jpgsave_picture_127351.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Gravegod - Promised Graveland (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127352.jpgsave_picture_127352.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Charles Mingus - Blues & Roots (1959) 2007, Warner Music [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127353.jpgsave_picture_127353.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Bob Brookmeyer New Art Orchestra - New Works: Celebration (1997) 1999, Challenge
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127354.jpgsave_picture_127354.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Illt - Mercy Of The World (2022) [FLAC|Lossless|image + .cue] <Thrash Black Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127355.jpgsave_picture_127355.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Dusk Chapel - Astrophysics And Abnormal Activities (2022) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127356.jpgsave_picture_127356.jpg" />
 </div>
 
 

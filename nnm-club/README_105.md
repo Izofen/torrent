@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2767.jpgsave_picture_2767.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sophie Ellis-Bextor - Perimenopop (2025) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2768.jpgsave_picture_2768.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:A0AD3325A65A3160E73232BD2067956C3BFCC174
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2769.jpgsave_picture_2769.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:4704CB85BEF808D3830C0F85980EA9948F10585F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2770.jpgsave_picture_2770.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Nightwish - Over The Hills And Far Away (2001) Japanese Edition, Reissue, 2022, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2771.jpgsave_picture_2771.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Various - Bat Head Soup - Tribute To Ozzy (2000) Japanese Edition, 2023, TOCP, C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2772.jpgsave_picture_2772.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:0B9BFC44A18767C697C2729A0163254722DAF8CA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2773.jpgsave_picture_2773.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:4C744FF6224FE6A172608921C4B9D35C776CED98
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2774.jpgsave_picture_2774.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:B34158355B98430DA48459C738E4F2837DCAA49B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2775.jpgsave_picture_2775.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Ui Kits - UI8 - Lodgify - Hotel Booking Mobile App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2776.jpgsave_picture_2776.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Sean David Leland - Hear Me Roar (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2777.jpgsave_picture_2777.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:F0F2397F6107B03AF9EF438C250908A6D114F637
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2778.jpgsave_picture_2778.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:6E5531095409B89B3A6C419382275E103C9DDB7A
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2779.jpgsave_picture_2779.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Xiaomi Home (Ранее. MiHome) v10.9.702 Mod by Vevs [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2780.jpgsave_picture_2780.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:8C876ECF848A2761DE98DC46998229D86699822C
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2781.jpgsave_picture_2781.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ TechSmith Snagit 25.3.1 build 7988 (x64) RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2782.jpgsave_picture_2782.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:D9E8BE4B9DB122943ECC147175AB98CEB97E41B5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2783.jpgsave_picture_2783.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:86CDCFB224A383B89C0F4AB833E18BB29583984B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2784.jpgsave_picture_2784.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Record Super Chart 13.09.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2785.jpgsave_picture_2785.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ TechSmith Camtasia  25.2.3 Build 11943 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2786.jpgsave_picture_2786.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:DFDC1116C92D9670F46FFC928FC20CC3C782AE73
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2787.jpgsave_picture_2787.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Metro Simulator (2019) [Ru/Multi] (5.1c) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2788.jpgsave_picture_2788.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:9268648F3D3A4388025D82FD6FA458718A481E88
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2789.jpgsave_picture_2789.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:46C9BDC797382BD99CC78DE054CFBFEB111A6C83
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2790.jpgsave_picture_2790.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:F4A3E3D4D6697C48216DE3F84AD54BB311EF9EEF
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2791.jpgsave_picture_2791.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:D7C8F22161F7A8FE214C69E2962A1188DA5E83A4
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2792.jpgsave_picture_2792.jpg" />
 </div>
 
 

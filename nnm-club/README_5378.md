@@ -6,7 +6,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166699.jpgsave_picture_166699.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DD61F37F108B22244F09027C0742E5951D4C92EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166700.jpgsave_picture_166700.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Guardner - Somedays In My Life (2002) Elektrolux [FLAC|Lossless|tracks+.cue] <Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166701.jpgsave_picture_166701.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:145EC4BD92EE85F07C5C97B7B116CBE5A83641DA
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166702.jpgsave_picture_166702.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ JS Mastery | Ultimate Next.js 13 Course + eBook (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166703.jpgsave_picture_166703.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1914DA01406840F8BE37A253295CBD8E98AECDCD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166704.jpgsave_picture_166704.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:788A121BCC581C1053E504E5B4A5B1CADC23B7A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166705.jpgsave_picture_166705.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ EIZO Japan - EIZO Japan 2 (2009) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166706.jpgsave_picture_166706.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ SnippetsLab 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166707.jpgsave_picture_166707.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:6415D63008DA3AD55E9A67D62A6DE2BE3AD5C551
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166708.jpgsave_picture_166708.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:B5111BB3395B6E2A137AE87C367EF30B9BDD1D1B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166709.jpgsave_picture_166709.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Streaming Audio Recorder 4.3.5.0 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166710.jpgsave_picture_166710.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Amadeus Pro 2.6.2 (build 2235) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166711.jpgsave_picture_166711.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Moon Dancer - Moon Dancer (1979) Reissued 1997 [WavPack|Lossless|image + .cue] <
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166712.jpgsave_picture_166712.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:9F40F2DB46A115A2F8710B86503B23F2D79B5025
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166713.jpgsave_picture_166713.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ iDatabase 6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166715.jpgsave_picture_166715.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Eizo Sakamoto - Another Face (1998) [WavPack|Lossless|image + .cue] <Heavy Metal
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166716.jpgsave_picture_166716.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:9AFB97863B26374C82DF3E2AB3C9006919B10EF1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166717.jpgsave_picture_166717.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Jazz At Lincoln Center Orchestra - The Abyssinian Mass (2016) 2CD, Blue Engine R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166718.jpgsave_picture_166718.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Eizo Sakamoto - Metal icchokusen (2000) [WavPack|Lossless|image + .cue] <Heavy M
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166719.jpgsave_picture_166719.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ GFI Kerio Control 9.4.3 build 8282 [x64] 3xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166720.jpgsave_picture_166720.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ PDF Checkpoint 1.9.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166721.jpgsave_picture_166721.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:1793C8C3E2F101F86E43BEB8954B4FA9581065C1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166722.jpgsave_picture_166722.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:81AEF2076D8FEBAA4006EF51788FF4EFABD57D5D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166723.jpgsave_picture_166723.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Eizo Sakamoto - Shout Drunker (2002) [WavPack|Lossless|image + .cue] <Heavy Meta
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166724.jpgsave_picture_166724.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Mitti 1.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166725.jpgsave_picture_166725.jpg" />
 </div>
 
 

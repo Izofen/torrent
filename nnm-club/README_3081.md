@@ -6,7 +6,7 @@ VA - Мега Ватт от Радио Энергия (2012) [MP3|256 kbps]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98483.jpgsave_picture_98483.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Monigo - Coprometidos Con La Causa ''Shit & Honor!'' (2011) [MP3|320 кб/с]<Gr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98484.jpgsave_picture_98484.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ magnet:?xt=urn:btih:A06076C835CD26E3AB626AE21548F9B229092809
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98485.jpgsave_picture_98485.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:35D3F9D80FC23A5361FF0800897F6446FFF686D6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98486.jpgsave_picture_98486.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Illuminatus - Glasnost (2011) [MP3|320 кб/с]<Alternative Metal | Progressive 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98491.jpgsave_picture_98491.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ magnet:?xt=urn:btih:F2E940982F19E153F1DB0AC17C5389012E4C2A85
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98492.jpgsave_picture_98492.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:BBCAE6C4F589118D7023F024E376C8B496451595
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98495.jpgsave_picture_98495.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:21BC258F9B33D31FA9C056321B1FA801F0D94E93
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98496.jpgsave_picture_98496.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:3913C6405DE1910A55FD84BFC56FFEB260B5B765
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98497.jpgsave_picture_98497.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VA - Весенняя танцевальная вечеринка (2012) [MP3|16
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98499.jpgsave_picture_98499.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - Logic Energy (1997-2012) [MP3|320 кб/с]<Progressive house, Electro, Tech
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98501.jpgsave_picture_98501.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - CLUBная эйфория (2012) [MP3|128-192 kbps]<Pop | Club | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98503.jpgsave_picture_98503.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:58FBDC55499382A132F89DC16D2C5E2E6A85F023
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98504.jpgsave_picture_98504.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VA - Klubnye novinki Vol.61 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98509.jpgsave_picture_98509.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:321DD25D117258DA552BAFB6024932E2BE8CB588
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98512.jpgsave_picture_98512.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:4F1357D91C9570B9B8E433BB5D0473D6EAF8BA03
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98513.jpgsave_picture_98513.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:99A954216A088D1CB6C57C724898A914AB68C351
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98514.jpgsave_picture_98514.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:DE4CF0A4716F41F60499AE4945CB4BC685E0502E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98515.jpgsave_picture_98515.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:399513C2F821A815CF4986B85512B2A01528AE61
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98519.jpgsave_picture_98519.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:3AA83C410AFAF8C5387878F601D2B844B6DB02B1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98520.jpgsave_picture_98520.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:DC55A726118716AA2C3E73A152EA068B8303990F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98522.jpgsave_picture_98522.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:910CD88D6CF66204D97D83B01D6C73CBC5A4770F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98523.jpgsave_picture_98523.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Club Mix (2012) [MP3|256 kbps]<Club | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98526.jpgsave_picture_98526.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - ReOrder pres.  Silent Shore Selection Vol.2 (2012) [MP3|320 кб/с]<Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98529.jpgsave_picture_98529.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Lonndom - Falen Fran Norr (2007) [MP3|192 кб/с]<Folk Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98531.jpgsave_picture_98531.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ VA - Муз-прорыв Record 50/50 (2012) [MP3|160-320 кб/с]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98533.jpgsave_picture_98533.jpg" />
 </div>
 
 

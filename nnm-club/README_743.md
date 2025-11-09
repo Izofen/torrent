@@ -6,7 +6,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19644.jpgsave_picture_19644.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Elder Scrolls IV: Oblivion (2007) [Ru/En] (1.2.0416cs/dlc) Repack dixen18 [G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19645.jpgsave_picture_19645.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Viscerafest (2021) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19646.jpgsave_picture_19646.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VRadio - Online Radio App v2.8.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19647.jpgsave_picture_19647.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F7AD7C01283813F9FEB5CBA45595294DD0F40DD4
 >>Менты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19648.jpgsave_picture_19648.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A19F6682FE96B993A435D6F2701BFB241FB2C5B4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19649.jpgsave_picture_19649.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ PDFCreator 6.0.1 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19650.jpgsave_picture_19650.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Kdenlive 25.04.0 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19651.jpgsave_picture_19651.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - Music News For Forum vol.080 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19652.jpgsave_picture_19652.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:79D6891D19D7A35C3B55D3E8DBE383781FF900C5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19653.jpgsave_picture_19653.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - So you... (Mixed and compiled by Kaatée) (2022) [MP3|320 Kbps] <Deep House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19654.jpgsave_picture_19654.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:170B181748B23918E46B10A4104B1AA9FBAF5A92
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19655.jpgsave_picture_19655.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:BE3108A675DC4EC585D4A6F4659A242F7F42EAF4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19656.jpgsave_picture_19656.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Sandboxie 5.70.12 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19657.jpgsave_picture_19657.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:AEEB1E158632FAD843D9AB8831E6C0DDD9200350
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19658.jpgsave_picture_19658.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ WinMerge 2.16.48.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19659.jpgsave_picture_19659.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AirBrush: ИИ Фоторедактор v7.8.0 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19660.jpgsave_picture_19660.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:4A671D469A8D51A99EA30AB7A0CD5251DA9EAFB5
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19661.jpgsave_picture_19661.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:64D961AF364A586EBD5DA0FB8BB5A1E20D95BBE6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19662.jpgsave_picture_19662.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:E3EE845D623E090A8D22D52D6CD932D68D4605F0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19663.jpgsave_picture_19663.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - Eurovision Song Contest - Turin 2025 (2025) [FLAC 16,24/44.1,48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19664.jpgsave_picture_19664.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:6C74EAE28A6A6C594058F3E0ED371DF52296FA83
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19665.jpgsave_picture_19665.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:200F8AE220D63224A849CD8C431F01DCFB269699
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19666.jpgsave_picture_19666.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ F.J. Rivas | Process Control with MatLAB/Simulink: A Guide for Beginners (2025) 
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19667.jpgsave_picture_19667.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.8.2 Mod by v
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19668.jpgsave_picture_19668.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:A8A136A3EF83D8E5004874670EBFD0368ADFCE5C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19669.jpgsave_picture_19669.jpg" />
 </div>
 
 

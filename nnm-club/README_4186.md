@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129631.jpgsave_picture_129631.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ K-Lite Codec Pack Update 16.7.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129632.jpgsave_picture_129632.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Udemy, Bradley Jadir | DaVinci Resolve for Wedding Film Makers (2023) WEB-DL [EN
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129634.jpgsave_picture_129634.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Aiseesoft Video Converter Ultimate 10.3.28 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129635.jpgsave_picture_129635.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Raccomandata Ricevuta Ritorno - Il Pittore Volante (2010) [MP3|320 кб/с]<Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129637.jpgsave_picture_129637.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:5E5B93E6B7BE850D9E20C44BAC919B987853F3F0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129638.jpgsave_picture_129638.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:5E5B93E6B7BE850D9E20C44BAC919B987853F3F0
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129639.jpgsave_picture_129639.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:DC178DDC531410B6CCBEC031328796B89D444807
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129640.jpgsave_picture_129640.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:90BD01536B478C854DC95E87348E2900BB8AF590
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129641.jpgsave_picture_129641.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:878711FA9C45921B503753EC423C9B0A550CBF81
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129644.jpgsave_picture_129644.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Swallow The Sun - 10 Albums (2003-2021) 14CD [FLAC|Lossless|image + .cue|tracks 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129645.jpgsave_picture_129645.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:3521726A5AEB91B6EAFAAE9B2309C60C18BFA00E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129646.jpgsave_picture_129646.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Telegram Desktop 3.4.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129647.jpgsave_picture_129647.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:A964779820D0E86509D075B34DECE2F6EC8CDC92
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129648.jpgsave_picture_129648.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ MyFuelLog2 v1.8.12 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129649.jpgsave_picture_129649.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:BD8C4EEDFDD89C1DACC32025AE6FB1AEB3861CBC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129650.jpgsave_picture_129650.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Jillian Michaels | Fitness App v4.4.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129651.jpgsave_picture_129651.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:6B4A8DA5D63F9596C77DCA3804C878E02EB699C6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129652.jpgsave_picture_129652.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:D59550AD1A039254EB666953A1384C478355ACF3
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129653.jpgsave_picture_129653.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Bluetooth Printer, USB, Receipt v4.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129654.jpgsave_picture_129654.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:8C00C0A8B051154A38425F71526C26E0CD50029E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129656.jpgsave_picture_129656.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:47C22E0952E852949B722BE78D95B51EC5662C80
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129657.jpgsave_picture_129657.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Detectives United 5: Deadly Debt (2022) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129658.jpgsave_picture_129658.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:F4CB50D786DE0CBE21047B48F8D3208F387FBD21
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129659.jpgsave_picture_129659.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:08CC369B226429333BFB5DFA909FCDCB6BB70C11
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129660.jpgsave_picture_129660.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:9E9704ECCB68A6C3533FFC11F218F839B3F901C2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129661.jpgsave_picture_129661.jpg" />
 </div>
 
 

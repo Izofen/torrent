@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86447.jpgsave_picture_86447.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86448.jpgsave_picture_86448.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:76BBD7A63DF7C9D9818C75EF565DA33D1838C4B3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86449.jpgsave_picture_86449.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru/En] (RePack) 2012 | R.G
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86450.jpgsave_picture_86450.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Glass-Folders RocketDock v1.3.5 by kubines v1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86451.jpgsave_picture_86451.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Glass-Folders RocketDock v1.3.5 by kubines v1.3.5 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86454.jpgsave_picture_86454.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:289664CE5C5A7AE6CDCF7A159DB3DFCF5FF2F2D8
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86455.jpgsave_picture_86455.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:FB844C16D0C12EB70E3FA84562189FD00D0CB901
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86459.jpgsave_picture_86459.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Windows 7 Rose SG™/Chip 2012.03 Final (x64) 2012.03 [Английский / Р
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86460.jpgsave_picture_86460.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Windows 7 Rose SG™/Chip 2012.03 Final (x64) 2012.03 [Английский / Р
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86461.jpgsave_picture_86461.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:D9AE3C01340BA14D2BB31EBD2A2A9C2AAB8AD86D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86464.jpgsave_picture_86464.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:87365F9BDF0B7DEAE8913DA890F91AA7F09D9DCB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86465.jpgsave_picture_86465.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:48EDB6359D6201DEBAF167ED9AFDB1F84B397D9E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86467.jpgsave_picture_86467.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:F085B0CCB440EABB0D55A5AB563EE361C53C52B1
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86470.jpgsave_picture_86470.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Grandia 2 (RePack) [Ru] 2002 | Pilotus
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86471.jpgsave_picture_86471.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Star Wolves / Звездные волки [Ru] (RePack) 2004 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86473.jpgsave_picture_86473.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86474.jpgsave_picture_86474.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ WINDOZA FAN USB  [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86476.jpgsave_picture_86476.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Project X / Проект Х: Дорвались (2012) [MP3|320 кб/с]<Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86477.jpgsave_picture_86477.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:F7AFD30482DE30A6039259DE6066AB58C539C4BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86478.jpgsave_picture_86478.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:87C14C1E7F9993E71B3A3D2DD7DF7138DC69A0CC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86481.jpgsave_picture_86481.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:87C14C1E7F9993E71B3A3D2DD7DF7138DC69A0CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86483.jpgsave_picture_86483.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:405A353CAA8B5C38397B83EA9F2B6D1CD1A431A3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86485.jpgsave_picture_86485.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Звездная 200-ка (2012) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86491.jpgsave_picture_86491.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:932964C64786432A198A7CF4B80D27E15D0BF485
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86493.jpgsave_picture_86493.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:4C873F318D87718A5A835D8D7C134C0A3E8EF15F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86494.jpgsave_picture_86494.jpg" />
 </div>
 
 

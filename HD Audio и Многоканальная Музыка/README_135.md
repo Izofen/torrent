@@ -6,7 +6,7 @@ Silver Convention - Get Up & Boogie: The Worldwide Singles (2024) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108485.jpgsave_picture_108485.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dead Or Alive - The Pete Hammond Hi-NRG Remixes (2024) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108491.jpgsave_picture_108491.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Erasure - Cowboy (1997) Expanded Edition, 2024, BMG Company [FLAC 16,24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108495.jpgsave_picture_108495.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sexy Lovers Music Collection, Sexual Music Collection - Steamy Foreplay Exciteme
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108518.jpgsave_picture_108518.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Doomsday Dementia - 4 Albums (2018-2022) [FLAC|24/44.1,48|WEB-DL|tracks] <Crust 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108526.jpgsave_picture_108526.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Arooj Aftab - Night Reign (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108533.jpgsave_picture_108533.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Lorekeeper - Lorekeeper (2020) [FLAC 2.0|44/24|WEB-DL|tracks] <Stoner Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108534.jpgsave_picture_108534.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cosmic Jaguar - El Era Del Jaguar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108539.jpgsave_picture_108539.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Beak> - >>>> (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip-Hop, Experimenta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108557.jpgsave_picture_108557.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Metal Massacre 15 (2021)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108573.jpgsave_picture_108573.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ P.O.D. (Payable On Death) - Studio Albums (14 releases) (1994-2024) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108590.jpgsave_picture_108590.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Silverstein - A Beautiful Place To Drown (2020) [FLAC 2.0|96/24|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108594.jpgsave_picture_108594.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bad Omens - Concrete Jungle (2024) The OST [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108607.jpgsave_picture_108607.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Lucius - Wildewoman - The New Recordings (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108609.jpgsave_picture_108609.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Rhapsody Of Fire - Challenge the Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108616.jpgsave_picture_108616.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Troy Redfern - Invocation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108621.jpgsave_picture_108621.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Coldrain - Final Destination  & Vengeance (Xv Re Recorded) (2024) [FLAC 24/48|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108628.jpgsave_picture_108628.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Eguana - Future Visions (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient | 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108636.jpgsave_picture_108636.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Black Sabbath - Tyr (1990) Remaster, 2024, BMG Rights Management [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108637.jpgsave_picture_108637.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Black Sabbath - Forbidden (1995) Tony Iommi Remix, 2024, BMG Rights Management (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108644.jpgsave_picture_108644.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Silly - Bataillon D'Amour (1986) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108664.jpgsave_picture_108664.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sun Ra - Excelsior Mill (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108674.jpgsave_picture_108674.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Pleasurekraft - On Growth and Form (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108678.jpgsave_picture_108678.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:961EBEAFD072A8BE1BF5D15BC638CC1B994C07BB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108680.jpgsave_picture_108680.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ After Dark - Memories Gone (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108681.jpgsave_picture_108681.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Cosmo's Midnight - Stop Thinking Start Feeling (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108698.jpgsave_picture_108698.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ KMPlayer 2024.4.25.13 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58555.jpgsave_picture_58555.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IObit Driver Booster Pro 11.4.0.60 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58556.jpgsave_picture_58556.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2BC61961975579E927C774CBA9252A15544A1A71
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58557.jpgsave_picture_58557.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Lee Aaron - Tattoo Me (2024) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58558.jpgsave_picture_58558.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:6E0E236BE5B6A7F601D89A46FDC50CF0E0CBE6FA
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58559.jpgsave_picture_58559.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:EE0579B8EC4FDEF9ACA2E98040800DA3B3509579
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58560.jpgsave_picture_58560.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:E5232F5FD7786D0F1D2C8E5AEBE0967EADE27412
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58561.jpgsave_picture_58561.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:F250AD9F7D0F84220F7D6F74FAAF82E9025794A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58562.jpgsave_picture_58562.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ ISO Workshop 12.8 Pro RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58563.jpgsave_picture_58563.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ FonePaw Android Data Recovery 6.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58564.jpgsave_picture_58564.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:4E458A58CB01332CB9E01F815FC300F9A5DCC77E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58565.jpgsave_picture_58565.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Jawbreaker (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58566.jpgsave_picture_58566.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Internet Download Manager 6.42 Build 9 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58567.jpgsave_picture_58567.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:C397B18BAE505A2EA7145D99801BCF766D001C25
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58568.jpgsave_picture_58568.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:ED2A78DE8659B9D3328420A8B3784021187C1BF1
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58569.jpgsave_picture_58569.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ BBC: Царство Растений / Kingdom of Plants (2012) HDTVRip [H.264/7
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58570.jpgsave_picture_58570.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:A1758B08847320C6B455D844474A37838995310C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58571.jpgsave_picture_58571.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Total Uninstall 7.6.1.677 Professional RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58572.jpgsave_picture_58572.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:AE2AFDB46F38E7198C9AA4EA805A20409984AE66
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58573.jpgsave_picture_58573.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Rise of the Triad: Ludicrous Edition (2023) [Multi] (11830638) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58574.jpgsave_picture_58574.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:830154EA4F7DDEC8CFECA53B1A646285E9B4D154
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58575.jpgsave_picture_58575.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:D2B4423231A1E70642E8E56A6A7B4991EE7DEC09
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58576.jpgsave_picture_58576.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Crimson Tactics: The Rise of The White Banner (2023) [En] (1.0.0b) Repack FitGir
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58577.jpgsave_picture_58577.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:F570AD3779FDCC39604C4CDAACEB19AB2C029720
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58578.jpgsave_picture_58578.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:35FECE2ACDEBB7BCAEDA1062EEF7B35B5EE525D7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58579.jpgsave_picture_58579.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Jazz Jackrabbit (1994) [En] (2.0_csv2_patch_2/dlc) License GOG [Collection]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58580.jpgsave_picture_58580.jpg" />
 </div>
 
 

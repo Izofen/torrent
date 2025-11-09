@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188362.jpgsave_picture_188362.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Simon Viklund - Steal From The Rich, Give To Myself (2019) [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188470.jpgsave_picture_188470.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:F94E59248D50E1A0DE6B93B716DA33265E17140F
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188501.jpgsave_picture_188501.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Butterfly Temple - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188524.jpgsave_picture_188524.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Korea - Vorratokon (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188526.jpgsave_picture_188526.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Illvilja - Endless Rivers (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188533.jpgsave_picture_188533.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Wizards - Seven (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188535.jpgsave_picture_188535.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ever Since Eve - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188537.jpgsave_picture_188537.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Desert Dragon - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188540.jpgsave_picture_188540.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Grey Curtain - The Florist (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188541.jpgsave_picture_188541.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Jerky Dirt - Chirality (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188543.jpgsave_picture_188543.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Eyes Wide Open - Through Life and Death (2022) Deluxe Edition [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188545.jpgsave_picture_188545.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Hydranaut - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock'n'Roll, Ps
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188547.jpgsave_picture_188547.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Pieces Of Molly - Pieces Of Molly (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188550.jpgsave_picture_188550.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Feleth - 2 Albums (2020, 2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188551.jpgsave_picture_188551.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ In Grief - An Eternity of Misery (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188553.jpgsave_picture_188553.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:68FF69A2764CCD757275AADBD45CB0E18AA1EB14
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188555.jpgsave_picture_188555.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Innerforce - Arcadia (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188556.jpgsave_picture_188556.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Void Cruiser - 3 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188558.jpgsave_picture_188558.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Deadeye Navigator - Retronoid (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188559.jpgsave_picture_188559.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ In.Si.Dia - Di luce e d'aria (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188560.jpgsave_picture_188560.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Monsters Flesh - Black Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188561.jpgsave_picture_188561.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:ACF804DAD9D7BA31B778AE904B359AF1663B14EE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188567.jpgsave_picture_188567.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Nixil - From the Wound Spilled Forth Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188571.jpgsave_picture_188571.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:BFAC555E04EFA38272031B699F0C2E7A4A532119
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188577.jpgsave_picture_188577.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Eunomia - The Chronicles Of Eunomia, Pt. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188586.jpgsave_picture_188586.jpg" />
 </div>
 
 

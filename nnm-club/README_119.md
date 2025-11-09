@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3136.jpgsave_picture_3136.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Black Hole Trance Music 09-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3137.jpgsave_picture_3137.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:E737DE7C2178663A4FC522C785B476BBDDC928B7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3138.jpgsave_picture_3138.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:8E22E53A5B7E30A28D93C155A520F8DBB877754F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3139.jpgsave_picture_3139.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Ed Sheeran - Play (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3140.jpgsave_picture_3140.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:BA79DFACFAAFE8324037F21E1AB077C5B6A94E64
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3141.jpgsave_picture_3141.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:0AAAC1EAFCCB81BD5E71636D244CBDCE0B7FABE3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3142.jpgsave_picture_3142.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Stargazer - Stone Cold Creature (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3143.jpgsave_picture_3143.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ KDRR - Неживое. Спецпроекты (2025) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3144.jpgsave_picture_3144.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VA - Black Hole House Music 09-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3145.jpgsave_picture_3145.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:19554EEB3106109E773660657E47F8271012A38F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3146.jpgsave_picture_3146.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ HiPER Calc Pro v11.2.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3147.jpgsave_picture_3147.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:60835CCC0F2C7B71D390D8BFBEC8648744DFBBD5
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3148.jpgsave_picture_3148.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Xezzo - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3149.jpgsave_picture_3149.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:5CDB31E637DE95D589816ADF461B758A43AF32A6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3150.jpgsave_picture_3150.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:D928AF33F7285F6C08A5BE750FD59312C971B0E0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3151.jpgsave_picture_3151.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.125 Mod by Alex.Strannik [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3152.jpgsave_picture_3152.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:7E616129F87ABD2728095019675233D21AFBCAD9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3153.jpgsave_picture_3153.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:4C9A293382D2B9AE5F4245C18168A725334D518E
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3154.jpgsave_picture_3154.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Phil Collins - No Jacket Required (1985) Mix, 2025, Rhino Atlantic [FLAC 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3155.jpgsave_picture_3155.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Sophie Ellis-Bextor - Perimenopop (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3156.jpgsave_picture_3156.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:AAD4B253319906DE4522191427CE7612A6146629
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3157.jpgsave_picture_3157.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:8EC3DDDB8631D94DA2256C33042D44B57AFAEABD
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3158.jpgsave_picture_3158.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:C2EA9C57926AA9808E44D2E3166DEFBA7A10261F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3159.jpgsave_picture_3159.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ AirBrush: ИИ Фоторедактор v7.16.0 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3160.jpgsave_picture_3160.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:94933B48554C6FAD68142CBA79BF3385DA44B6CA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3161.jpgsave_picture_3161.jpg" />
 </div>
 
 

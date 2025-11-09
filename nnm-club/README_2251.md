@@ -6,7 +6,7 @@ Smokie - Best Of Smokie 3CD Box Set (2002) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58893.jpgsave_picture_58893.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:027C343D6614AFDC07D74A86270752FD64B44674
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58894.jpgsave_picture_58894.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2A0C134A314FDCC032478936B10D48F166224B87
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58895.jpgsave_picture_58895.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E9E7AD06B00F6102801B5BED48B0CF1C3EE2CD9C
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58896.jpgsave_picture_58896.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Mugen Shinshi: Bouken Katsugeki Hen | Джентльмен из грёз: Ска
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58897.jpgsave_picture_58897.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Glarysoft Malware Hunter PRO 1.183.0.804 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58898.jpgsave_picture_58898.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:14C8CD6A10EA4108D1DE8C41463C62CA4A6EA7ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58899.jpgsave_picture_58899.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:D69F6413F612FA0E8C72AF9805BEB709AE430CC8
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58900.jpgsave_picture_58900.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:77655F3B919E81C745E3F40CD664C472643F59EC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58901.jpgsave_picture_58901.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ BBC: Морские гиганты / Ocean Giants (2011) BDRemux [VC-1/1080p] (�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58902.jpgsave_picture_58902.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:D861216A1BB38FD5F3EC21B27615BBB1BDE9D630
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58903.jpgsave_picture_58903.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:F0725E954B54C0F7757F356495E17CFB50ECA5F6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58904.jpgsave_picture_58904.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:8274B4CCFDC2ABC9E4F48A4D36FF97922FCE52A0
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58905.jpgsave_picture_58905.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:A087694D51EA735E4D22D1076F19323C15837B4C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58906.jpgsave_picture_58906.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ The Mildew Children / Дети Плесени (2024) [Ru/En] (1.1.0) Repack Othe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58907.jpgsave_picture_58907.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Galactic Ruler Enlightenment (2024) [Multi] (11.2.1286) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58908.jpgsave_picture_58908.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58909.jpgsave_picture_58909.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:4110159439AC7FB25C117909632797265C21A992
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58910.jpgsave_picture_58910.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ uTorrent Pro 3.6.0 Build 47062 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58911.jpgsave_picture_58911.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Aiseesoft FoneLab for Android 5.0.36 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58912.jpgsave_picture_58912.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Bizagi Modeler 4.0.0.128 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58913.jpgsave_picture_58913.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Ready, Steady, Ship! (2024) [Multi] (1.0.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58914.jpgsave_picture_58914.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Abelssoft Win10-11 PrivacyFix 2024 6.0.51494 / 3.0.51621 Portable by FC Portable
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58915.jpgsave_picture_58915.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Aron's Adventure (2021) [Multi] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58916.jpgsave_picture_58916.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ DxO PhotoLab Elite 7.6.0 build 189 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58917.jpgsave_picture_58917.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ App Manager 3.1.6 [Ru/Multi] (Обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58918.jpgsave_picture_58918.jpg" />
 </div>
 
 

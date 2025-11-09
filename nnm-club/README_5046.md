@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157773.jpgsave_picture_157773.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:77D93BF0AB2E73889022C670902D31BFF8BD8055
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157775.jpgsave_picture_157775.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ WindowsPlayer 3.5.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157777.jpgsave_picture_157777.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:C8940DCF15444D9B080FB58BE2EE4DFD75363F26
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157779.jpgsave_picture_157779.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ TG Pro (Temperature Gauge Pro) 2.46 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157780.jpgsave_picture_157780.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:30F166928EF2304D69F0A34908C93471CB373D23
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157781.jpgsave_picture_157781.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Unheilig - Das 2. Gebot (2003) [FLAC|Lossless|image + .cue] <Industrial Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157782.jpgsave_picture_157782.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Little Sea Lounge (2019) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157783.jpgsave_picture_157783.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:0F0F01D0CCAF6EDA61858B83CB4F1C8A3471F6D4
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157784.jpgsave_picture_157784.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:D89468E159C8C4AF63660332D3A22B48F38FF8D7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157787.jpgsave_picture_157787.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Bethzaida - LXXVIII (1998) [FLAC|Lossless|image + .cue] <Deathб Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157788.jpgsave_picture_157788.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:FC175C95F9710820D37F251B7D191000CC84ADE9
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157789.jpgsave_picture_157789.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Bethzaida - War Vol. II (1999) Split [FLAC|Lossless|image + .cue] <Death, Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157792.jpgsave_picture_157792.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:F59EF92865FE622FF594040C8B4F0CF2B54143FE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157793.jpgsave_picture_157793.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:0BA3840C227162559B73EFBEE0D66C61C35FD3D1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157794.jpgsave_picture_157794.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Weedcraft Inc. 1.3 (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157795.jpgsave_picture_157795.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Fantastic Wallpapers (12.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157796.jpgsave_picture_157796.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:7BAA0DAA1CCD3F9B144734F4ADC1165FE97D4C02
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157797.jpgsave_picture_157797.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:E917CAD00276A06E486300FC13992FF45707320E
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157799.jpgsave_picture_157799.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:8A17FCBE4F264D90AEABD60F07BF41D50C40E9E2
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157800.jpgsave_picture_157800.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ DaVinci Resolve Studio 12.5.4 + easyDCP [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157801.jpgsave_picture_157801.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Kampf - Nothing But Wrath (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157803.jpgsave_picture_157803.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Arena - The Theory Of Molecular Inheritance (2022) 2CD, Deluxe Edition [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157804.jpgsave_picture_157804.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ CrystalDiskInfo 8.13.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157805.jpgsave_picture_157805.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:BFD39FF4CB5AB92923C4619F47EBC7AB7F6CED27
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157806.jpgsave_picture_157806.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - Beatport Electronic Pack 01 (2019) [MP3|320 Kbps] <Electronic, Synthwave, S
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157807.jpgsave_picture_157807.jpg" />
 </div>
 
 

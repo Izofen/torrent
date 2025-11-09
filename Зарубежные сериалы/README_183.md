@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247148.jpgsave_picture_247148.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4E8F0BCF84B58374AE7C7114037F317A2ED3E8AE
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247152.jpgsave_picture_247152.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:561723AA5128DF4CB614D4C27DCF3FEF4B067559
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247158.jpgsave_picture_247158.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1AC84BFF5F30EE7759762F5B03E49E80154F7456
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247160.jpgsave_picture_247160.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2911D863B307D3C794BC13ABA7E4E8A3E161E572
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247162.jpgsave_picture_247162.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:57A41A397921B41A0E106E1B522C7FA981349137
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247163.jpgsave_picture_247163.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A68E2AC5A3CF65BDBFDF54FE7B3D00BD883505C8
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247164.jpgsave_picture_247164.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E57D46DB096DB55E8F1080E849EB43ED29E61C04
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247169.jpgsave_picture_247169.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:2C807E981E62C6C5AAF56EE3CDEEAE7F756E9BCA
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247171.jpgsave_picture_247171.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:0B577C82E7AC6618AEBF8D2862D827B6BC0DE485
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247174.jpgsave_picture_247174.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:1460D4EE5FBBC8496AD3188CDB43D4057C9DF322
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247178.jpgsave_picture_247178.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:453BA0FB7C067C283895A13AD8E41FEC72B0B3D6
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247181.jpgsave_picture_247181.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:574FC26EC52640311D82615958BB1D30BA243466
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247183.jpgsave_picture_247183.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:F5E6552608293D54FE55FDDB977B90D8F9015E19
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247184.jpgsave_picture_247184.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:9F74D47ED69DCB4DEB3ED9242E4C29D39D6BEBB4
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247185.jpgsave_picture_247185.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:7688A144E292AF8E86D8B999353DE8EA44D18BEF
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247186.jpgsave_picture_247186.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:9C01A43213D32F072283BB808E9C013B6FEE3EBC
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247187.jpgsave_picture_247187.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:CF88D6DECB9A258D2D71E96BC7635156339AAB29
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247188.jpgsave_picture_247188.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:2372035B203AD5B6CF5B9CEC7ACB0A56A7E39168
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247191.jpgsave_picture_247191.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:F58C67AF68C3E977B042E9602240123FC0F3A447
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247194.jpgsave_picture_247194.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:C470519D80A6DF2053E0F8F56F5F26694EA69862
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247195.jpgsave_picture_247195.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:080F0DAA2CAF5893FC964104597F2B271CFBCF99
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247196.jpgsave_picture_247196.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:B3B96C2DA6CEC53BF4E4C0CBED6ABD42721FBB31
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247200.jpgsave_picture_247200.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:D615CECD6D53C36A189E6D2B874A5D10AFD706A4
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247203.jpgsave_picture_247203.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:C0F67EC412E2B7F77789BAF5FA372FCE391B49E6
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247204.jpgsave_picture_247204.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:2D4E2D664558AFEA38D813587C43E01FD23F8C84
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247205.jpgsave_picture_247205.jpg" />
 </div>
 
 

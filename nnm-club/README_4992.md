@@ -6,7 +6,7 @@ Popol Ace - Stolen From Time (1975) Reissue, 1990, Polydor [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155966.jpgsave_picture_155966.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kryder - Kryteria Radio 321 (Kryder Yearmix) (2021-12-15) [MP3|192 Kbps] <Progre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155968.jpgsave_picture_155968.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:021A12698E398516B9DDD26109E61C9AF7A08EAD
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155969.jpgsave_picture_155969.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:BBE08D820E75BDB10ED123645DC97AB9AD46CD95
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155970.jpgsave_picture_155970.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Stars On 45' - Звёзды дискотек (2LP) (1983, 1984) [FLAC 2.0 24/96|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155971.jpgsave_picture_155971.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Them - Manor of the Se7en Gables (2018) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155973.jpgsave_picture_155973.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Nick Warren - The Soundgarden - Volume One (2014) Hope Recordings [FLAC|Los
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155974.jpgsave_picture_155974.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:CAEA7ACC43FE4D04EAF0E8C553CFDD2758ECC7DD
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155976.jpgsave_picture_155976.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:5EDD62C4F2E5005AB3B275647C4645A89C50479D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155977.jpgsave_picture_155977.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ One Last Day - Прости, что так (2022) [MP3|320 Kbps] <Alternative Ro
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155979.jpgsave_picture_155979.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Titiyo - Extended (1997) [MP3|320 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155980.jpgsave_picture_155980.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Loopback 2.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155981.jpgsave_picture_155981.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:8FEB08D478A25BC2564139D609D8BAAAAE61CF08
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155982.jpgsave_picture_155982.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Boston - Walk On (1994) [FLAC|Lossless|tracks + .cue] <Arena Rock, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155983.jpgsave_picture_155983.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:8DDF01C9FA12CCA9B136F65F0BE8709A2127AC69
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155984.jpgsave_picture_155984.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:AFB41EBED7EC0C5EF907A8F55917CA9E10BCDF0E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155986.jpgsave_picture_155986.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:D3086A7FF3E8603BB7B07C0C981ADFA1B5DE4EE3
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155987.jpgsave_picture_155987.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:21CD690FCDD31916192870131EA1FEFF877AC3A9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155988.jpgsave_picture_155988.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Disk Xray 2.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155990.jpgsave_picture_155990.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:A9AF2CC585AD1645818839F5C27B173948C165D8
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155991.jpgsave_picture_155991.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Modern Talking - Поговорим о любви, Ready For Romance (1986, 1987
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155993.jpgsave_picture_155993.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:0159D5A7AE17443E0DAE7B4D42D238F2A89D1A7A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155994.jpgsave_picture_155994.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:B3140F4920A492B70A8561C5FC18A533380B59DC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155995.jpgsave_picture_155995.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:D553AF496C9EA425BB8EF4BF07214A6727433C6A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155996.jpgsave_picture_155996.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:5F2D627397D3F05E05BC25DCFC4F08A2D87F7363
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155997.jpgsave_picture_155997.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ VA - Christmas & Chill, Vol. 2 (Have Yourself A Little Deep House Hangout) (2018
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155998.jpgsave_picture_155998.jpg" />
 </div>
 
 

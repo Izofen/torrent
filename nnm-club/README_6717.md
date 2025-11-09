@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231002.jpgsave_picture_231002.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Arch Echo - Final Pitch (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231003.jpgsave_picture_231003.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:B3CF53796E579807B12ECCAF84B9D6C4024E4B12
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231004.jpgsave_picture_231004.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dona Eis Requiem - The Litanies of the Quietus (2011) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231006.jpgsave_picture_231006.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mortemia - The Pandemic Pandemonium Sessions (2022) [MP3|320 Kbps] <Symphonic Go
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231008.jpgsave_picture_231008.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Adobe InCopy 2022 18.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231009.jpgsave_picture_231009.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Topaz Photo AI 1.3.7 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231010.jpgsave_picture_231010.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Dynamic Wallpaper Engine 15.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231011.jpgsave_picture_231011.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:2E006FE1D302D93865FC1692FFED7043AB76FB11
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231012.jpgsave_picture_231012.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ DiskSlim - Disk Cleanup Pro 9.8.12 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231015.jpgsave_picture_231015.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Desolator - Sermon of Apathy (2020) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231016.jpgsave_picture_231016.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - 40 Summer Hits 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231017.jpgsave_picture_231017.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:374205070D21AB6F8F3386C5087A721B06D272A6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231018.jpgsave_picture_231018.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Yoink 3.6.85 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231019.jpgsave_picture_231019.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:FDA968533FC2FC64715C14AD152F01E6A6BFFFA7
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231020.jpgsave_picture_231020.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Alarm Clock Pro 15 v.15.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231022.jpgsave_picture_231022.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ FreeFileSync 12.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231024.jpgsave_picture_231024.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Dona Eis Requiem - Grant Them Rest (2007) Demo [FLAC|Lossless|image + .cue] <Exp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231025.jpgsave_picture_231025.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:B42961FD9F0F90673CB06907E8A0DFD67E1E3E15
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231026.jpgsave_picture_231026.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Godfall - The Sound of Robogroove (1995) EP [FLAC|Lossless|image + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231027.jpgsave_picture_231027.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - 80's Super Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231028.jpgsave_picture_231028.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Mission In Black - Profit Reigns Supreme (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231031.jpgsave_picture_231031.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Chain Timer 9.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231032.jpgsave_picture_231032.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:FDB51D35F867A75025375CB42363A09F027CE39F
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231033.jpgsave_picture_231033.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Gardenian - Soulburner (1999) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231034.jpgsave_picture_231034.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Led Zeppelin - Легенды Зарубежного Рока (1999) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231036.jpgsave_picture_231036.jpg" />
 </div>
 
 

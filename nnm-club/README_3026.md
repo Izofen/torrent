@@ -6,7 +6,7 @@ VA - Progressive Music (20.02.2012) [MP3|320 kbps]<Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94328.jpgsave_picture_94328.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Minimal Art v.11 (19.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94335.jpgsave_picture_94335.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA - Progstorm 3 (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94342.jpgsave_picture_94342.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ George Gakis - Too Much Ain't Ever Enough (2012) [MP3|320 кб/с]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94360.jpgsave_picture_94360.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Andain - Much Too Much (2012) HDRip
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94364.jpgsave_picture_94364.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Gromth - The Immortal (2011) [MP3|240 - 320 кб/с]<Symphonic Black Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94375.jpgsave_picture_94375.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Ruff Ryders - Past Present Future (Hosted By DJ Khaled) (2012) [MP3|160 кб/с]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94376.jpgsave_picture_94376.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Roadstar - Grand Hotel (2006) [MP3|320 кб/с]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94381.jpgsave_picture_94381.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Emika - 3 Hours EP (2012) [MP3|320 kbps]<Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94393.jpgsave_picture_94393.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:72678659BC436D93B45D9513ABC230C1FE995B46
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94396.jpgsave_picture_94396.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Armin van Buuren - A State of Trance 549 SBD (23.02.2012) [MP3|320 кб/с]<Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94404.jpgsave_picture_94404.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:864178E2C1FDE593B005FDCBC25F44E9F0AC5BAB
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94411.jpgsave_picture_94411.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:64EA005C97B698584A04E1A35A04C8B846D82F35
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94417.jpgsave_picture_94417.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:B8BD5849DC07493AB3C6D4F467A4F7ADFE2A992C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94418.jpgsave_picture_94418.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Dj VoJo - CLUB DESIRE vol.10 - Dancing Humanity (2012) [MP3|320 кб/с]<Electro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94424.jpgsave_picture_94424.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:CB353CF9B0781DC554FFFDDBA8E98A84EF01939E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94432.jpgsave_picture_94432.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:D267F5C5CCEA013062E0ABB8A33F20B06716FBDB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94464.jpgsave_picture_94464.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:75942822412E6546157010C4AC4BAF5DC16C0EF5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94466.jpgsave_picture_94466.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Fuge (Венгрия) - Fuge (2010) [MP3|320 кб/с]<Progressive/Math Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94484.jpgsave_picture_94484.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Mena Brinno - Icy Muse (2007) [MP3|192 кб/с]<Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94489.jpgsave_picture_94489.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:3A29D3DBD6E22B869F473693D0FA0F52165C6133
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94496.jpgsave_picture_94496.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:BFA7759587AEA19D76DF67D0D28AD039D1DD0CF0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94497.jpgsave_picture_94497.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - The Orient Collective: Nomadic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94498.jpgsave_picture_94498.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94499.jpgsave_picture_94499.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ magnet:?xt=urn:btih:7E0396BC980C8891E946D0825E09E1563F9B9426
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94500.jpgsave_picture_94500.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ magnet:?xt=urn:btih:608B4AFE008848DED0254BD35B8B3723702F439E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94501.jpgsave_picture_94501.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Unholy (2023) [Ru/Multi] (30649) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195289.jpgsave_picture_195289.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tomb Raider: Trilogy (2013-2018) [Ru/Multi] (1.1.838.0/1.0.1027/1.0.492.0/dlc) R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195295.jpgsave_picture_195295.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Unholy (2023) [Ru/Multi] (11746044) Scene FireLight
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195301.jpgsave_picture_195301.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ REMEDIUM: Sentinels (2023) [Ru/Multi] (11729250) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195307.jpgsave_picture_195307.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Phoenix Point (2020) [Ru/Multi] (1.20.1/dlc) Repack dixen18 [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195345.jpgsave_picture_195345.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.0.5) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195366.jpgsave_picture_195366.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Please, Forgive Me (2023) [Ru/En] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195387.jpgsave_picture_195387.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Cave (2013) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195390.jpgsave_picture_195390.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Rule of Land: Pioneers (2023) [Multi] (1.0.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195395.jpgsave_picture_195395.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Absolute Drift (2015) [En] (5f6049d) License GOG [Zen Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195437.jpgsave_picture_195437.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Life is Strange Remastered Collection (2022) [Ru/Multi] (11330282/11258280) Repa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195473.jpgsave_picture_195473.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ OXENFREE II: Lost Signals (2023) [Multi] (1.2.14) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195532.jpgsave_picture_195532.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Total War: Rome II (2) (2014) [Ru/En] (2.4.0.11535779/dlc) Repack dixen18 [Emper
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195561.jpgsave_picture_195561.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Kena: Bridge of Spirits / Кена: Мост духов (2021) [Ru/Multi] (2.08)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195563.jpgsave_picture_195563.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Nova Lands (2023) [Ru/Multi] (1.0.23) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195567.jpgsave_picture_195567.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Total War: Shogun 2 (2011) [Ru/Multi] (1.1.0.6262.2931569/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195581.jpgsave_picture_195581.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Dark Pictures Anthology: Man of Medan (2019) [Ru/Multi] (Build 10739751/dlc)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195589.jpgsave_picture_195589.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:439021874FB1A9F627FA02112DF07363BE0EBF68
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195622.jpgsave_picture_195622.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bucket Knight (2019) [Ru/Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195631.jpgsave_picture_195631.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Atelier Marie Remake: The Alchemist of Salburg (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195658.jpgsave_picture_195658.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195684.jpgsave_picture_195684.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Skydrift Infinity (2021) [Ru/Multi] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195702.jpgsave_picture_195702.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Fall of Porcupine (2023) [Multi] (1.1.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195798.jpgsave_picture_195798.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Bus Driver Simulator 2019 (2019) [Ru/Multi] (7.61/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195804.jpgsave_picture_195804.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Radio Commander (2019) [Ru/Multi] (1.155g/dlc) License GOG [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195824.jpgsave_picture_195824.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Battle Axe (2021) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195826.jpgsave_picture_195826.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31503.jpgsave_picture_31503.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WinContig 5.0.3.1 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31504.jpgsave_picture_31504.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2659F1B6C17B58399BC6E258E879FD518E7632BC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31505.jpgsave_picture_31505.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BC7A28F845E0945EC5F6B3B39E742780049AC5E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31506.jpgsave_picture_31506.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5CFAF052A7E2586694C8FBAD9BF7AB845C8ABB19
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31507.jpgsave_picture_31507.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - Country Music 2025 (Hot Hits & Classics) (2025) [MP3|320 Kbps] <Country, Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31508.jpgsave_picture_31508.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:EFD99C8AAB02E42CB93CFABCA327DAA59DED1AC1
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31509.jpgsave_picture_31509.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:9C9B6B16C9C92C31FBF0EFA3EF8351B52876D031
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31510.jpgsave_picture_31510.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ YT Downloader 9.11.17 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31511.jpgsave_picture_31511.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31512.jpgsave_picture_31512.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:49147375226F461371CBFD8080FC2AE2B98DA6FD
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31513.jpgsave_picture_31513.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:26F957819A0034717659F1AD2CB65D08F318D434
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31514.jpgsave_picture_31514.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:9CAECCF63466DE3A403F55DBDAF7418D2D01CBA6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31515.jpgsave_picture_31515.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:D678F92BC1C962333412ADF53DDAA5CF5220535B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31516.jpgsave_picture_31516.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:A374AD6B97A7DCD8C8E4C1811C9DB92E0EAD4305
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31517.jpgsave_picture_31517.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:3FEE5BB9CDFA2F2E3AF115AFB9DF683CC8F3FEAA
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31518.jpgsave_picture_31518.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:815630BAAF8C2C198DAEA2E979E3CD02D1E4E8AE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31519.jpgsave_picture_31519.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:40958E14CC8686381A2CAF93EA762AC9B07E8047
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31520.jpgsave_picture_31520.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:38B127F510216644E626365CBFBEBEDCFDF3ABA8
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31521.jpgsave_picture_31521.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:FDF15FBBB8A69454BDC3ECD9C9FB649EEA3EBC16
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31522.jpgsave_picture_31522.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:0D92F843128A8753B8AA61803ACBF71C19F3B406
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31523.jpgsave_picture_31523.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:D0BCFCC7C197D0CB94D0F07190E87DCDDED5FDFF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31524.jpgsave_picture_31524.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:88FEF677368C503062A95EA038140EF7D865D794
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31525.jpgsave_picture_31525.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31526.jpgsave_picture_31526.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Forever Skies (2023) [Ru/Multi] (1.7.1) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31527.jpgsave_picture_31527.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ ZERO Sievert (2024) [Ru/Multi] (1.0.10) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31528.jpgsave_picture_31528.jpg" />
 </div>
 
 

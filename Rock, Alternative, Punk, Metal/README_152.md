@@ -6,7 +6,7 @@ Leviathan Project - MCMLXXXII (2024) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112280.jpgsave_picture_112280.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dino Jelusick - Chosen Gems (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112286.jpgsave_picture_112286.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Avi Rosenfeld & John E Mendel - Instead Of Worrying (2024) [MP3|320 Kbps] <Class
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112298.jpgsave_picture_112298.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tad Morose - Leaving the Past Behind (1993) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112335.jpgsave_picture_112335.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Corsair - The Golden Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112337.jpgsave_picture_112337.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Tad Morose - Sender of Thoughts (1995) Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112339.jpgsave_picture_112339.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Hot Rod Frankie - God, Gasoline & Me (2013) [FLAC|Lossless|WEB-DL|tracks] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112343.jpgsave_picture_112343.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Neal Morse - The Restoration - Joseph: Pt. Two (2024) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112354.jpgsave_picture_112354.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ All For The King - Darkest Before Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112359.jpgsave_picture_112359.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Moby Grape - Moby Grape'69 (1969) Reissue, Remastered, 2007, Sundazed Music [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112367.jpgsave_picture_112367.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Stoner Kings - Hive Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Stoner Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112386.jpgsave_picture_112386.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Lillian Axe - The Box Vol. 1-2 (2023-2024) 13CD [MP3|320 Kbps] <Hard Rock, Heavy
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112389.jpgsave_picture_112389.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Coffin Storm - Arcana Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112455.jpgsave_picture_112455.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Madness - The Liberty of Norton Folgate (2009) Remaster, 2023, Expanded Edition,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112459.jpgsave_picture_112459.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ivory Tower - Heavy Rain (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112468.jpgsave_picture_112468.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ The Prog Collective - Dark Encounters (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112469.jpgsave_picture_112469.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Fall Of Serenity - Open Wide, O Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112470.jpgsave_picture_112470.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Rotting Christ - The Apocryphal Spells (2023) 2 x CD, Compilation [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112476.jpgsave_picture_112476.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ ANA - The Art of Letting Go (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112487.jpgsave_picture_112487.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:622FBA03DA6D9273A549E9C2B95E9EC01E3A7849
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112488.jpgsave_picture_112488.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Crystayler - Never Seen Again (2022) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112490.jpgsave_picture_112490.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Bonfire - Fireworks: MMXXIII Version (2023) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112500.jpgsave_picture_112500.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ The Cynz - Little Miss Lost (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112503.jpgsave_picture_112503.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ MishRooms - Пьяные драконы (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112510.jpgsave_picture_112510.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:DA5D843387BC137587E52F408750887370BC7A7E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112519.jpgsave_picture_112519.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ magnet:?xt=urn:btih:D6CC15503CE13FABDFA2F5CB63B5B8AFD64E2551
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112543.jpgsave_picture_112543.jpg" />
 </div>
 
 

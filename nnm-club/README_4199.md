@@ -6,7 +6,7 @@ Aiseesoft Mac Video Enhancer 9.2.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130053.jpgsave_picture_130053.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TunesKit Video Cutter 2.3.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130055.jpgsave_picture_130055.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Filmage Screen-Screen Recorder 1.4.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130057.jpgsave_picture_130057.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Windom End - Perspective Views (2020) 2xCD, Japanese Edition [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130059.jpgsave_picture_130059.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:0C8238804D6DD30ED08E3F61F4B7A986295C7DA3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130060.jpgsave_picture_130060.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Wonderworld - Live Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130061.jpgsave_picture_130061.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Fallout: New Vegas Ultimate Edition [Ru/En] (RePack/1.4.0.525) 2012 | R.G. UniGa
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130065.jpgsave_picture_130065.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:42EF4B19309DEA19675F865AD55A6901747D0D29
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130066.jpgsave_picture_130066.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ CD 1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130068.jpgsave_picture_130068.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Battle Beast - Circus Of Doom (2022) [FLAC 2.0|44.1/24|tracks|Web-DL] <Melodic H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130070.jpgsave_picture_130070.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:2921FB762C8AA22F946F5CDD6D5E5BB96FB800FF
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130072.jpgsave_picture_130072.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ ByClick Downloader Premium 2.3.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130074.jpgsave_picture_130074.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:F7945FACF69C6AEE0C35931D50C07D803CE1D693
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130076.jpgsave_picture_130076.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:43406E10B3501465B0BA3C9E9D9DA977E8CFFBF8
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130077.jpgsave_picture_130077.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ WonderFox HD Video Converter Factory Pro 24.7 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130078.jpgsave_picture_130078.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:1B7CD43BB271E71CFD74598568FE701553C14470
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130079.jpgsave_picture_130079.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Pale Moon 29.4.4 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130080.jpgsave_picture_130080.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:3C244C82227114DCF5C1D5D4D7C268B1075AF707
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130081.jpgsave_picture_130081.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Sonic Charge - Microtonic 3.20 VSTi  [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130082.jpgsave_picture_130082.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Duolingo Plus: изучение иностранных языков 5.41.1 Mod b
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130084.jpgsave_picture_130084.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:1187CF2563CB7BB507F185B4EEABCA998088E5B9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130086.jpgsave_picture_130086.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ PSPaudioware - PSP Plugins Bundle 01.2022 VST, VST3, AAX (x64) RePack by R2R [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130087.jpgsave_picture_130087.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:17E2155242F663A7CFCCF6662914CA4E3BCA914D
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130088.jpgsave_picture_130088.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ The Jesus and Mary Chain - Live at Barrowland (2022) Live [FLAC|Lossless|WEB-DL|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130089.jpgsave_picture_130089.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:ED32CE9BA8C61FB6B6006FC47319FB7BC34BD9A3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130090.jpgsave_picture_130090.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Sketch 82 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130091.jpgsave_picture_130091.jpg" />
 </div>
 
 

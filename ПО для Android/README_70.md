@@ -6,7 +6,7 @@ LibriVox Аудиокниги Pro v10.13.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203466.jpgsave_picture_203466.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:591D1C56BA4A17D2A504509EE394B274F8ABDD51
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203808.jpgsave_picture_203808.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Background Eraser (InShot Inc.) v2.142.42 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203821.jpgsave_picture_203821.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Screen Lock Pro 5.1.2p_ap Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203922.jpgsave_picture_203922.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ GPS Локер Prime v2.4.4 Mod by No_Hammer [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204193.jpgsave_picture_204193.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ FaceLab v2.19.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204257.jpgsave_picture_204257.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Lexilize FlashCards v4.8.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204358.jpgsave_picture_204358.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F70C4AFF10002840828748D8C1B363AB3EF2D64F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204467.jpgsave_picture_204467.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Rutube v28.4.4 Mod by Alex.Strannik [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204474.jpgsave_picture_204474.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:7E3811D5E2E1ACCB74B9443CFDEDE01095AE45BB
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204515.jpgsave_picture_204515.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:9D98B603EF171DDF1AFABC124CE4FBC09F7AC0F9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204540.jpgsave_picture_204540.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:890B45624C1F3004FA9592DD3AE11C6F5CBA0D13
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204606.jpgsave_picture_204606.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Moon+ Reader Pro 8.3 (803004) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204776.jpgsave_picture_204776.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ One Shield Plus 2.7 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204802.jpgsave_picture_204802.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Kiwi VPN Proxy: Safer & Faster 43.30.09 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204963.jpgsave_picture_204963.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:DCF06172ADF6031AC815652B1375150780DB394B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204973.jpgsave_picture_204973.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:E9CBDDE7A2B8BFF36E07616A886C5A7162EED6D3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205021.jpgsave_picture_205021.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BSPlayer Pro 3.18.246-20230801 Mod by master1274 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205040.jpgsave_picture_205040.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Malloc Privacy & Security VPN 3.37 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205077.jpgsave_picture_205077.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ BBVpn VPN: Unlimited VPN Proxy 3.4.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205159.jpgsave_picture_205159.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ PixelLab Pro - Text on pictures 2.1.1 Mod by KirIif' [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205194.jpgsave_picture_205194.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Photomath Plus 8.28.0 (b70000935) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205229.jpgsave_picture_205229.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ MyMovie - Видеоредактор 12.5.4 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205264.jpgsave_picture_205264.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Node Video - Pro Video Editor 6.4.1 Mod by ImanAlien [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205388.jpgsave_picture_205388.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Flowx: Weather Map Forecast 3.404 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205744.jpgsave_picture_205744.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ MyRadar - Weather Radar Pro 8.49.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205956.jpgsave_picture_205956.jpg" />
 </div>
 
 

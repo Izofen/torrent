@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171468.jpgsave_picture_171468.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Игровое видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171469.jpgsave_picture_171469.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Adobe Audition 2024 v.24.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171470.jpgsave_picture_171470.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ FL Studio Producer Edition 21.1.1.3750 (X64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171471.jpgsave_picture_171471.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:68041C35236529C726D4D613AB82C2196D72D8F1
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171472.jpgsave_picture_171472.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:ECD793646DD725DC2D7DC877D6322108B9865770
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171473.jpgsave_picture_171473.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ The Gap (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171474.jpgsave_picture_171474.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Udemy, Steve Avon | Trending Stocks with Python, Reddit, Twitter, and ChatGPT (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171475.jpgsave_picture_171475.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ qBittorrent 4.6.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171476.jpgsave_picture_171476.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Revo Uninstaller Pro 5.2.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171477.jpgsave_picture_171477.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:2302967156800ED307230FCC18E9DB96E8D3CF06
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171478.jpgsave_picture_171478.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Freaky Trip (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171479.jpgsave_picture_171479.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Revo Uninstaller Pro 5.2.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171480.jpgsave_picture_171480.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171481.jpgsave_picture_171481.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:0652785604DEB443E76922299CFC8BA207F419F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171482.jpgsave_picture_171482.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:0652785604DEB443E76922299CFC8BA207F419F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171483.jpgsave_picture_171483.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:0652785604DEB443E76922299CFC8BA207F419F8
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171484.jpgsave_picture_171484.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Arcatera: The Dark Brotherhood (2000) [En] (1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171485.jpgsave_picture_171485.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ WinRAR 7.00 Beta 1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171486.jpgsave_picture_171486.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:99EB95AEE8807BE48880B80CD59465EA6A758A81
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171487.jpgsave_picture_171487.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:D9CF46AA7C53ED61DFBF95FCFB0533CC57710F0C
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171488.jpgsave_picture_171488.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:D51E1956955861613D342B9E2FE98171BE893759
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171489.jpgsave_picture_171489.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Revo Uninstaller Pro 5.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171490.jpgsave_picture_171490.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:77FA72C47953F0042DAB9E1C76F56FA1C9111FC2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171491.jpgsave_picture_171491.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Screaming Frog SEO Spider 19.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171492.jpgsave_picture_171492.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:FBB6527EBDA03DC100E6CC86A894890779882F4C
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171493.jpgsave_picture_171493.jpg" />
 </div>
 
 

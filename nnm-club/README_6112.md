@@ -6,7 +6,7 @@ TheAeroClock 8.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192277.jpgsave_picture_192277.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ZEDGE 8.14.8 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192278.jpgsave_picture_192278.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AllDup 4.5.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192279.jpgsave_picture_192279.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Oktoberfest Rock Party (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192280.jpgsave_picture_192280.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (2.0.4_01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192281.jpgsave_picture_192281.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Google Earth Pro 7.3.6.9275 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192282.jpgsave_picture_192282.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:64AD954DBE70EC552EA8EF9917A2894EFA88E542
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192283.jpgsave_picture_192283.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:80942D138A10685D30F027701F76003B88ED6D66
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192284.jpgsave_picture_192284.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Complete Internet Repair 9.0.3.6088 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192285.jpgsave_picture_192285.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:52232C21C0176F567995D1796E1D295C2785EDEC
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192286.jpgsave_picture_192286.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:545FCEC3AA668871A08F99068AFA272D7AFB7DA1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192287.jpgsave_picture_192287.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:781A89E704E8F4C6C577967D67A3F5E165CFBE82
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192288.jpgsave_picture_192288.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Text Editor Pro 27.5.2 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192289.jpgsave_picture_192289.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:3FBC8C8843EE98EDF4EC6B108744441FF3D41B0B
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192290.jpgsave_picture_192290.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:0A0BDF9A4BC4BA9E176EEFC4D9686981C337E876
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192291.jpgsave_picture_192291.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:3F53CF05D9101B65BC92EB7A9DC1C068EA2754C7
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192292.jpgsave_picture_192292.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:B3FD47A602D62605DCA6F558C97C4CD7216D0A9B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192293.jpgsave_picture_192293.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:A7D8AFF31B963E0A3345E3F82FF69B7B53D607CF
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192294.jpgsave_picture_192294.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Monkey's Audio 10.20 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192295.jpgsave_picture_192295.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Aventhur - Fractured Memories (2023) [MP3|320 Kbps] <Symphonic Progressive Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192296.jpgsave_picture_192296.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ BrokenMan - Songs in the Absence of Light (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192297.jpgsave_picture_192297.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:08F777A5C7ABC6BE89975B2B271561E1A56A4FC1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192298.jpgsave_picture_192298.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:28BE9FC95DEE433C87A69F814F542B8B6DD6DEE6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192299.jpgsave_picture_192299.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:ADCC95349618618C178FD27A61563B15F3E010AD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192300.jpgsave_picture_192300.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:136442B95E624910BD78AE4670C88D45084FD7E2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192301.jpgsave_picture_192301.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Aventhur - Fractured Memories (2023) [FLAC 24/48|WEB-DL|tracks] <Symphonic Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192302.jpgsave_picture_192302.jpg" />
 </div>
 
 

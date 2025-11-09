@@ -6,7 +6,7 @@ JP LeBlanc - All In My Blood / Je l'ai dans l'sang (2025) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6583.jpgsave_picture_6583.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Heaven Shall Burn - Studio Albums (11 releases) (1998-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6584.jpgsave_picture_6584.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kellen Brixton - Mindstate (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6585.jpgsave_picture_6585.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Last prophets - Time Moved Again (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6586.jpgsave_picture_6586.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Aisha Khan - Seven Shades of Blue Aisha Khan & the Rajahs (2025) [FLAC 24/48|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6587.jpgsave_picture_6587.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Junior Vic Band - Let the Good Times Roll (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6588.jpgsave_picture_6588.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Knox Morgan - Loudspeaker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6589.jpgsave_picture_6589.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Jonathan Kasper - Turn Off the Machine (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6590.jpgsave_picture_6590.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:8DB4FCD6FAE7ECC2560C1A2C096EB97B5872B9D4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6591.jpgsave_picture_6591.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:8E102953CEC422C7F84AA682F1BD8B20EB2EF551
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6592.jpgsave_picture_6592.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:2BB138C74AE635E1178B487975562C4C8A9E6742
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6593.jpgsave_picture_6593.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:28F7CC7D8C75D27DA3ED30CA297ECEC8401E8A5D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6594.jpgsave_picture_6594.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:A745932B5161EE4065384FD057B7A53AE48C701B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6595.jpgsave_picture_6595.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:DF7A4A50B64D5BD6CF112DB4D69AA6C41FB2C057
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6596.jpgsave_picture_6596.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Lava Saint - Grim Avenues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6597.jpgsave_picture_6597.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:BFC49242E2BEA49997DD3BB136E366D9077223F2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6598.jpgsave_picture_6598.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:31401764EEFAB53DB212198E5EEAD6861EAC6C3F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6599.jpgsave_picture_6599.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:7D835EC75D0069F82F69775146FB1EA19CFC628D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6600.jpgsave_picture_6600.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:F98BFFD63F90D063B1B4E3965DF7A766D94AAD0F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6601.jpgsave_picture_6601.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:0649F4F593C54068084B797666564C46B07D08F8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6602.jpgsave_picture_6602.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:59E2B4B48C4BE4181EEDB5FBB74BD7764BAAB5E6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6603.jpgsave_picture_6603.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:62C1223640001784B2A6DDE0F24162D53D85B85C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6604.jpgsave_picture_6604.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Viral - The Merchant (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6605.jpgsave_picture_6605.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Dave Limina - Old Piano Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6606.jpgsave_picture_6606.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:0614262628A64AD799CEA21361855A051C354FEC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6607.jpgsave_picture_6607.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:A6D3B0800A33F371D56D7D47C5C19FA8358D3B5B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6608.jpgsave_picture_6608.jpg" />
 </div>
 
 

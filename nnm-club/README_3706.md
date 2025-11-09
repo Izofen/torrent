@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116731.jpgsave_picture_116731.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Firefox Browser 123.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116732.jpgsave_picture_116732.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA (Armin Van Buuren) - A State of Trance 2024 - DESTINATION (The Official Album
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116733.jpgsave_picture_116733.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Total Commander 11.02 (19.02.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116734.jpgsave_picture_116734.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:AA423E0D261F5B4F83B9589FE117581F737E6F1D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116735.jpgsave_picture_116735.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:212810873444D0E5443E43602751C892BF5824FA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116736.jpgsave_picture_116736.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:BE0A349C44C2D5EE8577EBC9044EDF7F28B1D50A
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116737.jpgsave_picture_116737.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Topaz Video AI 4.2.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116738.jpgsave_picture_116738.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Lacey Free Music & Video Downloader 2.95 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116739.jpgsave_picture_116739.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:F0A913D096E92FA121646BA6DA832A7BFBB73A0D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116740.jpgsave_picture_116740.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Microsoft отучила браузер Edge перехватывать вкла
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116741.jpgsave_picture_116741.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Windows 10 Debloater 2.6.10 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116742.jpgsave_picture_116742.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Neon Tail (2024) [Multi] (1.0.0.100) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116743.jpgsave_picture_116743.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Topaz Photo AI 2.4.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116744.jpgsave_picture_116744.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ MAMP PRO 6 v.6.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116745.jpgsave_picture_116745.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ MiniTool Power Data Recovery 11.8 Technician RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116746.jpgsave_picture_116746.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:6D0F8A89FD7311BA7D99CC68B1ADBCFC3C5DDA43
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116747.jpgsave_picture_116747.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Hekasoft Backup & Restore 0.96 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116748.jpgsave_picture_116748.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:452BBA2AAD5CD4C451A7D92B449092BA3D619921
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116749.jpgsave_picture_116749.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:6528B94F0B8C30557D6CD78AC2262EE1930E1455
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116750.jpgsave_picture_116750.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:3302B51F8C66644D9369BD1D3E5BF8B7BE4561E8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116751.jpgsave_picture_116751.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:9B0141FAED0AE939F654D0E9CD16BFA103356D8D
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116752.jpgsave_picture_116752.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Windows 11 Debloater 2.0.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116753.jpgsave_picture_116753.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:B4114A4235CF400A088294AEBC76487E4B1065A1
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116754.jpgsave_picture_116754.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:DAF7432B511DE2D33B59D07F5B2951E4772FDF6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116755.jpgsave_picture_116755.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Firefox Browser ESR 115.8.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116756.jpgsave_picture_116756.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Auslogics Duplicate File Finder 11.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10273.jpgsave_picture_10273.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MediaHuman YouTube Downloader 3.9.15 (2607) RePack (& Portable) by Dodakaedr [Mu
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10311.jpgsave_picture_10311.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ IObit Driver Booster Pro 12.6.0.620  RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10401.jpgsave_picture_10401.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Cleaner for Zapret 1.3 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10421.jpgsave_picture_10421.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ MiniTool Power Data Recovery 12.6 Technician RePack (& Portable) by elchupacabra
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10434.jpgsave_picture_10434.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Wise Registry Cleaner Pro 11.2.3.728 RePack (& portable) by elchupacabra [Multi/
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10519.jpgsave_picture_10519.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ FolderView 2.2 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10521.jpgsave_picture_10521.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ MailWasher Pro 7.15.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10961.jpgsave_picture_10961.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Wondershare PDFelement 11.4.24.3620 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11002.jpgsave_picture_11002.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Coolutils Total Outlook Converter Pro 5.1.1.582 RePack (& Portable) by elchupaca
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11100.jpgsave_picture_11100.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ MediaHuman YouTube to MP3 Converter 3.9.14 (1407) RePack (& Portable) by elchupa
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11328.jpgsave_picture_11328.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Google Chrome 138.0.7204.158 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11347.jpgsave_picture_11347.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ FurMark 2.9.0.0 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11348.jpgsave_picture_11348.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ AnyBurn 6.5 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11409.jpgsave_picture_11409.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ GPU Shark II 2.9.0.0 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11411.jpgsave_picture_11411.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Movavi Screen Recorder 24.6.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11427.jpgsave_picture_11427.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:A4049618C939BC271D74F6D7988A7954F62BFFF7
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11617.jpgsave_picture_11617.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ KMS Tools Lite Portable by Ratiborus 06.07.2025 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11778.jpgsave_picture_11778.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ ACG-Free! 2.01 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11789.jpgsave_picture_11789.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Office Tool Plus 10.24.68.0 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11979.jpgsave_picture_11979.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Karing 1.2.0.810 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11982.jpgsave_picture_11982.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.70.7500 Portable 
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12054.jpgsave_picture_12054.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Fast Screen Recorder 2.1.0.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12158.jpgsave_picture_12158.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:7CB4AB2E807BF3A62F8163EBE3881F206985621E
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12182.jpgsave_picture_12182.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Everything 1.4.1.1028 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12188.jpgsave_picture_12188.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ SysGauge System Monitor 11.9.18 Free / Pro / Server [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12190.jpgsave_picture_12190.jpg" />
 </div>
 
 

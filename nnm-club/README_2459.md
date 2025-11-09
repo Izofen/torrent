@@ -6,7 +6,7 @@ Lanpirot | Позывной Хоттабыч (Книга 6). Аватар Х (20
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64684.jpgsave_picture_64684.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lanpirot | Позывной Хоттабыч (Книга 5). Кто к нам с
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64685.jpgsave_picture_64685.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Torben Enevoldsen - Seven (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Instrume
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64686.jpgsave_picture_64686.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Kadaverficker - Exploitation Nekronation (2012) [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64687.jpgsave_picture_64687.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Lanpirot | Позывной Хоттабыч (Книга 4). Спасти лей
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64688.jpgsave_picture_64688.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:0B06B8C0CF084E5CEB2D80238437C9F19FF982B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64689.jpgsave_picture_64689.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8F58D53767E4AAE9F8CCA251167C12EBCB243688
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64690.jpgsave_picture_64690.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Natale Jazz 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64691.jpgsave_picture_64691.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:E645EF6BCC3D68B6F11D1B1AA2C76DD15E171850
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64692.jpgsave_picture_64692.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:E2B1F18495104D48F67A535F5EE6B2D1361B5E62
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64693.jpgsave_picture_64693.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Summer Chill Mood (Warm & Elegant Relaxing Instrumentals, Vol. 1) (2025) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64694.jpgsave_picture_64694.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - Under The Umbrella (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64695.jpgsave_picture_64695.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - Chillout Jazz Del Mar Summer 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Chi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64696.jpgsave_picture_64696.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:C63EFD0F07147A8303F87E75D1069B26C4444F8A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64697.jpgsave_picture_64697.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:57D3F6F9F491EB9551BF71B1B41AB2FEF4553F02
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64698.jpgsave_picture_64698.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Lanpirot | Нахаловка (Книга 2) (2025) [MP3, Вадим Ерофе�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64699.jpgsave_picture_64699.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:3407F5746DD7CE2EA5E23C36D2B8FA82843FDEAA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64700.jpgsave_picture_64700.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - Las Mejores Canciones de Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64701.jpgsave_picture_64701.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:7EB334E751084C19E8F9AFF0927E800FD9F46982
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64702.jpgsave_picture_64702.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - Jazz & House Summer Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64703.jpgsave_picture_64703.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:2DE40FCC09B9FAF459188C057F7AE8B4026DEEA9
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64704.jpgsave_picture_64704.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Silent Deep Ocean - 2 Albums (2025) [MP3|320 Kbps] <Atmospheric Doom, Gothic Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64705.jpgsave_picture_64705.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:23637FD74406EA3AAE46DBC51C3F302C6583CB6C
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64706.jpgsave_picture_64706.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:41E8552D242C199ED1971BEFCBFF17069673A501
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64707.jpgsave_picture_64707.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Folamour - Movement Therapy (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disc
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64708.jpgsave_picture_64708.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:7093A165E2CA7A902587467181E574201C9FDAED
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64709.jpgsave_picture_64709.jpg" />
 </div>
 
 

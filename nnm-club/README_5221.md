@@ -6,7 +6,7 @@ NG: Добро пожаловать на Землю / Welcome to Earth (2021) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162504.jpgsave_picture_162504.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1432FD0AE767860239B1704855C0A7632AAEB486
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162505.jpgsave_picture_162505.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Criminal Animal - Backroom Business (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162506.jpgsave_picture_162506.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ PeaZip 9.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162507.jpgsave_picture_162507.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Udemy, Visadi Khalikov | Этичный хакинг с Metasploit для нач
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162508.jpgsave_picture_162508.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:B3E08F1B68F3844AC2D7A4AE759E1638ECCDC189
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162510.jpgsave_picture_162510.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:1C51607ACDFD3D53652E9C277FF923C604AE1DFE
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162511.jpgsave_picture_162511.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ PrivaZer (Donors) 4.0.60 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162512.jpgsave_picture_162512.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B2F23E530BF8D5C2CD50007858499083D9393104
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162513.jpgsave_picture_162513.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ One Commander Pro 3.27.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162514.jpgsave_picture_162514.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Caroline Cotto - Bayou Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162515.jpgsave_picture_162515.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ The Beatles: Вернись / The Beatles: Get Back (2021) WEB-DL [H.264/1080p] 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162516.jpgsave_picture_162516.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:E0E78752566132EB11F83D502BB5B9BAD0BCEC5E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162517.jpgsave_picture_162517.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ NIUBI Partition Editor 9.2.2 Technician Edition RePack (& Portable) by TryRooM [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162518.jpgsave_picture_162518.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Chris Thomas King - Big Grey Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162519.jpgsave_picture_162519.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Skillbox, Марина Брагинская и др. | Декорировани�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162520.jpgsave_picture_162520.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:07F79586F765C5466AB237A96211C7E78D3919E3
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162521.jpgsave_picture_162521.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:4760E98DB89B06ADD510D44E3D5457866C7B4D43
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162522.jpgsave_picture_162522.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:D8C9FF52F8FF8F87DE3CF6E0DAD9ACF5857DB7E6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162523.jpgsave_picture_162523.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Daniel Eriksen - Live At Cudrio Recording (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162524.jpgsave_picture_162524.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:BAC4741E4D9BEB18214072C83EDB17D39F489725
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162525.jpgsave_picture_162525.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Serenity - The Last Knight (2020) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162526.jpgsave_picture_162526.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:9D15EFC5B1FE3934703F82FAFFD16062CEAAE326
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162527.jpgsave_picture_162527.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:DCC5EC31985564BA04A8269B46AC073DEEF449BA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162528.jpgsave_picture_162528.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:EDAD9F55308DEF86989AC84F6FC0B367B5C9608F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162529.jpgsave_picture_162529.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ TG Pro (Temperature Gauge Pro) 2.76 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162530.jpgsave_picture_162530.jpg" />
 </div>
 
 

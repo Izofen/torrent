@@ -6,7 +6,7 @@ Dramaturg - Darkness (2022) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128222.jpgsave_picture_128222.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sword - III (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128223.jpgsave_picture_128223.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jessica Williams - Live At Yoshi's, Vol. 2 (2005) MaxJazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128224.jpgsave_picture_128224.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cavandish - Лицемерие (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128225.jpgsave_picture_128225.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Foetal Juice - Grotesque (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128226.jpgsave_picture_128226.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Grimorium Verum - Reall (2022) [FLAC|Lossless|image + .cue] <Black Metal, Sympho
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128227.jpgsave_picture_128227.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:734623A5E2DD65F4B86A6438F339D429508FD7B3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128228.jpgsave_picture_128228.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Chillout Winter Gems 2024: Chillout Your Mind (2023)[FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128229.jpgsave_picture_128229.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:07305CC0285E7A9B689DD8162111DD8587849DDA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128230.jpgsave_picture_128230.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:CA2B7035C8596884F46F1443C63FB2A1C098765D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128231.jpgsave_picture_128231.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:9A3FF1A47C7950D0EB3E259294E468801F7AF4B2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128232.jpgsave_picture_128232.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ VA - Electro Swing Back to Old School Volume 2 (Jazzy Electro and Vintage Swing 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128233.jpgsave_picture_128233.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:205EB56C17A37DBCA63B3D591E62C19D8D378CD2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128234.jpgsave_picture_128234.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:395E33112F2AAA1C28F53116D289281B4450F776
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128235.jpgsave_picture_128235.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:5246A2EE5416EBF461485598E881D0C21DBCD632
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128236.jpgsave_picture_128236.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:00D0F68FA12AD0A3F75A3B9DA5D176D8ECA9CF07
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128237.jpgsave_picture_128237.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:6C65A143D8CC3BD8E40EC58504259369A2090570
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128238.jpgsave_picture_128238.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Smooth Jazz Beats & Modern Fusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128239.jpgsave_picture_128239.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Starcadian - Sunset Blood  (2013) Special Edition, Remastered, 2023 , Starcadian
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128240.jpgsave_picture_128240.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:73F024A2B5E211125464AAF0FF1EAB0EEB333ADC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128241.jpgsave_picture_128241.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:8A17E94599D30B280F8ADA1A8CFABB1DC9764FA0
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128242.jpgsave_picture_128242.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:25C883B1FF1FA99C2BCFC5DE1E5685B7E2D1ECB2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128243.jpgsave_picture_128243.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:7C50B9409D0F213B84499E9BFDEF3ACED83DEE9F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128244.jpgsave_picture_128244.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Thomas Hardin Trio - Jazz de kiku Beethoven (2003) Victor Entertainment [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128245.jpgsave_picture_128245.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:05733FC1C18A62F3310798A496AF077A3BB626E8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128246.jpgsave_picture_128246.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ System Of A Down - System Of A Down (1998)[FLAC|24/192|image + .cue|Vinyl-Rip]  
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128247.jpgsave_picture_128247.jpg" />
 </div>
 
 

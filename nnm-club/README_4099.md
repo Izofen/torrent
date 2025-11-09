@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127149.jpgsave_picture_127149.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:572670CA9A23A6BFE8090A51A2182D64F0F28E30
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127150.jpgsave_picture_127150.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A24DBCEB8E5EB03004EB46BEB82AA17FFF8CE236
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127151.jpgsave_picture_127151.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Microsoft Windows 11 [10.0.22621.2861], Version 22H2 (Updated December 2023) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127152.jpgsave_picture_127152.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:7F4F6F194A833D18041E9F45B52976D2CE3FCD1A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127153.jpgsave_picture_127153.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:CC0B611AC89FF149BF6E0895EA79FF840153B714
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127154.jpgsave_picture_127154.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:5C6BB2316E71FC4DE45F50165279C72BCE28A5DE
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127155.jpgsave_picture_127155.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:30BBFF6046D73D15713976C6382840E63B5EF1AC
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127156.jpgsave_picture_127156.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ SnapEdit - AI photo editor 5.4.1 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127157.jpgsave_picture_127157.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:6DED5F0DBA8D5602469F70A6ED5500ED5A345279
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127158.jpgsave_picture_127158.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:E631A94D55311C8FA7AC9BFA15D7FD10614D25C4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127159.jpgsave_picture_127159.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Seiken Gakuin no Maken Tsukai / The Demon Sword Master of Excalibur Academy / М
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127160.jpgsave_picture_127160.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ TRAIL OUT (2022) [Ru/Multi] (2.9st/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127161.jpgsave_picture_127161.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:544BD38F89808D9CC155F9805EE57784F8F18BF4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127162.jpgsave_picture_127162.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:544BD38F89808D9CC155F9805EE57784F8F18BF4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127163.jpgsave_picture_127163.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:BE8A4C260362388F36AF1DA1F498B775221BC6A5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127164.jpgsave_picture_127164.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Watashi no Oshi wa Akuyaku Reijou. / I'm in Love with the Villainess / Я пре
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127165.jpgsave_picture_127165.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Universal Media Creation Tool 19.12.2023 Portable [Ru/En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127166.jpgsave_picture_127166.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Windows Server 2022 LTSC [10.0.20348.2159], Version 21H2 (Updated December 2023)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127167.jpgsave_picture_127167.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:0FB4664A77A3A82C8FB02CEE4663BA88A43A9958
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127168.jpgsave_picture_127168.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Watashi no Oshi wa Akuyaku Reijou. | I`m in Love with the Villainess | Я пре
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127169.jpgsave_picture_127169.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:9AEAF91CA4363BE1EA706B9E348DD7EF36915334
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127170.jpgsave_picture_127170.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:9AEAF91CA4363BE1EA706B9E348DD7EF36915334
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127171.jpgsave_picture_127171.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Windows Server [10.0.25398.584], version 23H2 (Updated December 2023) - Ориг
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127172.jpgsave_picture_127172.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:749062A864F56750EF020D0264F24A57388E0CF1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127173.jpgsave_picture_127173.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Microsoft Windows 11 [10.0.22631.2861], Version 23H2 (Updated December 2023) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127174.jpgsave_picture_127174.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113793.jpgsave_picture_113793.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vlad in Tears - Relapse (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Post-Gr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113794.jpgsave_picture_113794.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Synthsoul - Cosmic Funk Chronicles (Original Mix) (2024) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113795.jpgsave_picture_113795.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:BFBFED42256F22725946E3B0BB47354118E8AFCA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113796.jpgsave_picture_113796.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Voodoo - The Purge (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113797.jpgsave_picture_113797.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Algebra - Polymorph & Procreation (2012) Reissue, 2013, Stormspell Records [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113798.jpgsave_picture_113798.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Francis Lockwood, Johan Renard - New Surya (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113799.jpgsave_picture_113799.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ PdfFactory Std & Pro 8.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113800.jpgsave_picture_113800.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:66540423BB5C28D114902F8AC91C70D287D9FA85
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113801.jpgsave_picture_113801.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:D50215A0F629064429CE1B128DC3BE2DFB9829AE
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113802.jpgsave_picture_113802.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:E09B9FB7C282745EFCC9CD14E62802A193D64C1F
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113803.jpgsave_picture_113803.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:6CCF1624EA8BB9BA35DCB6EAC6950D59796992E1
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113804.jpgsave_picture_113804.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Neverlove - Next Level (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113805.jpgsave_picture_113805.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:08C9166349EEEB8D63B58C5C0963CBFCFE1E03E2
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113806.jpgsave_picture_113806.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:2D2068BAD8EED64335143063C3E4E4A4470ED99A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113807.jpgsave_picture_113807.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ DropDMG 3.6.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113808.jpgsave_picture_113808.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ MotoGP. Этап 01 из 22. Гран-при Катара. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113809.jpgsave_picture_113809.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Sting - The Soul Cages (1991) 1992 [FLAC 24/192|Lossless|tracks] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113810.jpgsave_picture_113810.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ RightFont 8.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113811.jpgsave_picture_113811.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:821A96CA23205C116283AF062C348418B6B0DB39
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113812.jpgsave_picture_113812.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ GeoGebra 6.0.829.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113813.jpgsave_picture_113813.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ AC/DC - Stiff Upper Lip (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113814.jpgsave_picture_113814.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:6DAA135FCAB30E63D786256E6A293CDABB56DBB3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113815.jpgsave_picture_113815.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Dave Sereny - Come On Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113816.jpgsave_picture_113816.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ The Moody Blues - The Other Side Of Life (1986) [FLAC 24/192|Lossless|tracks] <R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113817.jpgsave_picture_113817.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:0E75E46114179205577E3DD79E2ACE6C79A2AC00
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113818.jpgsave_picture_113818.jpg" />
 </div>
 
 

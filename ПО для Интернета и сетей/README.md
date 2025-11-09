@@ -6,7 +6,7 @@ YT Downloader 9.17.7 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104.jpgsave_picture_104.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MassTube Ultra 21.0.3.167 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_307.jpgsave_picture_307.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MassTube Ultra 21.0.3.167 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_321.jpgsave_picture_321.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Internet Download Manager 6.42 Build 48 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_337.jpgsave_picture_337.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Internet Download Manager 6.42 Build 48 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_372.jpgsave_picture_372.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Internet Download Manager 6.42 Build 48 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_614.jpgsave_picture_614.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 23.09.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_628.jpgsave_picture_628.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C7DE8A46A73DB48D0E903DBFDF628548673F363F
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_633.jpgsave_picture_633.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Maxthon Browser 7.3.1.8600 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_645.jpgsave_picture_645.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ uTorrent Pack 1.2.3.98 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_715.jpgsave_picture_715.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:ED54DE69E76E9B55005FCE5BC235D51A627080CE
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_806.jpgsave_picture_806.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Firefox Browser ESR 115.28.0 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_822.jpgsave_picture_822.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ YT Downloader 9.17.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_828.jpgsave_picture_828.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Firefox Browser ESR 115.28.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_832.jpgsave_picture_832.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Signal 7.72.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_848.jpgsave_picture_848.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ MediaHuman YouTube Downloader 3.9.16 (2409) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_868.jpgsave_picture_868.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ MediaHuman YouTube Downloader 3.9.16 (2409) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1022.jpgsave_picture_1022.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:A106B5240466DC68E166724141B713594AABD862
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1025.jpgsave_picture_1025.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ MAX Desktop 25.11.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1078.jpgsave_picture_1078.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Chromium 140.0.7339.208 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1167.jpgsave_picture_1167.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Vivaldi 7.6.3797.56 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1172.jpgsave_picture_1172.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:CD8E0BA8C2F1F2E5763CEAB6F4B2ADD76ED0940A
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1189.jpgsave_picture_1189.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Google Chrome 140.0.7339.208 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1191.jpgsave_picture_1191.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Opera One 122.0.5643.71 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1217.jpgsave_picture_1217.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ OpenVPN 2.6.15 Final [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1231.jpgsave_picture_1231.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ v2rayN 7.14.12 portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1238.jpgsave_picture_1238.jpg" />
 </div>
 
 

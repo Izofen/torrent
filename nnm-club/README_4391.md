@@ -6,7 +6,7 @@ Finding Paradise (2017) [En/Ch] (1.2c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137217.jpgsave_picture_137217.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Yagate Kimi ni Naru / Bloom Into You / В конечном счёте я ста�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137218.jpgsave_picture_137218.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Darkest Dungeon (2016) [Ru/Multi] (16707) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137219.jpgsave_picture_137219.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7493EEC032159C56D1C4F1E3CCE6ECC05D2029C2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137220.jpgsave_picture_137220.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:759802C1438100F403EE6723D85F9492B0281F80
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137221.jpgsave_picture_137221.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:28B5A133FD72E90927D96CC9B9530953C01D90FE
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137222.jpgsave_picture_137222.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из завтра�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137223.jpgsave_picture_137223.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:02F37040B4E973807AB9A61C554FA97C116F7183
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137224.jpgsave_picture_137224.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:166D3B1A9598E533EF9EE68E276D795AD6343F30
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137225.jpgsave_picture_137225.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:2C8FAA3CB05F7A53A76A9DE5FCC84280B044E429
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137226.jpgsave_picture_137226.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:60844B609355C99C2A4C785FB2DCF06C70BE77E2
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137227.jpgsave_picture_137227.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ ProDAD Mercalli 4.0.482.1 + CMOS Correction RePack by PooShock [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137228.jpgsave_picture_137228.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:3A817AD77EC15DF8934A7B81D7C0E7F4B09AD5A1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137229.jpgsave_picture_137229.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:27A920E03D201F0837D0B7AE340EBA80442E4595
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137230.jpgsave_picture_137230.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Navitel / Навител Навигатор v9.6.1978 RePack [Ru/En] - толь�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137231.jpgsave_picture_137231.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Duke of Alpha Centauri (2016) [En] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137232.jpgsave_picture_137232.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:0359144B9001493E065463EA9D8FFF9CA5917FEC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137233.jpgsave_picture_137233.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:4B05FFEF91D531328B1271F4CDAE50042F45A0F2
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137234.jpgsave_picture_137234.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:F2314098023A4080A20F37C8B3FD7F0B6EA18EB3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137235.jpgsave_picture_137235.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ uTorrent 3.5.5 (build 44954) Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137237.jpgsave_picture_137237.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:019F141D7B554A75BC63B0FD9BDEBBC9EA31BB83
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137238.jpgsave_picture_137238.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:BA4A53CE0E3DA0AD6F32C5354868FC4D0FB6218D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137239.jpgsave_picture_137239.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:300A5FC6115061BF8FAB399BA3FA0AFB4230E6A1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137240.jpgsave_picture_137240.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ English with Lucy | The PDF Vault (2020) [unpacked] [AD] [EN]
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137241.jpgsave_picture_137241.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:7736CFE085FF566D339176F984D85C0D21A19F48
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137242.jpgsave_picture_137242.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:8F1AF1C486A2D4D9A0A1255F2652A0616822BBCE
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137243.jpgsave_picture_137243.jpg" />
 </div>
 
 

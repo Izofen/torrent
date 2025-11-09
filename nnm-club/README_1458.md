@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38263.jpgsave_picture_38263.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4DEB5980E6FE9E06762725C806F7FA5DCD93096F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38264.jpgsave_picture_38264.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3113014CAB4DC32BE48C8BE27566DC6551814C04
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38265.jpgsave_picture_38265.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Markus Schulz - Global DJ Broadcast Afterdark 2024 (4 Hour Techno Mix) (2024-10-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38266.jpgsave_picture_38266.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Windrow - Deus Universi (2024) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38267.jpgsave_picture_38267.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:99538772C88E7CE3601F1F93CD288C0BF91AF151
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38268.jpgsave_picture_38268.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:5638CC1B1827F9DAF38FFF58A73AF2B8992C30F5
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38269.jpgsave_picture_38269.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Svaneborg Kardyb - Superkilen (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contem
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38270.jpgsave_picture_38270.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Daylight Robbery - Decree Absolute (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38271.jpgsave_picture_38271.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Mad Dillon's Deputies - Biting Dynamite (2024) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38272.jpgsave_picture_38272.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ The Brooks - Soon As I Can (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38273.jpgsave_picture_38273.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Simon Oslender, Steve Gadd & Will Lee - All That Matters (2024) [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38274.jpgsave_picture_38274.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Southern Hospitality - Yard Sale (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38275.jpgsave_picture_38275.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - Can’t Steal My Fire The Songs of David Olney (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38276.jpgsave_picture_38276.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ NonExist - Studio Albums (4 releases) (2002-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38277.jpgsave_picture_38277.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:EDC85D1A1E11A4EE9A9CDD983F2279786F8BC1D1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38278.jpgsave_picture_38278.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Infrared - Reflections (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38279.jpgsave_picture_38279.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Eric Dolphy - Out To Lunch! (1964) 1985, Blue Note [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38280.jpgsave_picture_38280.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:964FF8348AC1839AB1F60E6CCFA5047C2B4F1C44
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38281.jpgsave_picture_38281.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:7A4F68A230F8EDE8F3351FC6E3D0C93AFA233A1C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38282.jpgsave_picture_38282.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Ray Anthony - Capitol Collectors Series (1949 - 1962) 1991, Capitol Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38283.jpgsave_picture_38283.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38284.jpgsave_picture_38284.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:2073C0E5ED61170903AAF71D74F37CCE432C6952
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38285.jpgsave_picture_38285.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Text Editor Pro 30.0.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38286.jpgsave_picture_38286.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ File & Image Uploader 8.4.7 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38287.jpgsave_picture_38287.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:EB5A87F2200627D731F26A0DBFCBA41DA04BF06D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38288.jpgsave_picture_38288.jpg" />
 </div>
 
 

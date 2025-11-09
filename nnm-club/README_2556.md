@@ -6,7 +6,7 @@ The Cult - Electric Peace (2013) 2xCD, Reissue, Compilation [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67206.jpgsave_picture_67206.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Redux Selection, Vol. 5 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67207.jpgsave_picture_67207.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wednesday 13 - Mid Death Crisis (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67208.jpgsave_picture_67208.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:72A3223370DD5411BF2713C3486CAB502FBD2010
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67209.jpgsave_picture_67209.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:11FDD8D77220C486AF58C36838892AD780B4ED88
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67210.jpgsave_picture_67210.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Saori Yano - Sakura Stamp (2005) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67211.jpgsave_picture_67211.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Saori Yano - Groovin' High (2006) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67212.jpgsave_picture_67212.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Bettye Lavette - Interpretations: The British Rock Songbook (2010) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67213.jpgsave_picture_67213.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Saori Yano - Saori Yano (2003) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67214.jpgsave_picture_67214.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Saori Yano - 02 (2004) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67215.jpgsave_picture_67215.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:F0F9106A98AFC886D9792B6612EB0862DC51E68D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67216.jpgsave_picture_67216.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Polarr v6.11.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67217.jpgsave_picture_67217.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:A2B3C0844960D5DA5A518A4B475C20FA94518C2C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67218.jpgsave_picture_67218.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ uzhasarium | Наследство (2024) [MP3, Денис Максимов]
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67219.jpgsave_picture_67219.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Crematory - Destination (2025) [MP3|320 Kbps] <Industrial Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67220.jpgsave_picture_67220.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:4FF7347B3E4A8C196AD3C08F3DC003F9D91C06D2
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67221.jpgsave_picture_67221.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ KineMaster - Video Editor & Maker v7.6.16.34690.GP Mod by Shadow_Patcher [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67222.jpgsave_picture_67222.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:BE9775DA84966DA1A8115510479ADFA68064C4BC
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67223.jpgsave_picture_67223.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ GeoGebra 6.0.884-1 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67224.jpgsave_picture_67224.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:B879700D2123B710EC9515DEE84BDC9A3FA86BF6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67225.jpgsave_picture_67225.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:50A5CBE0AB7ACE01D3E09E5901E6390370EE6D7F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67226.jpgsave_picture_67226.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Midnight Smoke - Retronoir (2023) [FLAC|Lossless|Web-DL|tracks] <Retrowave, Dark
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67227.jpgsave_picture_67227.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:7712B32574E0409374758C648FD7A1BD2B0C5CBD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67228.jpgsave_picture_67228.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:F0BF9D0268E639FF31DFBD4BB6942F46C2E32BDA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67229.jpgsave_picture_67229.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:1218575FBE468F9CF476FEA5A114FEB87EB297BB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67230.jpgsave_picture_67230.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Dr. Jules' Cool Blues - The Iconoclast (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67231.jpgsave_picture_67231.jpg" />
 </div>
 
 

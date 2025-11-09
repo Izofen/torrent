@@ -6,7 +6,7 @@ In Utero Cannibalism - Back To The Basics (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240474.jpgsave_picture_240474.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Viber 20.2.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240475.jpgsave_picture_240475.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rage - End Of All Days (1996) [FLAC|Lossless|image + .cue] <Power Metal, Speed M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240476.jpgsave_picture_240476.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:E76975EE334DB5E6270D7784596F262A1E7A2AE3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240477.jpgsave_picture_240477.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:E8F15398017F8D6F63D8527495252E0C79CCF09F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240478.jpgsave_picture_240478.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:09C5365BA18C2978A5E1331EED617834F9D6D702
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240479.jpgsave_picture_240479.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:AF27CE46143808A30BAD5E821138F46D4EB4C74E
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240480.jpgsave_picture_240480.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Ariah - The Spire (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Djent
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240481.jpgsave_picture_240481.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Topaz Photo AI 1.3.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240482.jpgsave_picture_240482.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:A9C5182840C2B114E0666EE919D4673CDAF90471
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240483.jpgsave_picture_240483.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Horna - Kuoleman kirjo (2020) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240484.jpgsave_picture_240484.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Amber Run - How To Be Human (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie, Britpop
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240485.jpgsave_picture_240485.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:168065CE4851363BECA7983A8FD5016533D24173
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240486.jpgsave_picture_240486.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:6EDC7242DC8C795D9A8ED9369F08F53CF0CF77D2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240487.jpgsave_picture_240487.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:828E65DB867D166909B6455E939C52E95FCC82E6
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240488.jpgsave_picture_240488.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Sarah Davachi - Cantus, Descant (2020) [AAC|~229 Kbps]<Electronic, Ambient, Mode
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240489.jpgsave_picture_240489.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:F58AC4C09E4C0FC20586F169F3AA4A694D56BEBD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240490.jpgsave_picture_240490.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:A3F10DED0D356E980AB4537C2FEDEB4C58301DFA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240491.jpgsave_picture_240491.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:5753A3DEEBD595BFE5B2C1C4AFEB682D7B20C226
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240492.jpgsave_picture_240492.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:68F69F90989732C6FC8BCFA502AF69DBB700DCD0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240493.jpgsave_picture_240493.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:86850C0196C2FC2B8BC92947B4E80A6945D822E9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240494.jpgsave_picture_240494.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:DC85866320295D7E6CB176AAB52DD65E11F36438
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240495.jpgsave_picture_240495.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Sidney Bechet & Martial Solal - When a Soprano Meets a Piano (1957) 2009, Inner 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240496.jpgsave_picture_240496.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Rage - The Missing Link (1993) [FLAC|Lossless|image + .cue] <Power Metal, Speed 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240497.jpgsave_picture_240497.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Starchaser - Starchaser (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Swedish Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240498.jpgsave_picture_240498.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ MEmu 8.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240499.jpgsave_picture_240499.jpg" />
 </div>
 
 

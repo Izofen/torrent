@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12176.jpgsave_picture_12176.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6AD09AD3006FB8D09CA17E68B537725E812DFA66
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12177.jpgsave_picture_12177.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E3F603DF1CE186A43A64797C761227F60BF9FE96
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12178.jpgsave_picture_12178.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F628451CD922C53C64E25FE46D00512C6F81E117
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12179.jpgsave_picture_12179.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VideoProc Converter AI 8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12180.jpgsave_picture_12180.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:85EAFD76323F9D53F939505C5B4E2B59587DD1CB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12181.jpgsave_picture_12181.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:2CBC5226C7BBB588A3549FC1469E69C1B2CDF695
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12182.jpgsave_picture_12182.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:98F88C86F826B6E78B37E36512A2E3688D6E3C33
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12183.jpgsave_picture_12183.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:8AB103E7F5B4FFCF95C3617B6B869E52F6A597B2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12184.jpgsave_picture_12184.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Foobar2000 2.24.6 include Portable [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12185.jpgsave_picture_12185.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:3FD679047DD7EB431BDC15860C63C72A5013BC7A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12186.jpgsave_picture_12186.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:1AB1859487A33AC1E8CFB5779BF1C86BC4794ADE
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12187.jpgsave_picture_12187.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Everything 1.4.1.1028 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12188.jpgsave_picture_12188.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ PotPlayer 250625 (1.7.22570) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12189.jpgsave_picture_12189.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ SysGauge System Monitor 11.9.18 Free / Pro / Server [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12190.jpgsave_picture_12190.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Ace Of Base - Compilation (1992-2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12191.jpgsave_picture_12191.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:0A4956B39A3D6DAD2AE819C7446AB144C576B630
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12192.jpgsave_picture_12192.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - The World's Greatest Jazz Collection (2008) /500 CD Box Set/ [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12193.jpgsave_picture_12193.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VA - Jazz Piano History (20 CD-set) (2006) [FLAC|Lossless] <Jazz, Ragtime, Booge
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12194.jpgsave_picture_12194.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Eternal Strands (2025) [Ru/Multi] (1.0.14.1638) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12195.jpgsave_picture_12195.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.114/dlc) Repack Let'sРlay [Digital 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12196.jpgsave_picture_12196.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Repack Let'sРlay [Complete Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12197.jpgsave_picture_12197.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:5D5872BE891FA513961CAB401F19E744D8C868CD
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12198.jpgsave_picture_12198.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:091511AD62921B4F205F1EB9C529FDE76509BDFF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12199.jpgsave_picture_12199.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:4800FDC87B46772F5DDB300FF4D4A6F2D06D6560
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12200.jpgsave_picture_12200.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Bloodshed (2024) [Ru/Multi] (1.0.14) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12201.jpgsave_picture_12201.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ USB Device Tree Viewer 4.0.2.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117459.jpgsave_picture_117459.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IceCream Ebook Reader Pro 6.47 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117460.jpgsave_picture_117460.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2863704F96184B124EDB25D131A56501500D3E8C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117461.jpgsave_picture_117461.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:888171D57C56FAC8D6E46621FD52690DD3782B60
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117462.jpgsave_picture_117462.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:38A561078A515A73E13B1A6DF28700839E180414
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117463.jpgsave_picture_117463.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:8065020B304621AA87395E99D324559B69F9272F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117464.jpgsave_picture_117464.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:046125D18B8D8EF43E14900F56A7D0114D02010D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117465.jpgsave_picture_117465.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ FreeBSD 14.0 [i386, amd64] 4xCD 2xDVD 4xUSB FlashDrive
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117466.jpgsave_picture_117466.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:AABA82A154BC9DE64BDE692271FF6A587A823C64
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117467.jpgsave_picture_117467.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ G.I. Joe: Бросок кобры 2 / G.I. Joe: Retaliation (2013) WEBRip [H.264
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117468.jpgsave_picture_117468.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:84A308491C96814FF638E5F41B93ED53B437FD36
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117469.jpgsave_picture_117469.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:B104DA4974E44E38CB32F61D4406E30B79FD0292
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117470.jpgsave_picture_117470.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ FabFilter - Total Bundle 2024.02.05 STANDALONE, VST, VST 3, AAX, CLAP (x86/x64) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117471.jpgsave_picture_117471.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:7E6880BFACCCDD616CEA19A17EA3DE82B19921F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117472.jpgsave_picture_117472.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Winaero Tweaker 1.62.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117473.jpgsave_picture_117473.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ ACDSee Photo Studio 10 for Mac v.10.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117474.jpgsave_picture_117474.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:5A62BC0F54D494C18A4DB5DEB29327F240B2BA28
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117475.jpgsave_picture_117475.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Speedtest by Ookla 1.12.186.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117476.jpgsave_picture_117476.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:78B07733860FDE7BE44505FA4EDCEFF060D31635
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117477.jpgsave_picture_117477.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:78B07733860FDE7BE44505FA4EDCEFF060D31635
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117478.jpgsave_picture_117478.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:2BE6B1A60E542D13B93A75E0FA0C1492DDE98759
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117479.jpgsave_picture_117479.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ WinToHDD 6.3 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117480.jpgsave_picture_117480.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Wise Care 365 Pro 6.6.5.635 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117481.jpgsave_picture_117481.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Repack dixen18 [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117482.jpgsave_picture_117482.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:14B755407B0A23FFEAB00AF33392CF6DE393820A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117483.jpgsave_picture_117483.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Windows 7 SP1 x64 Rus by OneSmiLe [15.02.2024]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117484.jpgsave_picture_117484.jpg" />
 </div>
 
 

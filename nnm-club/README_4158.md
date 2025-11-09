@@ -6,7 +6,7 @@ Kelvin Momo - Kurhula (2023) [FLAC|Lossless|WEB-DL|tracks] <Afrobeats, Dance>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128705.jpgsave_picture_128705.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Markus Schulz - Global DJ Broadcast World Tour: Open to Close Solo Set, Stereo M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128706.jpgsave_picture_128706.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lark Player - YouTube Music & Audio Player 5.66.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128707.jpgsave_picture_128707.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:0E81C9A4E05B8EAAFDD5D2BD5AE3AF7A284111C6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128708.jpgsave_picture_128708.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Rebecca Ferguson - Heaven, Pt. II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Fun
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128709.jpgsave_picture_128709.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Bernie Marsden - Working Man (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128710.jpgsave_picture_128710.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Alcatrazz - Disturbing The Peace (1985) Expanded Edition, 2023, Cherry Red Recor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128711.jpgsave_picture_128711.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:B2A5F97558A7B06AAA57A59DDBAC388AB09AC786
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128712.jpgsave_picture_128712.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:C75DC72251A02D5885D0E74DE4A64970A48E1A3F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128713.jpgsave_picture_128713.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Gorgeous Relaxing Jazzy Instrumentals in Lounge Style (2023) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128714.jpgsave_picture_128714.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Smart AudioBook Player 10.3.1 Mod by KirIif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128715.jpgsave_picture_128715.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:9A4AB2DB2199660593C424966F204E65A13F7CC1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128716.jpgsave_picture_128716.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:89AEB76E349D0A9CC0354D722E82D0B47026EC5F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128717.jpgsave_picture_128717.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:02BAEE115C323B24E74089521BA884608833890E
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128718.jpgsave_picture_128718.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:7818A821D728DFBE6238F3C4B4CD3A17309D990C
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128719.jpgsave_picture_128719.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Enterclass, Сергей Курбатов | Осенний Павловск (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128720.jpgsave_picture_128720.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Duolingo: изучай языки 5.131.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128721.jpgsave_picture_128721.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:C41EC6EB2DAF66CF2F97704D5BF1D206D3925FC8
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128722.jpgsave_picture_128722.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:7EF45435A7EF0025CE6C5B70EF7C710B2B9ECCAE
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128723.jpgsave_picture_128723.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:F9B1ED6D92249609A70FC91409DB77252586D830
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128724.jpgsave_picture_128724.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:0A94493C1F51C69C607365302BE4FC6E5BEAC5AF
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128725.jpgsave_picture_128725.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Adobe Photoshop Express 11.8.194 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128726.jpgsave_picture_128726.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:7AA658924F65209838B4E3588453C1BFB32FA629
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128727.jpgsave_picture_128727.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:6D706F40722DBEB1B564F36A128CD93D05EA00E8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128728.jpgsave_picture_128728.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Hugo's Voyage - Inception (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128729.jpgsave_picture_128729.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:56963CAE8990CE970266D6F111920D6597F5A4E8
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128730.jpgsave_picture_128730.jpg" />
 </div>
 
 

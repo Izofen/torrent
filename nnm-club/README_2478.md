@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65178.jpgsave_picture_65178.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:DEC42A549D3B1C185A74C2DCFE76B7F4C7059580
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65179.jpgsave_picture_65179.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F05596D3E00F092466E9F4C12B31F662357FBD44
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65180.jpgsave_picture_65180.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:BE899B29A7BEF6C0A2842CC903609BD2C4AE032C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65181.jpgsave_picture_65181.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:31C3A19A9B6213370AAD3264DE7180D99C052B06
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65182.jpgsave_picture_65182.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Jazz, Blues, and Cappuccino (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65183.jpgsave_picture_65183.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:05B453E7D0BE29401A1F3B7A82F94532C4571C38
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65184.jpgsave_picture_65184.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:79A993FEE6A44C855306ACCDCBA99D02EA46AFC3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65185.jpgsave_picture_65185.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Gods Of Tomorrow - Gods Of Tomorrow (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65186.jpgsave_picture_65186.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:69627E3F9494BAEA44342789F953933E27556901
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65187.jpgsave_picture_65187.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:E829842381CE4C2F4C5B293A8DA696B610F743CE
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65188.jpgsave_picture_65188.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:2B018DFC110650321CE49650D4E05A9611DB76D6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65189.jpgsave_picture_65189.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:BC7959F5FDBBD349AF3A6FA94FB89C03401652FB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65190.jpgsave_picture_65190.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:1A9B32EC68AB4DB158BC3367B4D328A934B493A9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65191.jpgsave_picture_65191.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VideoShow Pro v10.2.4.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65192.jpgsave_picture_65192.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:79FC41E9445B154D55888A2537262E5209F74B0F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65193.jpgsave_picture_65193.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:57F4AD5A2DB5EEF94DB8BAE0C03AC4A6427914FC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65194.jpgsave_picture_65194.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:422EE461107D96EE042DD865C2BC00F940B30B78
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65195.jpgsave_picture_65195.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Contemporary Chill: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65196.jpgsave_picture_65196.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Chill Out Paradise, Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65197.jpgsave_picture_65197.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:3D301B9CD1A7F65778997BE3E49CCC3C55185E4E
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65198.jpgsave_picture_65198.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Lighting calculations / Расчеты освещения v6.1.6 Mod by Balatan 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65199.jpgsave_picture_65199.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:1A75396F8BE72FCD66DE1E6FE18E07F2EDDBF20D
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65200.jpgsave_picture_65200.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Jigsawscapes® - Пазлы v4.1.5 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65201.jpgsave_picture_65201.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:0AACD68730BFF679AF776D88A1DB335B21DDCE3E
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65202.jpgsave_picture_65202.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Feliz dia do Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65203.jpgsave_picture_65203.jpg" />
 </div>
 
 

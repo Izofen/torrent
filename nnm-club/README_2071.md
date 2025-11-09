@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54213.jpgsave_picture_54213.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B85AC4E85888F53CFC6B724118DD7F6A57822A61
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54214.jpgsave_picture_54214.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:693C2F6D96C1B9D3B5CD5C624E22F2CF93656F6E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54215.jpgsave_picture_54215.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:8060969A543EABB06718751FAF736E627EA31F68
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54216.jpgsave_picture_54216.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:3E4902489E5CFCE39753C2749BB4D06B6CE79C0C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54217.jpgsave_picture_54217.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:4731206F833404CBD765FBA38C2396A7287FA24D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54218.jpgsave_picture_54218.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ MInstAll v.04.06.2024 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54219.jpgsave_picture_54219.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:470CF5475FB98B6D1FA76C165513FC706481CC75
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54220.jpgsave_picture_54220.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:A92C443D9E19B618FA2A49F6EDB46627847E85C7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54221.jpgsave_picture_54221.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:2B6819D0C3DA440CC08C12EC711FAE9982A1F1A9
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54222.jpgsave_picture_54222.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ DefenderKiller 12.1 Portable by Vlado [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54223.jpgsave_picture_54223.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:EC4F0BB1D5B0AC88C260D302C2172D6017F002B8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54224.jpgsave_picture_54224.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:0A2B992A67655EDFC1EA96386373039A6F0C3F74
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54225.jpgsave_picture_54225.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Late Night with the DevilАвстралия, США, ОАЭ, 2023 год.(   Ч�
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54226.jpgsave_picture_54226.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Boeing и NASA  запустили корабль Starliner с астронав�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54227.jpgsave_picture_54227.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Boeing и NASA  запустили корабль Starliner с астронав�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54228.jpgsave_picture_54228.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ SCP Operations (2024) [En] (1.0.0:73) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54229.jpgsave_picture_54229.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:FDF2ADB4047B7572F083B57F95E760CF56989C82
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54230.jpgsave_picture_54230.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.30.6900 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54231.jpgsave_picture_54231.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:21A06BC4B7B20D909321A3872B8F131062D20BB1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54232.jpgsave_picture_54232.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Boris FX Silhouette 2024.0.0 Build 254 (x64) RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54233.jpgsave_picture_54233.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:D4C24380C92B7D950BB002C737492B9166472DC0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54234.jpgsave_picture_54234.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:AF720D036643933728E871FC22E60193811EB673
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54235.jpgsave_picture_54235.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - Sabadell Sound Megamixes (2024) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54236.jpgsave_picture_54236.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:5F33D0946D533F0C03B947D8A05302BD678AEB40
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54237.jpgsave_picture_54237.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Andrew Scott Conning | The Kodansha Kanji Learner's Course (2013) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54238.jpgsave_picture_54238.jpg" />
 </div>
 
 

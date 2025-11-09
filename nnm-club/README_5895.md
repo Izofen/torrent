@@ -6,7 +6,7 @@ Orbiter - A Goddamn Classic (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185581.jpgsave_picture_185581.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1E611648BA69A1746DB03E5F34B7B2775B71598C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185582.jpgsave_picture_185582.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ ImageRanger Pro Edition 1.7.7.1667 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185583.jpgsave_picture_185583.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:86647E9B61CA22070C21D7A793744AF43AE61717
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185586.jpgsave_picture_185586.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Ahmad Jamal - Crystal (1987) Atlantic [FLAC|Lossless|tracks + .cue] <Post- Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185587.jpgsave_picture_185587.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Vigilance - Edge Of Time (1999) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185588.jpgsave_picture_185588.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:56216442FBDBF35A0FCB7C35B9B0BEDB6126D02F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185591.jpgsave_picture_185591.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:545475433F9C46FCE8D5798AD46D51E5E52E451C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185592.jpgsave_picture_185592.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:93F8FE6D8AE641BFE7699F7D30F8123CE60C0582
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185595.jpgsave_picture_185595.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Cascadea 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185596.jpgsave_picture_185596.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:F0BC426577AE17B6562E735013B184BB46BAF60A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185599.jpgsave_picture_185599.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Nir Nakav - The Nir-Death Experiment (2020) [MP3|320 Kbps] <Progressive Metal, D
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185600.jpgsave_picture_185600.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Ayakashi Triangle / Треугольник Аякаси [2023, TV, 12] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185603.jpgsave_picture_185603.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Insignium - In die Abgründe (2005) [FLAC|Lossless|image + .cue] <Black Metal, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185604.jpgsave_picture_185604.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:77B855F7824BEF54E614C0C844DBC8C3A9DDB3F2
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185607.jpgsave_picture_185607.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Vigilance - Secrecy (1997) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185608.jpgsave_picture_185608.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Hollow Haze - Between Wild Landscapes And Deep Blue Seas (2019) Japanese Edition
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185609.jpgsave_picture_185609.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Wardog - A Sound Beating (1999) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185612.jpgsave_picture_185612.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Ahmad Jamal - Live At The Montreal Jazz Festival (1985) 1986, Atlantic [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185614.jpgsave_picture_185614.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Without Warning - Believe (1995) [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185616.jpgsave_picture_185616.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:3B1BFC647DC703927A814CC3516B7DF838FEF92B
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185618.jpgsave_picture_185618.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ The Re-Stoned - Orange Session (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185621.jpgsave_picture_185621.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Without Warning - Making Time (1993) 2003 reissue [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185622.jpgsave_picture_185622.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:CC5EFF2AD6F39E0A6F3675B78044453DAD545C74
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185623.jpgsave_picture_185623.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:CACD636D69F0A4E9011173DD35B24E1A8D431A49
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185625.jpgsave_picture_185625.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:563DF8F7359DD73CC5AE2F4E978B2FCBF4C1F672
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185626.jpgsave_picture_185626.jpg" />
 </div>
 
 

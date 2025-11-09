@@ -6,7 +6,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49497.jpgsave_picture_49497.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Zazi - Compilation (2024) [MP3|320 Kbps] <Pop, Chanson, Pop Folk>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49498.jpgsave_picture_49498.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:40E3CA2DFE3E0A22E73B9DEFB1627F59D2C6A4DA
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49499.jpgsave_picture_49499.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:105FD166C5E329EFECBBB82E5F441DEC3A4085AC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49500.jpgsave_picture_49500.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:9E03C812AC4C549D08C226B9028D1D44153F0D13
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49501.jpgsave_picture_49501.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:4E323FA54DC28C043C803A035A40BA46F7BECD04
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49502.jpgsave_picture_49502.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:22F15297CA490C75BC7229F56C25891044E23F70
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49503.jpgsave_picture_49503.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Duane Eddy - Compilation (2024) [MP3|320 Kbps] <Rock'n'Roll, Instrumental Rock, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49504.jpgsave_picture_49504.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Gabriels - Fist of the seven stars act 4 Five Forces (2024) [MP3|320kbps|tracks]
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49505.jpgsave_picture_49505.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:36827532C82BE2EAE053678FF38297E7EA1D0A45
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49506.jpgsave_picture_49506.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Nothing But Thieves - Dead Club City (2024) Extended Deluxe [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49507.jpgsave_picture_49507.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:1955DD1009D318BE0B5F79E7A7A985092081FEE6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49508.jpgsave_picture_49508.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - Armin van Buuren - A State Of Trance 1182 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49509.jpgsave_picture_49509.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - DJ Hits 145 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49510.jpgsave_picture_49510.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Nikolo Kotzev - Nikolo Kotzev's Nostradamus (2024) The Rock Opera [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49511.jpgsave_picture_49511.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:A8E6C0E2F73329895C3D5AEF399807B205C6BFC9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49512.jpgsave_picture_49512.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ UltraSearch Professional 4.3.0.974 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49513.jpgsave_picture_49513.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Deep Purple - =1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49514.jpgsave_picture_49514.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:27024FD72F79A426191E275A15FF8BCDCFF1D777
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49515.jpgsave_picture_49515.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:D84CFAA89E22197D0602F2E5E176A4EE7DAF1358
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49516.jpgsave_picture_49516.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:483C755B0C26EC6B344EEBA27C0241579A4234D5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49517.jpgsave_picture_49517.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Compilation part 99 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49518.jpgsave_picture_49518.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:46286BCF249A7BE55DCF9CF196C63F044EDD8B91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49519.jpgsave_picture_49519.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:46286BCF249A7BE55DCF9CF196C63F044EDD8B91
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49520.jpgsave_picture_49520.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ SEREBRO - 11 (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49521.jpgsave_picture_49521.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:CE582789CD377E0AD5A28D682C03FB38A94A4002
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49522.jpgsave_picture_49522.jpg" />
 </div>
 
 

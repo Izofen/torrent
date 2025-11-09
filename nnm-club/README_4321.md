@@ -6,7 +6,7 @@ Skype 8.109.0.209 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134224.jpgsave_picture_134224.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ TechSmith Camtasia 2023 Studio 2023.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134225.jpgsave_picture_134225.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Grebz - MC Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134226.jpgsave_picture_134226.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Dan Berglund's - Tonbruket (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134227.jpgsave_picture_134227.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Chillout Cafe: Aperitif Edition (2012) [MP3|320 кб/с]<Downtempo, Chillou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134230.jpgsave_picture_134230.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Nature Wallpapers (25.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134231.jpgsave_picture_134231.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ HQ Wallpapers Perfect Women (25.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134232.jpgsave_picture_134232.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Xodo PDF - Ридер и Редактор 8.8.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134233.jpgsave_picture_134233.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Vivaldi 6.4.3160.47 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134235.jpgsave_picture_134235.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Animal Wallpapers (25.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134236.jpgsave_picture_134236.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Serj Tankian - Invocations (2023) Live [MP3|320 Kbps] <Classical, Modern>
 >>Концерты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134237.jpgsave_picture_134237.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ PDFCool Studio 3.30.121225 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134238.jpgsave_picture_134238.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Moon+ Reader Pro 8.6 (806001) Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134239.jpgsave_picture_134239.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Icon In Me - Head Break Solution (2011) [WavPack|Lossless]<Melodic Death Metal /
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134240.jpgsave_picture_134240.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Icon In Me - Head Break Solution (2011) [WavPack|Lossless]<Melodic Death Metal /
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134241.jpgsave_picture_134241.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Sexy Girls Pack Wallpapers (25.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134242.jpgsave_picture_134242.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Wondershare PDFelement 10.1.9.2557 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134243.jpgsave_picture_134243.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:CC13F714DD644970338CA2724C6C03B634A9037A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134244.jpgsave_picture_134244.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Moon+ Reader Pro 8.6 (806001) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134245.jpgsave_picture_134245.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Sexy Girls Wallpapers (25.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134246.jpgsave_picture_134246.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Fort Firewall 3.10.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134247.jpgsave_picture_134247.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ TG Pro (Temperature Gauge Pro) 2.89 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134249.jpgsave_picture_134249.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Skype 8.109.0.209 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134251.jpgsave_picture_134251.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:4F82F49C6D05BC011ABF44F5F38A8FA853905B61
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134252.jpgsave_picture_134252.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:A818EC14099B17F472564ECE4C4F55B5B83245C2
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134253.jpgsave_picture_134253.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Radio (Rádio) FM Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134255.jpgsave_picture_134255.jpg" />
 </div>
 
 

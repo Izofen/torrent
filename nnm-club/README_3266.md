@@ -6,7 +6,7 @@ Kingcrow - Hopium (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105277.jpgsave_picture_105277.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Baccara - Light My Fire (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105278.jpgsave_picture_105278.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ StartAllBack 3.8.5 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105279.jpgsave_picture_105279.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Jon Anderson and The Band Geeks - True (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105280.jpgsave_picture_105280.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:D7676A9D4D396105368C0ADA25FA8A4C36572889
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105281.jpgsave_picture_105281.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:F153FE0E9C324831B7B51D1A70F0AED0A572B0CF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105282.jpgsave_picture_105282.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:EC98532A7C941894C4779164A92717C6AA1DF145
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105283.jpgsave_picture_105283.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Vivaldi 6.8.3381.55 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105284.jpgsave_picture_105284.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ FastStone Capture 10.7 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105285.jpgsave_picture_105285.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:04A1F11DE54590291B7169D64F337D21B9E9E886
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105286.jpgsave_picture_105286.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:166EA897258A868643BD5D4A6200F68CE85CF095
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105287.jpgsave_picture_105287.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:F684209A8ED7B8B3FBEF8F5C6A32B4D2481FC99A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105288.jpgsave_picture_105288.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:70FB56A27870B5D31898EE128385CDE10ACBB977
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105289.jpgsave_picture_105289.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Firefox Browser 129.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105290.jpgsave_picture_105290.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ FontLab 8.4.1.8926 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105291.jpgsave_picture_105291.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Simone Simons - Vermillion (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105292.jpgsave_picture_105292.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Swiss & Die Andern - 10 Jahre Swiss Die Andern Best Of (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105293.jpgsave_picture_105293.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ SaffeK - I/U/WE/US (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105294.jpgsave_picture_105294.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Saving Them - Saving Them (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105295.jpgsave_picture_105295.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Mojo Thunder - The Infinite Hope (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105296.jpgsave_picture_105296.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Richard Clapton - The Great Escape (1982) Remaster, 2024, WM Australia[FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105297.jpgsave_picture_105297.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:99BB2EA4B2A94BB3425FB038AD2CFD147D00DD29
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105298.jpgsave_picture_105298.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ ACT! - Face to Face, Day by Day (2024) [FLAC 24/44|Lossless|WEB-DL|tracks] <Chil
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105299.jpgsave_picture_105299.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Zero Digital - Timeline (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105300.jpgsave_picture_105300.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Lesibu Grand - Triggered (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105301.jpgsave_picture_105301.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Hifi Sean & David McAlmont - Daylight (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105302.jpgsave_picture_105302.jpg" />
 </div>
 
 

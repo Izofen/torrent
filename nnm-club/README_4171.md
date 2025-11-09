@@ -6,7 +6,7 @@ StartAllBack 3.2.2 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129076.jpgsave_picture_129076.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 10 Enterprise LTSC 21H2 (Build 19044.1466) x64 by Brux [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129078.jpgsave_picture_129078.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Весенняя волна хитов к празднику (2012) [MP3|25
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129079.jpgsave_picture_129079.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:28C2E87A4A1D8A4A77DA8B655C7CBDAB14F0A473
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129080.jpgsave_picture_129080.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:B3CDC4052E727ECE60D91CFDEFFFA6C4183B353A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129082.jpgsave_picture_129082.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5266.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129084.jpgsave_picture_129084.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:2FAA7CFA61A3EB9B54452679C00F6AD25ADFD1A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129086.jpgsave_picture_129086.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:F248462702414413720DC0FEB583C6E636A08F49
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129088.jpgsave_picture_129088.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:0841BFE71AA02F1752342B81483C1E3A4046B0CE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129089.jpgsave_picture_129089.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:BFBBF6DF02EB1F6D326E7B4365C0CE9C53FB2969
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129090.jpgsave_picture_129090.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:C21EA72BA8E64DEB4C6EA255FDD48E6E76C30F1B
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129091.jpgsave_picture_129091.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129092.jpgsave_picture_129092.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:D769F77459AD089A56288024BB071157C70FBD2F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129094.jpgsave_picture_129094.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ WinISO Standard 6.1.0.4499 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129096.jpgsave_picture_129096.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Моя Прекрасная Леди (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129098.jpgsave_picture_129098.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - Buddah's Chill 5 (2015) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129101.jpgsave_picture_129101.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Sect - 4 albums (2007-2011) [FLAC|Lossless] <Neoclassical, Martial Industrial, E
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129102.jpgsave_picture_129102.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Buddah's Chill 2 (2013) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129103.jpgsave_picture_129103.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Buddah's Chill 7 (2016) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129105.jpgsave_picture_129105.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:CBFA26418821B3E7FA00E8DD96340D6685EDDC8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129106.jpgsave_picture_129106.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Marc Hartman - Jigzaw (2022) [AAC|~327 Kbps] <Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129107.jpgsave_picture_129107.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - The Very Best of Chill Out, Vol. 2 (2015) [AAC|~325 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129108.jpgsave_picture_129108.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - Ibiza Lounge (2022) [AAC|~298 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129109.jpgsave_picture_129109.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Slave To The System - Slave To The System (2006) [FLAC|Lossless|image + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129110.jpgsave_picture_129110.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Abyssus - Death Revival (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129111.jpgsave_picture_129111.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Bartender 4 v4.1.29 beta U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129112.jpgsave_picture_129112.jpg" />
 </div>
 
 

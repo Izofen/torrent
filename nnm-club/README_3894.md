@@ -6,7 +6,7 @@ Wing Pro 10 for Mac 10.0.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121705.jpgsave_picture_121705.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Astrix - Live @ Alternative Reality Set, Universo Paralello, Brazil (2024-01-05)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121706.jpgsave_picture_121706.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Aaron Diehl & The Knights - Zodiac Suite (2023) Mack Avenue [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121707.jpgsave_picture_121707.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:59CB367BDF5BB141E337F906960F9FFD721259C5
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121708.jpgsave_picture_121708.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:FC6EDDBD80D7A6AAB5F57B13FD62B3A468B74751
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121709.jpgsave_picture_121709.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Finder Windows 1.5.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121710.jpgsave_picture_121710.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:4904AEBAC7F092205DB67B1749105B559C6BE712
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121711.jpgsave_picture_121711.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Cartesian Ghost - Lux Arcana (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121712.jpgsave_picture_121712.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Bloodlost - Evil Origins (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121713.jpgsave_picture_121713.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:9FDC74049B1D36DFDD162EF92F4C345EF8F7BBB6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121714.jpgsave_picture_121714.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:3891F0BBC960C14410D0AB045413D6FEF3EA1520
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121715.jpgsave_picture_121715.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Soledriver - Return Me To Light (2023) Japanese Edition [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121716.jpgsave_picture_121716.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:0207FEFF5B903A32492C6938BED4C437A181E31C
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121717.jpgsave_picture_121717.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:F821E98EC412ED4E1606BDEF5BE84293ABDE1D0B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121718.jpgsave_picture_121718.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:EE3A6E64962BD9098E935E411F66CB1ABEBEA453
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121719.jpgsave_picture_121719.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.6.13 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121720.jpgsave_picture_121720.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Zampolit | Касик (Книга 1). Герильеро (2023) [MP3, Игорь
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121721.jpgsave_picture_121721.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:6B7BD98DAF0F52E12572F80BC584507DF09DC9B7
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121722.jpgsave_picture_121722.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Dj Eroticamila, Ibiza Sexy Chill Beats - Deep Sexual Satisfaction (2023) [FLAC|L
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121723.jpgsave_picture_121723.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:0BFAF2856CC5815CF8C8F4D259CEFA9D5F3AD07E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121724.jpgsave_picture_121724.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Slade - Rock n Roll Preachers (2024) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121725.jpgsave_picture_121725.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Beautiful Piano Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121726.jpgsave_picture_121726.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Ennio Morricone - Il Grande Silenzio / Un Bellissimo Novembre (1968) Reissue, 20
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121727.jpgsave_picture_121727.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:9098AE8F3F85C9B93609265AE862FC237C795575
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121728.jpgsave_picture_121728.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Winter Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121729.jpgsave_picture_121729.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:A987B9A026F34E14BFEEE2503FE5D7B8EB07BB85
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121730.jpgsave_picture_121730.jpg" />
 </div>
 
 

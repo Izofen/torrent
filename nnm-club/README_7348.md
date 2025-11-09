@@ -6,7 +6,7 @@ XMedia Recode 3.1.0.0 + Portable x32/x64 [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251421.jpgsave_picture_251421.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ XMedia Recode - Отличная программа для конвертиро�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251422.jpgsave_picture_251422.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:B32EF0D8AB17C685F0454EBCAE0B04E080565AE2
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251423.jpgsave_picture_251423.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:4F93DBC93D63CACAC902ADE2DE63D925B3F53EEB
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251425.jpgsave_picture_251425.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:AB94D4A0982040B0024044771B7541B265FE1E75
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251428.jpgsave_picture_251428.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:0E9BD85F281221D4DC875B00C49D87D0FA148719
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251429.jpgsave_picture_251429.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - Dash Berlin Top 20 May (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251430.jpgsave_picture_251430.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ DisplayFusion PRO 4.0.1 Beta 1 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251434.jpgsave_picture_251434.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Guillermo Sanchez - Perfect Panpipes.Celine Dion & Barbra Streisand (2001) [MP3|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251435.jpgsave_picture_251435.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:4E755E3A009CA8A1A486BC8DB3E319DB5DD1B9F5
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251437.jpgsave_picture_251437.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:CDE71E8E834DDE373FA8C4B9B1891DC51A360921
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251438.jpgsave_picture_251438.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:390FD2DF44E3934399810A37604461EB825F2346
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251441.jpgsave_picture_251441.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:390FD2DF44E3934399810A37604461EB825F2346
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251443.jpgsave_picture_251443.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ VA - Правильная Рэпчина Часть 8 (2012) [MP3|256 кб/с]<�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251446.jpgsave_picture_251446.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:30A22315AE267BCB4A91BECD329CF40961C30777
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251447.jpgsave_picture_251447.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:62E0CC4E3BF382E6DACAF58D46BE2B55A5AC5277
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251449.jpgsave_picture_251449.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:EB102AD47C1BDCD774413D18405EC0C2D4E4D31E
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251450.jpgsave_picture_251450.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:36A8E46A14D07B7F11694671D31DE4E1E04E7DA3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251451.jpgsave_picture_251451.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Download Master 5.12.7.1307 Final [Multi/Rus] RePack & Portable by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251452.jpgsave_picture_251452.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Download Master эффективно решает 3 главных пробле�
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251453.jpgsave_picture_251453.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Any DVD Converter Professional 4.3.8 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251454.jpgsave_picture_251454.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Blue Note Plays Bossa Nova (2008) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251457.jpgsave_picture_251457.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - Blue Note Plays Bossa Nova (2008) [FLAC|Lossless]<Jazz>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251458.jpgsave_picture_251458.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:F0E47208A2C60F5CA6F75F171E7CD723878942AD
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251460.jpgsave_picture_251460.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:D474F68B2FB097FCB4BB22C20DCD61C7ED7ABE5D
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251466.jpgsave_picture_251466.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ JoyoBox Cleaner 2012 4.0 [En,Ru] + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251467.jpgsave_picture_251467.jpg" />
 </div>
 
 

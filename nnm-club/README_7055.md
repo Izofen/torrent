@@ -6,7 +6,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241659.jpgsave_picture_241659.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5C6B7C00886A771589907E2FC35E4218608D8B41
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241660.jpgsave_picture_241660.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:74EDC5137F85A764B5219F4E3E440AEBB530B16C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241661.jpgsave_picture_241661.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Story of the Year - Tear Me To Pieces (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241662.jpgsave_picture_241662.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Institute-art, Игорь Сахаров | Солнечный лес + Цвет�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241664.jpgsave_picture_241664.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ VA - Beatport Electro House: Sound Pack #269 (2021) [MP3|320 Kbps] <House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241665.jpgsave_picture_241665.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ The Buggles - The Age Of Plastic (1980)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241666.jpgsave_picture_241666.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VA - Chill Оut Essential Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241667.jpgsave_picture_241667.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:A958FF1D7AB2FD97284EEE14120C8C48FADA0F19
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241668.jpgsave_picture_241668.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - DMC Dance Mixes 291 (2021) [MP3|320 Kbps] <House, Dance-pop, Tech House, Nu
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241669.jpgsave_picture_241669.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ AIMP 5.11 Build 2429 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241670.jpgsave_picture_241670.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:C6C27AA51C786C78F200BFAD743C46873B981118
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241671.jpgsave_picture_241671.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:3EA5DCAC9E9E349C95F322974FB687163057A6B1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241672.jpgsave_picture_241672.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Berlin - Count Three & Pray (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241674.jpgsave_picture_241674.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Magic Sort List 3.5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241675.jpgsave_picture_241675.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:FD75F4263044A9E2353594268C1C3937E19F25D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241676.jpgsave_picture_241676.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:11E07751C1FA8B11741D45A1F470BD074133FA9D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241677.jpgsave_picture_241677.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ TimePad, Ксения Голубович | Предмет искусства: о
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241678.jpgsave_picture_241678.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:E316D5D13478B83E76589B980B491489CBAA073A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241679.jpgsave_picture_241679.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Andrew Cyrille Quartet - The Declaration of Musical Independence (2016) ECM [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241680.jpgsave_picture_241680.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:E54391EFEA4B8BF517DB9F7FCF2E17DB40055CCB
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241681.jpgsave_picture_241681.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ IObit Uninstaller Free 12.4.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241682.jpgsave_picture_241682.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Piezo 1.7.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241683.jpgsave_picture_241683.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:751A4966B0CAEF071D337D745BD890742A8CB8E8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241684.jpgsave_picture_241684.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Dave Lambert & Jon Hendricks - Sing & Swing Along / Evolution of the Blues Song 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241685.jpgsave_picture_241685.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - DMC Dance Mixes 291 Ibiza (2021) [MP3|320 Kbps] <House, Dance-pop, Tech Hou
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241686.jpgsave_picture_241686.jpg" />
 </div>
 
 

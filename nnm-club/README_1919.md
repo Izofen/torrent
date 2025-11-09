@@ -6,7 +6,7 @@ Ms. Holmes 6: Letter M (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50251.jpgsave_picture_50251.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wondershare PDFelement 10.4.6.2776 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50252.jpgsave_picture_50252.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EC59A963C029F12B3B2E6815B79B1F4502968711
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50253.jpgsave_picture_50253.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BB79B5D7D6DB2A4FE8439521B0EC66F8351D78B8
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50254.jpgsave_picture_50254.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Topaz Video AI 5.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50255.jpgsave_picture_50255.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1163B0ACC62B140DD276A3185100493456756170
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50256.jpgsave_picture_50256.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:379C12DB83E29F60FE9FD108A4B59AE502E4A905
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50257.jpgsave_picture_50257.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Firefox Browser ESR 115.13.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50258.jpgsave_picture_50258.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:C398D51870B8E363D1B3E5666452C6EB93284FEA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50259.jpgsave_picture_50259.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Bee Gees - 4 Альбома (1968-1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50260.jpgsave_picture_50260.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ R-Studio Network 9.4 Build 191338 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50261.jpgsave_picture_50261.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ v2rayN 6.51 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50262.jpgsave_picture_50262.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:46CA504DFB0DBE71559FE729D800E41C9FF39072
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50263.jpgsave_picture_50263.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Internet Download Manager 6.42 Build 14 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50264.jpgsave_picture_50264.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:A0D02B8112CAD85D6C17BBEBA03BF23479789BFF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50265.jpgsave_picture_50265.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Topaz Photo AI 3.1.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50266.jpgsave_picture_50266.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:D786E64260D6D5196AA6B1210FE49D7FD54FFE55
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50267.jpgsave_picture_50267.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:48989931BE17701D9B2023F37AD28B6B90A30A35
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50268.jpgsave_picture_50268.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Tabletop Simulator (2015) [En] (13.1.1/dlc) Scene Doge [VR]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50269.jpgsave_picture_50269.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Music News vol.400 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50270.jpgsave_picture_50270.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ The Riftbreaker (2021) [Ru/Multi] (11738015/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50271.jpgsave_picture_50271.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Topaz Photo AI 3.1.1 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50272.jpgsave_picture_50272.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:E382586810029D8E20EB5ADFFCD20D2161F98230
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50273.jpgsave_picture_50273.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:9114CAAA6FF71B635253FF8568B09E14C44FD990
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50274.jpgsave_picture_50274.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Topaz Video AI 5.2.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50275.jpgsave_picture_50275.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:F463011CA66EDE8A77B9A78E79EDC26F5F6B2517
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50276.jpgsave_picture_50276.jpg" />
 </div>
 
 

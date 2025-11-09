@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149801.jpgsave_picture_149801.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6A6FF74AE2B601FA91493A786D4DA2EB647386B0
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149802.jpgsave_picture_149802.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Yvon Rioland & Jean-Marie Hauser - Discoritmo (1979) LP [MP3|320 Kbps] <Electron
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149803.jpgsave_picture_149803.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:BFF82C30AE602DCBC937E94E51094BD19FCFDEB2
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149804.jpgsave_picture_149804.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - New Year’s Eve Songs - NYE Party 2022 (2021) [AAC|~324 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149805.jpgsave_picture_149805.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:3895CCF2BB833ADFC93C2447C3844607667122B2
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149806.jpgsave_picture_149806.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:1612E40F556517831EA34B3BF145081C370479B0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149807.jpgsave_picture_149807.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:1612E40F556517831EA34B3BF145081C370479B0
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149810.jpgsave_picture_149810.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:CA60D5CE3D101DF9A5484629350AC98057EEA756
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149811.jpgsave_picture_149811.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Distemper - На троих (2020) [MP3|320 Kbps] <Ska Punk, Acoustic>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149812.jpgsave_picture_149812.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ TeamViewer 11.0.53254 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149813.jpgsave_picture_149813.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Wise Memory Optimizer 3.6.3.107 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149814.jpgsave_picture_149814.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:593A88C0B139E1E6A5B0B39FD60BB513172740F1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149815.jpgsave_picture_149815.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:593A88C0B139E1E6A5B0B39FD60BB513172740F1
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149816.jpgsave_picture_149816.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Cockos REAPER for Mac v6.43  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149817.jpgsave_picture_149817.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:BD36D0F907829E85108E77D4D2C9BC89079F2B75
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149818.jpgsave_picture_149818.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:F12ADEB2688EE2DDF3175B26CCF0E15545279794
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149819.jpgsave_picture_149819.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Maxon ZBrush 2024.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149820.jpgsave_picture_149820.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:8CB7D8F44DD5CB530F42AEF999CD7B8C01497DB9
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149821.jpgsave_picture_149821.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:3FF42A7954911AD9A608C34F697C783A01FB8EE6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149823.jpgsave_picture_149823.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Kreator - Love Us Or Hate Us - The Very Best Of The Noise Years 1985-1992 Years 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149824.jpgsave_picture_149824.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:1032E001D460BE0F2BB4B780A6A6AC463DD9184F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149825.jpgsave_picture_149825.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ DxO PhotoLab 5 ELITE Edition 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149826.jpgsave_picture_149826.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:44F86D7CDCE9DE9F3EBF839B7DF67EE0E2051A96
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149827.jpgsave_picture_149827.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:7EA145919443D0D84351BEDFB36BE1AF63CCCEDD
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149828.jpgsave_picture_149828.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Adobe Dreamweaver CC 2015 (v16.1.0) x86-x64 RUS/ENG Update 2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149830.jpgsave_picture_149830.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Neon Abyss (2020) [Ru/Multi] (1.5.0.0src.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202170.jpgsave_picture_202170.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FAR: Lone Sails (2018) [Ru/Multi] (1.31) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202176.jpgsave_picture_202176.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Wreck (2023) [Multi] (1.0.0) License GOG [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202177.jpgsave_picture_202177.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (1.01.53364) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202192.jpgsave_picture_202192.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bleak Haven (2025) [Ru/Multi] (1.2.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202221.jpgsave_picture_202221.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Survival & Horror: Hangman's Rope (2023) [Ru/En] (Build 11602258) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202222.jpgsave_picture_202222.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Adventure of Samsara (2025) [Multi] (1.0.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202234.jpgsave_picture_202234.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Tomb Raider (2013) [Ru/Multi] (Build 9573671/dlc) Repack Other s [GOTY Edition /
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202237.jpgsave_picture_202237.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Sunrider Legends Tactics (2025) [Multi] (1210/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202240.jpgsave_picture_202240.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Unto The End (2020) [Ru/Multi] (1.61) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202243.jpgsave_picture_202243.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202244.jpgsave_picture_202244.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Through the Darkest of Times (2020) [Ru/Multi] (1.04.03.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202246.jpgsave_picture_202246.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Queen's Wish: The Conqueror (2019) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202250.jpgsave_picture_202250.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Undead Wilderness: Survival (2023) [Ru/Multi] (0.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202282.jpgsave_picture_202282.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Grim Guardians: Demon Purge (2023) [Multi] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202291.jpgsave_picture_202291.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Remorse: The List (2022) [Multi] (1.1.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202295.jpgsave_picture_202295.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (Build 88888888/dlc) Repack
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202298.jpgsave_picture_202298.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Sherlock Holmes and The Hound of the Baskervilles / Шерлок Холмс и �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202315.jpgsave_picture_202315.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Primitive Hearts (2023) [Multi] (v1/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202336.jpgsave_picture_202336.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Void Scrappers (2022) [Multi] (1.32) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202346.jpgsave_picture_202346.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202371.jpgsave_picture_202371.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Terminus: Zombie Survivors (2021) [Ru/Multi] (1.2.0.108/dlc) Repack FitGirl [Com
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202372.jpgsave_picture_202372.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ GODBREAKERS (2025) [Ru/Multi] (Build 20302905/dlc) Repack Let'sРlay [Juice Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202375.jpgsave_picture_202375.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Midnight Scenes: The Highway (2020) [Ru/Multi] (1.27a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202384.jpgsave_picture_202384.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Hordelord (2025) [Ru/Multi] (16) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202394.jpgsave_picture_202394.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Prototype 2 (2012) [Ru] (Build 19788008/dlc) Repack Yaroslav98 [Radnet Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202395.jpgsave_picture_202395.jpg" />
 </div>
 
 

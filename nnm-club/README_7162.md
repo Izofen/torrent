@@ -6,7 +6,7 @@ VA - Mellow Classics (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245162.jpgsave_picture_245162.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:275AF1AD4B24E59384BB8EFA03298F63A37BD2A0
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245163.jpgsave_picture_245163.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C9A6CDFF5F629C0BBBD664FDAC0F19D23D1DDBB7
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245164.jpgsave_picture_245164.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:5E098A0DFEA2DBC3E08166E924F718D62C05CF95
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245165.jpgsave_picture_245165.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Apeaksoft Blu-ray Player for Mac 1.1.70 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245166.jpgsave_picture_245166.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:4CDE97CF0D44A02414106A26BEDC8F0556993F0D
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245167.jpgsave_picture_245167.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - The Electro Swing Revolution (2011) [AAC|~305 Kbps] <Electro Swing, Nu Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245168.jpgsave_picture_245168.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Roma Vayspapir - Traumerei (Reverie) (1988) [FLAC 2.0|48/24|image +.cue|MC-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245169.jpgsave_picture_245169.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:0C8337BCB9053E9CBE0BC3BD8A93930889A4B12B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245170.jpgsave_picture_245170.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:524EF08ED429F475F11DB00C20A8284BB84E8C18
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245172.jpgsave_picture_245172.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Creative Convert 1.4.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245173.jpgsave_picture_245173.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:3FA602133512F264A1A5634AFF38D02A2381F7B6
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245174.jpgsave_picture_245174.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Things 3 v3.13.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245175.jpgsave_picture_245175.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:124788E47CD42BFACE59D4C52C1839B7AF178E9C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245176.jpgsave_picture_245176.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Darkhold - Tales from Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groove M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245177.jpgsave_picture_245177.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:42D4EB9EA89CEBFC0ED6E694357C755080DF43E2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245178.jpgsave_picture_245178.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:101F205E4D6EB8012D66527B172763FF7487CA3B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245179.jpgsave_picture_245179.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ GM CHM Reader Pro for Mac 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245180.jpgsave_picture_245180.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:ADCB6AE20CD7769091542A230CCB2DBEC23952CF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245181.jpgsave_picture_245181.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ King Moonracer - Hello To Kings (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245182.jpgsave_picture_245182.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:A32B545B7F85C4AE1969C923487131F335B66FDE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245183.jpgsave_picture_245183.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Fort Firewall 3.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245184.jpgsave_picture_245184.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Oliva - Raise the Curtain (2013) Limited Edition Digipak [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245185.jpgsave_picture_245185.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:4839E4FA26A53CC6C160A5A257430434C5D51BCA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245186.jpgsave_picture_245186.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:C4F730FC9B81846677A4AF5C50D0C28D48230CE5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245187.jpgsave_picture_245187.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ The Twins - Hold on to your Dreams (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245188.jpgsave_picture_245188.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185277.jpgsave_picture_185277.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7454AAE194D485B33C4FB5365BE7D9540B0F9439
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185278.jpgsave_picture_185278.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A98DB692FD2DF3416841EB5D1E278C80F1F1E353
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185279.jpgsave_picture_185279.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:7127A10D13EFCE317998C79AE1C2D7344C2EA7EC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185281.jpgsave_picture_185281.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:DBF9E8798735A910D4DC64DA9A4AE06807E10F92
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185282.jpgsave_picture_185282.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:E49C1A6857C38961CCF5E713B6D035ADDE66ACE8
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185284.jpgsave_picture_185284.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F4F2EF3F105CC66DBCDFE89652FE802814CC6465
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185285.jpgsave_picture_185285.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:94E3AF8887D81AFA10F0C29C566CEEF1F156F4F9
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185287.jpgsave_picture_185287.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:4284BEA11C7116E433DCB0C6D0F21C0FF4562B9A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185288.jpgsave_picture_185288.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:43BBD8482B0B68AC160349AE836422DE6DAC1337
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185290.jpgsave_picture_185290.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:1075B3A9A14E37B2DC70E150589D16DBDF325AFB
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185292.jpgsave_picture_185292.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Illuminate - Discography (1996-2019) [FLAC|Lossless|image + .cue] <Darkwave, Got
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185295.jpgsave_picture_185295.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:ACEF0E9F8DDD415B84006421EAED53E43BB801F5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185296.jpgsave_picture_185296.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Sister Princess | Сестры-принцессы [ТВ-1] [2001, TV, 26 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185298.jpgsave_picture_185298.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Topaz Photo AI 2.0.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185300.jpgsave_picture_185300.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Vov Sticky Notes 8.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185302.jpgsave_picture_185302.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Relax Fall 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185304.jpgsave_picture_185304.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Sister Princess: Re Pure | Сестры-принцессы [ТВ-2] [2002, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185307.jpgsave_picture_185307.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ OCCT 12.1.7 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185308.jpgsave_picture_185308.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (1911) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185309.jpgsave_picture_185309.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:FCCC1B4CD0E96BD39964C1D56EAF964DA0E182F8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185312.jpgsave_picture_185312.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:96A63C9735EC0F8832854BB99550A9D6794A4763
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185313.jpgsave_picture_185313.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ CudaText 1.118.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185314.jpgsave_picture_185314.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:B29AAE23ED4B67813A715607D2AE04FF295766E5
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185317.jpgsave_picture_185317.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:E94491DF2965C65B02BEA4E809A3031F52624663
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185318.jpgsave_picture_185318.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:8454C38C9B718675D55C6A7BDF82F7BA394D8FE1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185319.jpgsave_picture_185319.jpg" />
 </div>
 
 

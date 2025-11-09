@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251014.jpgsave_picture_251014.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251018.jpgsave_picture_251018.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:245211230D7EDE7BD572C376D6D713DC7FA389E4
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251021.jpgsave_picture_251021.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E03989D2950A2B2B9FDB3945B394693C984927F1
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251023.jpgsave_picture_251023.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E03989D2950A2B2B9FDB3945B394693C984927F1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251029.jpgsave_picture_251029.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E03989D2950A2B2B9FDB3945B394693C984927F1
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251030.jpgsave_picture_251030.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:E03989D2950A2B2B9FDB3945B394693C984927F1
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251033.jpgsave_picture_251033.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:97C2CE89D6D1E4B91D2198FE1C76BEE09D00BCD8
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251036.jpgsave_picture_251036.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:97C2CE89D6D1E4B91D2198FE1C76BEE09D00BCD8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251041.jpgsave_picture_251041.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Mozilla обвинила Microsoft в нечестной конкуренции
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251042.jpgsave_picture_251042.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Microsoft в операционной системе Windows 8 предоста�
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251043.jpgsave_picture_251043.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:758E0E2D77FAA523E4497DA8832D236FCAC366D9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251044.jpgsave_picture_251044.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:C0D9A230C39B71EB6BC1403ED6219EF02E635A3B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251045.jpgsave_picture_251045.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:C0D9A230C39B71EB6BC1403ED6219EF02E635A3B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251046.jpgsave_picture_251046.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Apple Safari 5.1.7 Final [Русский]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251048.jpgsave_picture_251048.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Safari - самый скоростной браузер в мире от кор�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251049.jpgsave_picture_251049.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:7F4421B1C07E4ED8558325C40EF9AEF4C946120D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251050.jpgsave_picture_251050.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Warlock: Master of the Arcane [Ru] (L) 2012 l RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251052.jpgsave_picture_251052.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Warlock: Master of the Arcane - новая стратегическая игра
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251054.jpgsave_picture_251054.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:D553596D2A2DE3454A2B396E624A8B8938B6DC8D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251055.jpgsave_picture_251055.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ WPI for Windows 7 v.28.04.2012 by UZEF 28.04.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251057.jpgsave_picture_251057.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Lego Indiana Jones 2: The Adventure Continues / LEGO Indiana Jones 2: Прикл
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251060.jpgsave_picture_251060.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:615A6E99038440E59F1EC1418695C358A5BA32D4
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251061.jpgsave_picture_251061.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:A146820A032BAF7D39B08A7F49AB83EE60A200F4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251062.jpgsave_picture_251062.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:1864AC54B1B5315405E691CC31E4CEFA99365B35
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251065.jpgsave_picture_251065.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Exploration Of Dreams (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251068.jpgsave_picture_251068.jpg" />
 </div>
 
 

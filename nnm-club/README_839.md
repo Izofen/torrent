@@ -6,7 +6,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22153.jpgsave_picture_22153.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:06DE9A71A41ADFE75C7DEBB2586E03AA362FAD3C
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22154.jpgsave_picture_22154.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F3F44008AEBCC4570A7B8B72C1ADF69359858403
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22155.jpgsave_picture_22155.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Vintage Jazz Ballads: Timeless Romantic Standards (2025) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22156.jpgsave_picture_22156.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:6BB6B7A81112530BBE32094512C0B882C26FF93F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22157.jpgsave_picture_22157.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:00BD5F374C29E889D2D6C7659265955EA1FA6BA2
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22158.jpgsave_picture_22158.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Now Yearbook '80 (2022) 4 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Regga
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22159.jpgsave_picture_22159.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:B33333E2A251B00D5D4DA90E6701A248ACD247A5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22160.jpgsave_picture_22160.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:3AD6A436463DE078E54626EDB5898800E10448BB
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22161.jpgsave_picture_22161.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Electronic Music Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22162.jpgsave_picture_22162.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:7B616842DE0232AB92931FD655E162289A084C44
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22163.jpgsave_picture_22163.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:9FE285909C03F3F10A2D603D90F56984448A77D5
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22164.jpgsave_picture_22164.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:881AD62C82A664D5EC59575CF2B3FC91BFAF81FE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22165.jpgsave_picture_22165.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:E308DD77489316C9C339DEAB4449AFF7BB80EDCF
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22166.jpgsave_picture_22166.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ OrcaSlicer 2.3.0 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22167.jpgsave_picture_22167.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Wondershare UniConverter 16.4.0.192 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22168.jpgsave_picture_22168.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ AIDA64 v2.08 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22169.jpgsave_picture_22169.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:EE293DA4C54FFC0F28FADC4EC839F479CAA7355B
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22170.jpgsave_picture_22170.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:204FBBAA13E7ABBB89161E61A138A5718BFB1C7E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22171.jpgsave_picture_22171.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:0ABE941527F40EF066E1AB28913F13F9C78F149B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22172.jpgsave_picture_22172.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:10A0B4AAD17B6D8D027891F04261813B3E7F0FCA
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22173.jpgsave_picture_22173.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:7F1612DFAC7B2066AF9591F1C1ADF7EC1932D9F0
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22174.jpgsave_picture_22174.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ RisohEditor 5.8.7 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22175.jpgsave_picture_22175.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:90656C547B069E640D45FE3391EFF4AE7CF38D48
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22176.jpgsave_picture_22176.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:4AA983064C1FC150890489C61DE4D5A07FB6A963
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22177.jpgsave_picture_22177.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ AlimkhanOV A. - Cover Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22178.jpgsave_picture_22178.jpg" />
 </div>
 
 

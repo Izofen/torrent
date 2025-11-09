@@ -6,7 +6,7 @@ TextSoap 9.4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118400.jpgsave_picture_118400.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A4BE43F475D653E44BB27E6E5DF65F06789278BE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118401.jpgsave_picture_118401.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Skype 8.112.0.210 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118402.jpgsave_picture_118402.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A979CFFE033B110D38401FEF04135C406F244D66
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118403.jpgsave_picture_118403.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Iko - Album Three the Music in Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118404.jpgsave_picture_118404.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Middle for Mac 1.8.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118405.jpgsave_picture_118405.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Abdullah Ibrahim - Voice Of Africa (1988) 1998, Camden [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118406.jpgsave_picture_118406.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Sticky Notes: Easy Note Taking 2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118407.jpgsave_picture_118407.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Tinderbox 9 v.9.7.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118408.jpgsave_picture_118408.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ XentriX - Studio Albums (6 releases) (1989-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118409.jpgsave_picture_118409.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Bolt Action and the Misfires - Chasin' Down the Rats (2024) [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118410.jpgsave_picture_118410.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Voodoo Walters - How to Be Happy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118411.jpgsave_picture_118411.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ IIWishIV - A Guiding Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118412.jpgsave_picture_118412.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Znora - Znora (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118413.jpgsave_picture_118413.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Lacuna Coil - In a Reverie (1999) Reissue, 2019, Century Media [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118414.jpgsave_picture_118414.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ No More Cries - Social Despair (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118415.jpgsave_picture_118415.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Sonic Storm - Keys to Your Ruin (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118416.jpgsave_picture_118416.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:D8E546B429FB1CDC3952CBC74C0F703EBD52967A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118417.jpgsave_picture_118417.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Perfectly Clear WorkBench 4.6.0.2638 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118418.jpgsave_picture_118418.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Skype 8.112.0.210 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118419.jpgsave_picture_118419.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Fort Firewall 3.11.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118420.jpgsave_picture_118420.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:8B48958BA06E958C1D387C3B8F0BCB815016AA4E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118421.jpgsave_picture_118421.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ K-Lite Codec Pack Update 18.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118422.jpgsave_picture_118422.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:BE3FEFAF9C19310E619103E7F0CD68A3C89EE97D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118423.jpgsave_picture_118423.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:38146A7C5F01D96F179D8A8526A2DF4DB0275B3D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118424.jpgsave_picture_118424.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ ff-Works for Mac 4.0.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118425.jpgsave_picture_118425.jpg" />
 </div>
 
 

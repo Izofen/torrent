@@ -6,7 +6,7 @@ Lew Tabackin - Tenority (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128085.jpgsave_picture_128085.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Phil Woods & Lew Tabackin - Phil Woods / Lew Tabackin (1980) 1998, Evidence [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128086.jpgsave_picture_128086.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:643DEF84FE4295813D7D21E1379741EC06C6FF37
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128087.jpgsave_picture_128087.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:BA581FA6DBF75C29F77732C3395D810EF090A421
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128088.jpgsave_picture_128088.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Photo Lab 3.12.82 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128089.jpgsave_picture_128089.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:69C57654F7E3B05C158E5563CF14334447BB37EE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128090.jpgsave_picture_128090.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - New Rock Pulse (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128091.jpgsave_picture_128091.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:9D121B50D5AE995225116B65808DE20703B27061
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128092.jpgsave_picture_128092.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Photo Lab 3.12.82 Mod by LEEAPK [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128093.jpgsave_picture_128093.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:634B87736E51918CFD6F53D5ABE47711BEE9071D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128094.jpgsave_picture_128094.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Rah Band - Touchdown (Live at The Jazz Café, London, 2022) (2023) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128095.jpgsave_picture_128095.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:2CFE16A7A442C411C8ABE2A6325AAD4D437ECE3A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128096.jpgsave_picture_128096.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ System Of A Down - Steal This Album! (2002) [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128097.jpgsave_picture_128097.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VA - Abora Recordings: Best of 2022 (Mixed by Ori Uplift) (incl. Extended Mixes)
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128098.jpgsave_picture_128098.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ VA - Chilly Ambient Smooth Jazz Lounge Playlist (2023) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128099.jpgsave_picture_128099.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:EBBA409E92D44493C8BC40255E5223FEFC25F49B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128100.jpgsave_picture_128100.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Siobhan Donaghy - Revolution In Me (2003) 20th Anniversary Edition, 2023, London
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128101.jpgsave_picture_128101.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:A926792776A8469571A27D3CD45981407F96E796
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128102.jpgsave_picture_128102.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:1102D866AF5C384AA524B6B6C0321AB7F748BD52
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128103.jpgsave_picture_128103.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:903B92144C311703EDAE0D237BD959FB02CD205A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128104.jpgsave_picture_128104.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:E9899C08BCCD4B08BA66042F55874E6E0FB45EEC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128105.jpgsave_picture_128105.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:599750A736D7A724543D674DC6F999856E22E774
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128106.jpgsave_picture_128106.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:E93944ACAB653F8A535E81A816244A40FAA474B9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128107.jpgsave_picture_128107.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:EC6581E9ED0E5F16B4B3676B9036E6A28A0FDAE6
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128108.jpgsave_picture_128108.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:F671E5218792AB9BC30348AC9911DF0733CE39BC
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128109.jpgsave_picture_128109.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:A21F53172D7DB56602CFC0258BB79BA32385C6CA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128110.jpgsave_picture_128110.jpg" />
 </div>
 
 

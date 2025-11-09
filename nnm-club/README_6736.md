@@ -6,7 +6,7 @@ Al Staehely - Somewhere in West Texas (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231654.jpgsave_picture_231654.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CB1B3892CC55B0ECC742C3FED9475C291E74E31C
 >>Футбол
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231655.jpgsave_picture_231655.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8DB342B63FCE4F7BFFD36B31DD9206C7D04E41F0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231656.jpgsave_picture_231656.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Khalil Turk & Friends - Turkish Delight - Volume 2 (2023) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231658.jpgsave_picture_231658.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:8300BB19C38941759E1DC66A93F50D01565E76E1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231659.jpgsave_picture_231659.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ RTG. Парашютный спорт. Жемчужины России (2013) HDT
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231660.jpgsave_picture_231660.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:667EDBB5DC3A9FDDF2E125417A76C15E0D151B20
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231662.jpgsave_picture_231662.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:5547ED19ED42AB0CD0B86E227C7D995E9F69D89B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231663.jpgsave_picture_231663.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Eddie Gomez - Per Sempre (2009) 2012, BFM Jazz [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231665.jpgsave_picture_231665.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ YT Downloader 9.1.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231666.jpgsave_picture_231666.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Sacrilegious Impalement - IV - Infinite Victor (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231667.jpgsave_picture_231667.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ FireAlpaca 2.11.3 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231668.jpgsave_picture_231668.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:DAD7C72416DFC1F3B7A3790AC728E112182CFB8F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231670.jpgsave_picture_231670.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:2E994DD42FA7F7076581695C4CE04167C49B51E0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231672.jpgsave_picture_231672.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ ImageRanger Pro Edition 1.9.4.1865 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231673.jpgsave_picture_231673.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ MediaHuman YouTube Downloader 3.9.9.84 (1507) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231674.jpgsave_picture_231674.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Saint Deamon - League of the Serpent (2023) [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231675.jpgsave_picture_231675.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Glary Disk Cleaner 5.0.1.293 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231676.jpgsave_picture_231676.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Ben Webster - The Classic Collaborations (1958 - 1963) 4CD, 2021, Enlightenment 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231679.jpgsave_picture_231679.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Findroid | Гнев Империи (Книга 2) (2023) [MP3, Никита Ст
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231680.jpgsave_picture_231680.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Hank Crawford - Night Beat (1989) Milestone [FLAC|Lossless|tracks + .cue] <Soul-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231681.jpgsave_picture_231681.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Kickrox - THE NOTE(s) (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, N
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231682.jpgsave_picture_231682.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Any Second - Sünde : Mensch (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231685.jpgsave_picture_231685.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Forces United - Golden Ballads (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231686.jpgsave_picture_231686.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Sandboxie 5.64.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231687.jpgsave_picture_231687.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Avi Rosenfeld - Lions II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231688.jpgsave_picture_231688.jpg" />
 </div>
 
 

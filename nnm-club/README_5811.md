@@ -6,7 +6,7 @@ Streetlight - Ignition (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181550.jpgsave_picture_181550.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ iZotope - Neutron 4 4.3.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181551.jpgsave_picture_181551.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bullant - Late Life Circ (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno, E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181553.jpgsave_picture_181553.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:C311F82582F5A38D8E4C7D93E6619BD3032F0B81
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181554.jpgsave_picture_181554.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:4B6B8581DE6F2C61606A798FFDB45658314CBE38
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181556.jpgsave_picture_181556.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Fat Freddy's Drop & Kings - Blackbird Returns (2023) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181557.jpgsave_picture_181557.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:CCDAF022DB4A027A504AD33A8ECE9A1A068B0BAC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181559.jpgsave_picture_181559.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ B.O.W - Chasing Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181560.jpgsave_picture_181560.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Skagarack - Heart And Soul (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AO
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181562.jpgsave_picture_181562.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:67FFD6C0D9FFBBAD7C28DFD5A2C47EF24670696C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181563.jpgsave_picture_181563.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:910F1C9416D7D2AB4A7DE77A490319E9C6250359
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181564.jpgsave_picture_181564.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ The Hirsch Effekt - Urian (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mathcore
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181566.jpgsave_picture_181566.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ TreeSize Professional 8.5.2.1715 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181568.jpgsave_picture_181568.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Psychework - Spark of Hope (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181570.jpgsave_picture_181570.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Kaoru Nakasone - Fragrance (2000) M&I [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181574.jpgsave_picture_181574.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Sense V2 Flip Clock & Weather 6.20.5 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181575.jpgsave_picture_181575.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:33D774544DAAB5FDA67E8F50D2E2834F204FA37B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181577.jpgsave_picture_181577.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Velocidad 22 - Alcohol y gasolina (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181579.jpgsave_picture_181579.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:BC79DA38E741D82767B15635A85AF5C5DF752ECA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181582.jpgsave_picture_181582.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Surrender The Crown - IV - The Healing (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181583.jpgsave_picture_181583.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Sleeping With Sirens - Complete Collapse (2022) Deluxe Edition [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181585.jpgsave_picture_181585.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ The Thelonious Monk Quartet - Monk's Dream (1962) 2014, Original Recordings Grou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181588.jpgsave_picture_181588.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Coal and Steel - Miners for Real (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181591.jpgsave_picture_181591.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Dyecrest - Once I Had A Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181595.jpgsave_picture_181595.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Destabilizer - Violence Is The Answer! (2023) [FLAC|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181597.jpgsave_picture_181597.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Dyecrest - Once I Had A Heart (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181600.jpgsave_picture_181600.jpg" />
 </div>
 
 

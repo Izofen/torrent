@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87346.jpgsave_picture_87346.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Steinberg | Руководство пользователя HALion 3 (русск
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87347.jpgsave_picture_87347.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AEFE0FD833121622BDE03F0938C52B4309537CD3
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87348.jpgsave_picture_87348.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Enable decoding of indexed textures (using (   Читать дальше...   )
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87349.jpgsave_picture_87349.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Музыка для отличного настроения (2012) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87351.jpgsave_picture_87351.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:9DE4EA9C80FD71E931BF723590B466245882A07C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87352.jpgsave_picture_87352.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - Лучшие Песни Русского Радио 5 (2012) [MP3|256-320 k
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87354.jpgsave_picture_87354.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Robert Palmer - The Ultimate Collection 3CD (2003) Digitally Remastered [FLAC|Lo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87356.jpgsave_picture_87356.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Europa Plus Включи Весь Мир! Весна 50/50 (2012) [MP3|128 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87358.jpgsave_picture_87358.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ VA - В Машину! Зарубежный (2012) [MP3|256 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87361.jpgsave_picture_87361.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:7D26B0935A3DE7DCE366E3FF866BE664CB8BA180
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87362.jpgsave_picture_87362.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:A0ED1AD04D4905771221D22EE315C242F84BE67D
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87365.jpgsave_picture_87365.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:D93CDC9A7C32951DDB3B9BEC92C21A6E8F103EB4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87366.jpgsave_picture_87366.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VA - The Best Of Lounge Music (2012) [MP3|320 kbps]<Chillout | Lounge>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87368.jpgsave_picture_87368.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:6EEC6F23D3845AE38C1B84EB2BF5F40445321928
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87370.jpgsave_picture_87370.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:610FAEC54F6308967F6FEDBE2D04F42DCFB54620
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87372.jpgsave_picture_87372.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - 20 шедевров русского романса (1999) [FLAC|Lossless]<
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87373.jpgsave_picture_87373.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - 20 шедевров русского романса (1999) [FLAC|Lossless]<
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87375.jpgsave_picture_87375.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:38EAF69F15798CFBA789C88A9BAE4F937C00F54F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87378.jpgsave_picture_87378.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Wolfgang Amadeus Mozart - Requiem in D minor, K 626 Transposition for a string q
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87381.jpgsave_picture_87381.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:DB17F687EB2C616C9E9D83C558DADDE5D0EA0CAB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87384.jpgsave_picture_87384.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:BF7471E0515A5AFC0BBBD2ECFD0126BFED2CF284
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87389.jpgsave_picture_87389.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:BF7471E0515A5AFC0BBBD2ECFD0126BFED2CF284
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87390.jpgsave_picture_87390.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:BF7471E0515A5AFC0BBBD2ECFD0126BFED2CF284
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87392.jpgsave_picture_87392.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Brick of Consciousness: Dorian Gray Syndrome. Collector's Edition / Край с�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87394.jpgsave_picture_87394.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ magnet:?xt=urn:btih:630E07C49C4569FF51ABFF9B6E4F035BF3E70DF0
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87397.jpgsave_picture_87397.jpg" />
 </div>
 
 

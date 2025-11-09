@@ -6,7 +6,7 @@ Internet Download Manager 6.41 Build 10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245032.jpgsave_picture_245032.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wise Registry Cleaner Pro 10.8.2.703 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245033.jpgsave_picture_245033.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8E2259A0626C234B282B97C00D0559E52F38333A
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245034.jpgsave_picture_245034.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C6F875D252C03D3F141EA04C0E6341710D474021
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245035.jpgsave_picture_245035.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Lana Del Rey - Did you know that there's a tunnel under Ocean Blvd (2023) [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245036.jpgsave_picture_245036.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Keep It 1.11.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245037.jpgsave_picture_245037.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Elkie Brooks - No More The Fool (1986) [FLAC|Lossless|tracks + .cue]<Funk, Soul,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245038.jpgsave_picture_245038.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Samsung SSD Magician Tool 7.1.0.770 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245039.jpgsave_picture_245039.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:31AF127FD91CD947DE610134F7DF2F091574809D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245040.jpgsave_picture_245040.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Parasite - Parasite (1984) Mini-Album, Reissue, 2018, No Remorse [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245041.jpgsave_picture_245041.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ PanoramaStudio 3.6.6 Pro RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245042.jpgsave_picture_245042.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:CEB7F6E5761D9D504F5FB99AA959B2E356E35FCA
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245043.jpgsave_picture_245043.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA («Червоны гитары», М. Родович, Д. Фардон, Са�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245044.jpgsave_picture_245044.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Fred Hersch - plays Jobim (2009) Sunnyside Communications[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245045.jpgsave_picture_245045.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Leatherwolf - Kill The Hunted (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245046.jpgsave_picture_245046.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:E26B5163228E338F0063459A7C93F9E82AE3DE99
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245047.jpgsave_picture_245047.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:71437ED25F92C710A618D2C8BF7A1812272F3208
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245048.jpgsave_picture_245048.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:92BCD1A1E26F8A8C7B301415762C12481716A805
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245049.jpgsave_picture_245049.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:156BD00B3CFB27077ECD3BB7C56CB8A3069BBB77
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245050.jpgsave_picture_245050.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Winger - Seven (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245051.jpgsave_picture_245051.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:8D42F77609DD4D49E064E05A1E053353BEDD83D8
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245052.jpgsave_picture_245052.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Manuel Rocheman - misTeRIO (2016) Bonsai Music[FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245053.jpgsave_picture_245053.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:F1E6D477BE235B4A5187E26D641B35F2799385F5
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245054.jpgsave_picture_245054.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Aiseesoft Mac Blu-ray Player 6.6.28 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245055.jpgsave_picture_245055.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Megahits 2019 - Die Erste (2018) 2CD [MP3|320 Kbps] <Pop, Indie, Alternativ
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245056.jpgsave_picture_245056.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Deep Voyage 2 (2020) [AAC|~319 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245057.jpgsave_picture_245057.jpg" />
 </div>
 
 

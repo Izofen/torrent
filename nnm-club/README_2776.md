@@ -6,7 +6,7 @@
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77610.jpgsave_picture_77610.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:5843EA9C8DE87A73575BFC3D2C65FE4035BAA655
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77611.jpgsave_picture_77611.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5843EA9C8DE87A73575BFC3D2C65FE4035BAA655
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77616.jpgsave_picture_77616.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Hagane no Renkinjutsushi: Milos no Seinaru Hoshi / Fullmetal Alchemist: The Sacr
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77624.jpgsave_picture_77624.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Hagane no Renkinjutsushi: Milos no Seinaru Hoshi / Fullmetal Alchemist: The Sacr
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77625.jpgsave_picture_77625.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Doom 3 [Native] [Eng]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77628.jpgsave_picture_77628.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ ACDSee Photo Manager 14.1.137 RePack by Boomer[Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77630.jpgsave_picture_77630.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ ACDSee Photo Manager многофункциональный инструмент
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77632.jpgsave_picture_77632.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ ACDSee Photo Manager многофункциональный инструмент
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77633.jpgsave_picture_77633.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Euro Truck Simulator [Wineskin] [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77638.jpgsave_picture_77638.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:A283149DCC036A4A02E59694C3AA24E86C2EE613
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77641.jpgsave_picture_77641.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:616E05ACD4B321F777C61E25DE666BA9CD18B853
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77642.jpgsave_picture_77642.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:E6FE40C0B126CB85EB7F86531A7B76FBB01AA045
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77644.jpgsave_picture_77644.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Acronis True Image Home 2012 Build 6151 Plus Pack & Acronis Disk Director 11 Hom
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77647.jpgsave_picture_77647.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Counter Strike 1.6 [Cider] [Eng]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77649.jpgsave_picture_77649.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:0D58A3377634BF6916D78551C296DE066BD12332
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77654.jpgsave_picture_77654.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Plants vs Zombies: Game Of The Year [Wineskin] [Rus]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77658.jpgsave_picture_77658.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:D3B461316EE5AE78F39D973C7E2C1010DB56BC22
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77670.jpgsave_picture_77670.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Whisky c молоком (2010) DVDRip
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77672.jpgsave_picture_77672.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:1B6CEEC85A8478B4CC6C608D9AFC7668B30E3CB2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77685.jpgsave_picture_77685.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:5A68C99D0350D7F3F9490BC1BA8B6D0E46AEE472
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77693.jpgsave_picture_77693.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:2C219A2F0DE3E3973C82CD25283913FE55B1E89D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77698.jpgsave_picture_77698.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Sting - B-Sides & Rarities (2008) [WavPack|Lossless]<Rock, Jazz Rock, Blues Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77700.jpgsave_picture_77700.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Sting - B-Sides & Rarities (2008) [WavPack|Lossless]<Rock, Jazz Rock, Blues Rock
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77709.jpgsave_picture_77709.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:A0617556D17842F8D066419F2A5AC0DD6DCDC4AA
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77712.jpgsave_picture_77712.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:8C2F78DB23616D0657F2943AC3C61B8057907759
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77714.jpgsave_picture_77714.jpg" />
 </div>
 
 

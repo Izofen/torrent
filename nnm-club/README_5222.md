@@ -6,7 +6,7 @@ Adobe Acrobat Pro DC 2020.013.20074 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162531.jpgsave_picture_162531.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D96044BD93A5A50494382846ABC4B10895A877E3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162532.jpgsave_picture_162532.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1D13D6A5A53BE0720434DA348AB12AED5920F920
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162533.jpgsave_picture_162533.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Cat Squirrel - Blues What Am (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162534.jpgsave_picture_162534.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:94BD2BA3755CC3CF2516871719E9D9DB0A5EAC7A
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162535.jpgsave_picture_162535.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:4153506000684D992136EDC775862330A31165BD
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162536.jpgsave_picture_162536.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:4728CC84D3EBEBC1697D85FF5DD55DDFEBB7C3B0
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162537.jpgsave_picture_162537.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:E920C2C50F98F2207AA016BCC59E419296F59B54
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162538.jpgsave_picture_162538.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:96A9E82AC6B1E450FBB3EDBED91BFF110AA59B42
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162539.jpgsave_picture_162539.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:5D76B850BFAC6510D4B7634C020C83C654C2A3C3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162540.jpgsave_picture_162540.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Bee Celtic - Star Of The County Down (2022) [FLAC|Lossless|image + .cue] <Folk R
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162541.jpgsave_picture_162541.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:EFB8CC9330A17FBA36FBBCABA21D033A60027953
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162542.jpgsave_picture_162542.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Commander One PRO - FTP client 3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162543.jpgsave_picture_162543.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:2B233CF97D0915FEC8FF78A969FDAA3900429D92
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162544.jpgsave_picture_162544.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Blind Armadillo - Got da Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162545.jpgsave_picture_162545.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:B52FBC93840CD0C5BC11BCF65E67A89693CDAEE4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162546.jpgsave_picture_162546.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Asmodean - By a Thread (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162547.jpgsave_picture_162547.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:BA149C4BFD5EA053E1D967D4FE3307D2DB63C20B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162548.jpgsave_picture_162548.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:BD0868CA32006BCC645408373FFD3786B1B8451A
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162549.jpgsave_picture_162549.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:B5BED0010E9FC5AF610193E210A41D67E79009CE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162550.jpgsave_picture_162550.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:68BCD6B36A47457209B290583016812B4E6E1FE9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162551.jpgsave_picture_162551.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:1BE86C7B75F463986D006529B444CC7FC652D818
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162552.jpgsave_picture_162552.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:8A2C61C578A6C57BD2BB9475D1B3A6FCA184590B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162553.jpgsave_picture_162553.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:A04CE60D0904FB29C71B0AA5894B36A9A9C680AB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162554.jpgsave_picture_162554.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:0650417675B488C9AD6C6413F3649FB1C0299B49
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162555.jpgsave_picture_162555.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Blues Corner - Lonely Mile (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162556.jpgsave_picture_162556.jpg" />
 </div>
 
 

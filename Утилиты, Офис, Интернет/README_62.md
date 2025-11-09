@@ -6,7 +6,7 @@ Windows Update Blocker 1.8 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247667.jpgsave_picture_247667.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MyLanViewer 6.6.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247747.jpgsave_picture_247747.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Display Driver Uninstaller 18.1.3.8 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247751.jpgsave_picture_247751.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Any Video Downloader Pro 9.6.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247753.jpgsave_picture_247753.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ iDownerGo Video Downloader 10.9.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247769.jpgsave_picture_247769.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Firefox Browser 144.0.2 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247772.jpgsave_picture_247772.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Firefox Browser 144.0.2 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247773.jpgsave_picture_247773.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:4D588DF1496298D92FAE03FBBB140C8034AE66FB
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249034.jpgsave_picture_249034.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ IDPhotoStudio + Portable 2.16.5.75 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249970.jpgsave_picture_249970.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ MyLanViewer 6.6.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250371.jpgsave_picture_250371.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Adobe Acrobat Pro 2025.001.20844 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250390.jpgsave_picture_250390.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ ArrowDL 4.2.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250460.jpgsave_picture_250460.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Karing 1.2.5.882 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250473.jpgsave_picture_250473.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ DLNow Video Downloader 1.54.2025.11.01 RePack (& Portable) by elchupacabra [Mult
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250500.jpgsave_picture_250500.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Chromium 142.0.7444.60 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250501.jpgsave_picture_250501.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ OCCT 15.0.7 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250506.jpgsave_picture_250506.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ O&O Defrag Professional & Server 30.5 Build 1201 [En/De]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250534.jpgsave_picture_250534.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ YT Downloader 9.17.17 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250567.jpgsave_picture_250567.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:E67B633B7A587FACFB64B57EAD7C9F2550F6B2E9
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250577.jpgsave_picture_250577.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Total Commander 11.56 LitePack & PowerPack + Portable 2025.11 by SamLab [Multi/R
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250579.jpgsave_picture_250579.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ YT Downloader 9.17.17 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250596.jpgsave_picture_250596.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Opera One 123.0.5669.47 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250640.jpgsave_picture_250640.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ AmoyShare AnyVid 10.9.5 [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250728.jpgsave_picture_250728.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Flyoobe 1.51 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250729.jpgsave_picture_250729.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Social Media Downloader 7.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250742.jpgsave_picture_250742.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Google Chrome 142.0.7444.135 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250747.jpgsave_picture_250747.jpg" />
 </div>
 
 

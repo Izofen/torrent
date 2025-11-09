@@ -6,7 +6,7 @@ VA - 100 Most Beautiful Love Songs (2006) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88154.jpgsave_picture_88154.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - MAXI. Вибрация тела на Радио Record (2012) [MP3|320 kbps
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88158.jpgsave_picture_88158.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA - Disco Hits 90's Русский (2012) [MP3|256 kbps]<Pop | Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88163.jpgsave_picture_88163.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Disco Hits 90's Зарубежный (2012) [MP3|256 kbps]<Pop | Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88166.jpgsave_picture_88166.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Реальный Блатняк (2012) [MP3|192-320 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88189.jpgsave_picture_88189.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Потап и Настя в кругу друзей (2012) [MP3|192-256 kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88240.jpgsave_picture_88240.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Инструментальная музыка (2012) vol. № 01 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88270.jpgsave_picture_88270.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Топ 100-ка блатных песен (2012) [MP3|256 кб/с]<Шанс
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88342.jpgsave_picture_88342.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ VA - Новинки Эфира Love Radio 11 (2012) [MP3|256-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88388.jpgsave_picture_88388.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - ЕвроХит Топ-40 (13.04.2012) [MP3|320 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88408.jpgsave_picture_88408.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Фестиваль Авторадио 80-90-Х 50/50 (2012) [MP3|256 kbps]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88461.jpgsave_picture_88461.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Hardcore Legends Top 100 (2012) [MP3|320 kbps]<Hardcore>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88563.jpgsave_picture_88563.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Красота медленных хитов (2012) [MP3|~256 kbps]<Pop | R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88579.jpgsave_picture_88579.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Russian Tracks Remix DJ(2012) [MP3|256 kbps]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88607.jpgsave_picture_88607.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Romantic Collection - Spring Tenderness (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88611.jpgsave_picture_88611.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - MAXI. Все хиты весны на Русском Радио (2012) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88751.jpgsave_picture_88751.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Взрывной танцевальный Top DFM (2012) [MP3|192-248 kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88756.jpgsave_picture_88756.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - XXXL Союз 70: Парад хитов Русский (2012) [MP3|256 kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88772.jpgsave_picture_88772.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - NeРусский Шторм 57 (2012) [MP3|320 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88776.jpgsave_picture_88776.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Инструментальная музыка (2012) vol. № 03 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88841.jpgsave_picture_88841.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Инструментальная музыка (2012) vol. № 05 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88844.jpgsave_picture_88844.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ VA - Инструментальная музыка (2012) vol. № 07 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89050.jpgsave_picture_89050.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ VA - Танцевальный Рай Русский (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89148.jpgsave_picture_89148.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - Любовь Жива. Песни для души (2012) [MP3|256 кб/с]<
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89190.jpgsave_picture_89190.jpg" />
 </div>
 
 
@@ -762,7 +762,7 @@ VA - Инструментальная музыка (2012) vol. № 10 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89282.jpgsave_picture_89282.jpg" />
 </div>
 
 
@@ -786,7 +786,7 @@ VA - За Рулем с Авторадио - Зарубежные Хиты 90-Х
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89290.jpgsave_picture_89290.jpg" />
 </div>
 
 

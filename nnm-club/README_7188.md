@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245841.jpgsave_picture_245841.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Things 3 v.3.17.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245842.jpgsave_picture_245842.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:31AFBA62D50CB00D225EC9FBA16928E42A9F05D4
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245843.jpgsave_picture_245843.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:AD5DCCC7EF8A110D8B6D57D6B029D080A2D8FFC9
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245844.jpgsave_picture_245844.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AIDA64 1.91 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245845.jpgsave_picture_245845.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:A2B1B9D35CE273C8C474DC1AB9A3D03BF531BE99
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245846.jpgsave_picture_245846.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Revo Uninstaller Pro 5.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245847.jpgsave_picture_245847.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ EagleFiler 1.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245848.jpgsave_picture_245848.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Xentrix - Seven Words (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245849.jpgsave_picture_245849.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:BE87FA975AB237513523B125E144308E275E09BD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245850.jpgsave_picture_245850.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - В машине с музыкой Vol.329 (2023) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245851.jpgsave_picture_245851.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:2A409C3F55111519CAED4F9ACECC0947B1E4C01B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245852.jpgsave_picture_245852.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ IconShop - Making Icons Easily 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245853.jpgsave_picture_245853.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Bart Ryan - Messenger (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245854.jpgsave_picture_245854.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Exposure Software Eye Candy 7 v7.2.3.182 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245855.jpgsave_picture_245855.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ FoneDog iOS Unlocker 1.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245856.jpgsave_picture_245856.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:4850164F8D153159F0B0C18037E801F440A8F093
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245857.jpgsave_picture_245857.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Застольные от Петровича 40% - 96% (2004) 3 Альбо�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245858.jpgsave_picture_245858.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Sandboxie plus 1.8.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245859.jpgsave_picture_245859.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:2ADE3EF650B5C56780FE54C9BAA98ED0B5F62C21
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245860.jpgsave_picture_245860.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:7BCE719F0CFF85FE24243A3A4C68FDEE3CEE428D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245861.jpgsave_picture_245861.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:538366D59C7C11A1152D970A2C470B1ED7E09693
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245862.jpgsave_picture_245862.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Project - The Awakening (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245863.jpgsave_picture_245863.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:CD0B1F8D84CB4B137F532B0EDEDC02B5A189D8EA
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245864.jpgsave_picture_245864.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:956D20634C8273BA57A0AF954B7319F3062B6F76
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245865.jpgsave_picture_245865.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:6B81D5AFD4ACB09757FC66B97CA2930C7310A72C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245866.jpgsave_picture_245866.jpg" />
 </div>
 
 

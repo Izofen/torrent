@@ -6,7 +6,7 @@ Akudama Drive | Акума Драйв [2020, TV, 12 из 12 эп.] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144893.jpgsave_picture_144893.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:540EBDDA84EB26F8F1D0A4F255217F0E9848BE1A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144894.jpgsave_picture_144894.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:743B899D98B33640DE0DF834881E5D82BFDBBD99
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144896.jpgsave_picture_144896.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Adobe After Effects CC 2019 16.0.1.48 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144897.jpgsave_picture_144897.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VA - 100 Greatest Winter Songs (2019) [FLAC|Lossless|tracks] <Pop, Dance, Electr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144898.jpgsave_picture_144898.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Эх, Разгуляй! Новогодний выпуск Шансона В
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144899.jpgsave_picture_144899.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Adguard 2.4.2.712 nightly (CL - 1.5.165) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144901.jpgsave_picture_144901.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Adobe Photoshop Lightroom Classic CC 2019 8.1.0 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144902.jpgsave_picture_144902.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:8101865C476B900D4FEA6AAE254AF244CEFD912A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144903.jpgsave_picture_144903.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ LaScala - Мачете (2015) [MP3|320 кб/с] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144904.jpgsave_picture_144904.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:B3547D8E3BDA56AF701E41973C898419AFE56791
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144905.jpgsave_picture_144905.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Негодник, ко
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144907.jpgsave_picture_144907.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:89673B0FDA9B4AB1F6E6526A2886E05F29626ABC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144909.jpgsave_picture_144909.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:D7AE224C74FB372C173E569592DFC0711D6F0897
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144911.jpgsave_picture_144911.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:291B09664C0578EF14149E8B9DAA99F4B13D2B21
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144912.jpgsave_picture_144912.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:00C61DBC55B8043F0BD92B60E2700464BEEE5F2B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144913.jpgsave_picture_144913.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:F0C7AE2F289CC66D19BE36234B5418ADEE63C5B4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144914.jpgsave_picture_144914.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:FCE9B1C9F986296FD4DB191753D23C5EE0E5515F
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144915.jpgsave_picture_144915.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ CopyClip 2 - Clipboard Manager v2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144916.jpgsave_picture_144916.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:E00F6E1320F93C2C43A1EFF15774D37323A2CB9C
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144917.jpgsave_picture_144917.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Chuukan Kanriroku Tonegawa | Менеджер среднего звена Тон
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144920.jpgsave_picture_144920.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:0CBCBE6D23638BBC822525EA501E679F3F7E7A01
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144921.jpgsave_picture_144921.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:FD7F157D2B068B1F32F55713DDFDB1DC1424DEDF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144922.jpgsave_picture_144922.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:B737D669A0675C4481B031CADBC51D9D1FE17031
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144923.jpgsave_picture_144923.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Hells / Hells Angels / Ангелы Ада [2008, MV] BDrip 720p Hi10P raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144924.jpgsave_picture_144924.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Hells / Hells Angels / Ангелы Ада [2008, MV] BDrip 720p Hi10P raw
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144925.jpgsave_picture_144925.jpg" />
 </div>
 
 

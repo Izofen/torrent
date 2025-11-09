@@ -6,7 +6,7 @@ Dracula Origin (2008) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236481.jpgsave_picture_236481.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ South of the Circle (2022) [Ru/Multi] (23) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237353.jpgsave_picture_237353.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mists of Aiden (2020) [Ru/Multi] (1.0 Build 8798754) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237664.jpgsave_picture_237664.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Kamikaze Veggies (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243332.jpgsave_picture_243332.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Chronicle (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244343.jpgsave_picture_244343.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dare to Stay (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244443.jpgsave_picture_244443.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Noctem (2022) [Multi] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244581.jpgsave_picture_244581.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Catie in MeowmeowLand (2022) [Ru/Multi] (0.1.0.2_65f17ebd) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244676.jpgsave_picture_244676.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ In The Space - Escape Room (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244694.jpgsave_picture_244694.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Glitchhikers: The Spaces Between (2022) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244766.jpgsave_picture_244766.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Expedition Zero (2022) [Ru/Multi] (1.01.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245153.jpgsave_picture_245153.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ A Musical Story (2022) [Ru/Multi] (1.0.5b) License GOG [Digital Deluxe Version]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245498.jpgsave_picture_245498.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Hollowbody (2024) [Ru/Multi] (2.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246192.jpgsave_picture_246192.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Resident Evil (Biohazard) HD Remaster (2020) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246247.jpgsave_picture_246247.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ SKYHILL (2015) [Ru/Multi] (1.1.20) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246321.jpgsave_picture_246321.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Tales from the Borderlands (2014) [Ru/Multi] (build 6086951) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246723.jpgsave_picture_246723.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Kujlevka / Кужлевка (2023) [Ru/En] (20230620) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246740.jpgsave_picture_246740.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246786.jpgsave_picture_246786.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246990.jpgsave_picture_246990.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ RiME (2017) [Ru/En] (1.04) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247061.jpgsave_picture_247061.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Bookwalker: Thief of Tales (2023) [Ru/Multi] (23.6.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247273.jpgsave_picture_247273.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Dave the Diver (2023) [Multi] (u1.0.0.933) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247288.jpgsave_picture_247288.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Layers of Fear (2023) [Ru/Multi] (1.2.2.rb95581) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247371.jpgsave_picture_247371.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Daydream: Forgotten Sorrow (2023) [Ru/Multi] (1.2.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247373.jpgsave_picture_247373.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247405.jpgsave_picture_247405.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Entropy Centre (2022) [Ru/Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247447.jpgsave_picture_247447.jpg" />
 </div>
 
 

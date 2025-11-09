@@ -6,7 +6,7 @@ VA - The Best Of Suanda Chillout 2024 (2024) [MP3|320 Kbps] <Downtempo, Chillout
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100647.jpgsave_picture_100647.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Best Melodic & Progressive House 2024 (2024) [MP3|320 Kbps] <Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100650.jpgsave_picture_100650.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - DANCE CUBE 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100668.jpgsave_picture_100668.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Reason II Rise: Uplift Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Upliftin
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100679.jpgsave_picture_100679.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Markus Schulz - Global DJ Broadcast Classics Showcase 20th Edition (2024-12-26) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100681.jpgsave_picture_100681.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Reason II Rise Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100684.jpgsave_picture_100684.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Vintage Culture - Live @ Ushuaïa Closing Pre-Party: The Last dANTS, Cafe Mambo 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100685.jpgsave_picture_100685.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Coldharbour Reflections 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100686.jpgsave_picture_100686.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Reason II Rise: Realms Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100688.jpgsave_picture_100688.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Armin van Buuren - A State Of Trance 1205 (Yearmix 2024) (2024) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100698.jpgsave_picture_100698.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Interplay Highlights 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Elect
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100706.jpgsave_picture_100706.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 07 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100884.jpgsave_picture_100884.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Rencontre Nocturne - Recap 2024 (2024-12-18) [MP3|320 Kbps] <Progressive House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100887.jpgsave_picture_100887.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Nicky Romero - Tomorrowland Friendship Mix (2025-10-02) [MP3|320 Kbps] <Dance, E
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101060.jpgsave_picture_101060.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ MORTEN - Live @ Mainstage, Ultra Music Festival Japan (2025-09-13) [MP3|320 Kbps
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101074.jpgsave_picture_101074.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Everdune - The Aces Strike Back (2024) [MP3|320 Kbps] <Spacesynth, Synthdance>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101117.jpgsave_picture_101117.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Everdune - The Aces Strike Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101120.jpgsave_picture_101120.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Michael Simon, Tibetania - Umami (Tibetania Records) (2024) [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101159.jpgsave_picture_101159.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - Festive Season (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Te
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101199.jpgsave_picture_101199.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Synchronized Music: Best of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101200.jpgsave_picture_101200.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Arcade Alchemy - 1 hour Beast Mode On Hard-hitting Gym Beats for Strength (2024)
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101201.jpgsave_picture_101201.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Weekend Dance Tunes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101202.jpgsave_picture_101202.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Lane 8 - Winter 2024 Mixtape (2024-12-18) [MP3|320 Kbps] <Progressive House, Mel
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101205.jpgsave_picture_101205.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Markus Schulz - Global DJ Broadcast Year in Review Part 2 (2024-12-19) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101209.jpgsave_picture_101209.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ V.A. - Lounge & Wine, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101221.jpgsave_picture_101221.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - Armin van Buuren - A State Of Trance 1204 (Top 50 Of 2024) (2024) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101222.jpgsave_picture_101222.jpg" />
 </div>
 
 

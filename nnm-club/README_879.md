@@ -6,7 +6,7 @@
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23193.jpgsave_picture_23193.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EE5D18BCE61AED1961BA49463A1119E01953F48F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23194.jpgsave_picture_23194.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mp3tag 3.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23195.jpgsave_picture_23195.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Music News For Forum vol.069 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23196.jpgsave_picture_23196.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:AB58404187B0CEF2FFEAB8F2AEB6EFF8BB591C9E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23197.jpgsave_picture_23197.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - The Eternal Blues  part 20 (2019) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23198.jpgsave_picture_23198.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Enchanted Stories: Mystic Woods / Зачарованные Истории: Та�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23199.jpgsave_picture_23199.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:99351FD8A958F2BBB4321303A5B9A85A73B5EA37
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23200.jpgsave_picture_23200.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Harmony Chronicles 3: Cat Out of the Bag / Хроники Гармонии 3: К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23201.jpgsave_picture_23201.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:89F4C88CA67C0A60A111A2F80CC28B6E233D58C4
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23202.jpgsave_picture_23202.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ PanteRa - Bad Angel (2025) [MP3|320 Kbps] <Eurodance, Eurobeat, Europop>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23203.jpgsave_picture_23203.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Calibre 8.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23204.jpgsave_picture_23204.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - A State of Trance 2025 (Mixed by Armin van Buuren) (2025) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23205.jpgsave_picture_23205.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - Musical kaleidoscope part 35 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23206.jpgsave_picture_23206.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ EF Commander 25.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23207.jpgsave_picture_23207.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Music News For Forum vol.068 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23208.jpgsave_picture_23208.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:BAC8E089552C5CE874D32374B9B2DF22BD1CDBEB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23209.jpgsave_picture_23209.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:47B0EE250DEE98B2F5AB9A7E8BB7D4180A036377
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23210.jpgsave_picture_23210.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:8A20CC414C0A8C19CACAC122AB717534F63381A0
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23211.jpgsave_picture_23211.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Vivaldi 7.3.3635.4 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23212.jpgsave_picture_23212.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Firefox Browser 136.0.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23213.jpgsave_picture_23213.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:9B9B2D8849A05540B618A0D1E17E91F9F77F3617
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23214.jpgsave_picture_23214.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:556316F06250929B97EE067CC973C7E7898241B8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23215.jpgsave_picture_23215.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Helloween - March of Time (The Best of 40 Years) (2025) Remastered, Compilation 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23216.jpgsave_picture_23216.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:1A3B2BEA004963274B92C2409C02FE182205DF6C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23217.jpgsave_picture_23217.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:8126D79E2CBE5F7E0FA91116388FFBF0333B0F8D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23218.jpgsave_picture_23218.jpg" />
 </div>
 
 

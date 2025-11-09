@@ -6,7 +6,7 @@ discoDSP - OB-Xd 3.10.2 STANDALONE, VSTi, VSTi 3 (x64) Free [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17505.jpgsave_picture_17505.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Pubbas - Vallhund 1.0.6 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17506.jpgsave_picture_17506.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Pubbas - Sheepadoodle Phaser 1.0.2 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17507.jpgsave_picture_17507.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:411743F05DEE3A4034C85B3CB3AC6D116C43EC95
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17508.jpgsave_picture_17508.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:157FCECD76FEF3E2B0AC5CA98AA7E7DF01CD3736
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17509.jpgsave_picture_17509.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:76672BBBC6C24D2EC01E8BD006CBEED1DD22027D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17510.jpgsave_picture_17510.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Chopped in Half - The End of Human Tragedy (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17511.jpgsave_picture_17511.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:4C6D09020810E1E276F10E4B2ECFC85D9EBC55E3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17512.jpgsave_picture_17512.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:277D35FF8ECEAD91204CBA421A42F52F42411B49
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17513.jpgsave_picture_17513.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ The British Bluescasting Corporation - Saints & Sinners (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17514.jpgsave_picture_17514.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.8 build 18474892/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17515.jpgsave_picture_17515.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:D1ED429E81CE794B6688325C0BEB3A446051801D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17516.jpgsave_picture_17516.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Eric Clapton - Me and Mr Johnson (2004) [FLAC|Lossless|tracks + .cue] <Rock, Blu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17517.jpgsave_picture_17517.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:8F7C0189EED70F3DA1ECEC847DDD6C4516081E66
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17518.jpgsave_picture_17518.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Beach Mode ON! (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17519.jpgsave_picture_17519.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:D040296E29A3DD7B504A9B0D9D64BA0BB3420421
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17520.jpgsave_picture_17520.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:5AF7AC5F93A415C1288707CDDB195568BACD3A28
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17521.jpgsave_picture_17521.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:DF437B1EDE4EBFB5D8AE1BC9A09691CEC43416B9
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17522.jpgsave_picture_17522.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Running To The Ocean (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17523.jpgsave_picture_17523.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Norah Jones - Come Away With Me (2002) [FLAC|Lossless|tracks + .cue] <Contempora
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17524.jpgsave_picture_17524.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:5096AE79046541D2DC837708D92BD5E317E0B644
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17525.jpgsave_picture_17525.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:4ACFA5F1507BE047FB5642AE3F2AFBD5800D0DA2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17526.jpgsave_picture_17526.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:0716F9667DB174B447DAA130B2E028C225168B6D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17527.jpgsave_picture_17527.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Monolith - Magnum Opus (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17528.jpgsave_picture_17528.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ mclusky - the world is still here and so are we (2025) [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17529.jpgsave_picture_17529.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Ruzz Guitar's Blues Revue - Between Two Worlds (2025) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17530.jpgsave_picture_17530.jpg" />
 </div>
 
 

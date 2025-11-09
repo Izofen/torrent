@@ -6,7 +6,7 @@ VA - Pride Rock Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16669.jpgsave_picture_16669.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:995AF51FF9EF7DC11CA086EB8B3EFBA596B6E62D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16670.jpgsave_picture_16670.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8E02319ABA460BAC620D7E24D671C7CC162B8A42
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16671.jpgsave_picture_16671.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Sarah Connor - Freigeistin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Rh
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16672.jpgsave_picture_16672.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:6A378C5662481BC0A50D26C2EB9E9D59F8CD1547
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16673.jpgsave_picture_16673.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Sunlounger - Distant Memories (2025) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16674.jpgsave_picture_16674.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:50ADD7B7C925149257C2218440CCD88E16896B71
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16675.jpgsave_picture_16675.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Berserk: Ougon Jidai Hen I - Haou no Tamago | Берсерк: Бехерит В�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16676.jpgsave_picture_16676.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:7027A6918F6D790DDCC4B022C66665CE5205780E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16677.jpgsave_picture_16677.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:9FF6DF97548E150DD42CDBB5DD19617E667B010B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16678.jpgsave_picture_16678.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:B041BB8B2E7E6827BFFE50FF2901901A83191D9D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16679.jpgsave_picture_16679.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Interstate Blues - Lone Wolf (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16680.jpgsave_picture_16680.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Felipe Renfro - Love, Hope and Misery (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16681.jpgsave_picture_16681.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Debbie Bond - Live at the Song Theater (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16682.jpgsave_picture_16682.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:382CC1EF9BA2E5522A2ECA08E2BFF0C49D20DB21
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16683.jpgsave_picture_16683.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:993997EC1AB0044D76F342C23FFE37C87F95E31E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16684.jpgsave_picture_16684.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Christopher James - Psilocide blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16685.jpgsave_picture_16685.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Chris Vincent - Good Crook (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16686.jpgsave_picture_16686.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Carl Cox - Philly Strut (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16687.jpgsave_picture_16687.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Bryan Lee - Homage to 4 Kings (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16688.jpgsave_picture_16688.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Between the Bricks - Quiet Highway (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16689.jpgsave_picture_16689.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Andres Sanchez - Wish (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16690.jpgsave_picture_16690.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:B18632BDF1D2CA538074A1D80264FA3A0C92A4B0
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16691.jpgsave_picture_16691.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Good Charlotte - Motel Du Cap (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16692.jpgsave_picture_16692.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16693.jpgsave_picture_16693.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ RarmaRadio Pro 2.77.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16694.jpgsave_picture_16694.jpg" />
 </div>
 
 

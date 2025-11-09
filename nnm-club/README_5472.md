@@ -6,7 +6,7 @@ VA - Best of We Are Trance 2022 Mixed by DJ GOOSE [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169203.jpgsave_picture_169203.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ CyberLink PowerDirector Ultimate 20.1.2405.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169204.jpgsave_picture_169204.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ PicWish: AI Photo Editor v1.5.6 Mod by Raju054 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169205.jpgsave_picture_169205.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:8BD01FBA8121FB6C632DE149C6A0475F2326675F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169206.jpgsave_picture_169206.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Leviathan - Deepest Secrets Beneath (1994) [FLAC|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169207.jpgsave_picture_169207.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:4F5D690B4AC8DD39A1A00970F8AF9406BB4E03FF
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169208.jpgsave_picture_169208.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Julia Fischer, Martin Helmchen - Schubert: Complete Works for Violin and Piano (
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169209.jpgsave_picture_169209.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ PDF Reader Pro Lite 2.9.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169210.jpgsave_picture_169210.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Princesse Angine - Никому не нужны твои жертвы (2022) [FL
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169211.jpgsave_picture_169211.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ MediaHuman Youtube Downloader 3.9.9.62 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169213.jpgsave_picture_169213.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Path Finder 2148 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169214.jpgsave_picture_169214.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:40DB726CE52DD5185DF2A7477403769F0C36C489
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169215.jpgsave_picture_169215.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:62E7AA815C7D463BDB333F3BFE5D7C9008C097D6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169216.jpgsave_picture_169216.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:47F4F46F2F155B5BDAC36EC398BB688161A04BC4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169217.jpgsave_picture_169217.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Thunder - The Thrill of It All (1996) Expanded, 2019, Sanctuary Records [MP3|320
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169218.jpgsave_picture_169218.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Amon Acid - 5 Albums (2019-2022) [MP3|320 Kbps] <Psych, Doom, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169219.jpgsave_picture_169219.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:E9C11E3CE3719D1A0C4B5F1DCD7216F160A46B1B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169220.jpgsave_picture_169220.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:009DF4DC220B88B6CE7D7DED7C94621CBD43E04A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169221.jpgsave_picture_169221.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Deep Christmas Vibes (2022) [MP3|320 Kbps] <Deep-House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169222.jpgsave_picture_169222.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:5FF9326A3BCAE8384A57B35530B86AC4DC35B414
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169223.jpgsave_picture_169223.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Blind Fury - Out Of Reach (1985) Reissue 2008 [APE|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169224.jpgsave_picture_169224.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ JPS Project - Crossing Over (1989) Reissue, 2021, 20th Century Music [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169225.jpgsave_picture_169225.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Cocooma - The Best Of Cocooma (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169226.jpgsave_picture_169226.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:3A9D6375DC2E19C00AFBD10A905122C71BE96F01
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169227.jpgsave_picture_169227.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Display Tester v4.58 Mod by Balatan, serborkr  [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169228.jpgsave_picture_169228.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Andy Fusco - Vortex (2019) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169229.jpgsave_picture_169229.jpg" />
 </div>
 
 

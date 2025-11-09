@@ -6,7 +6,7 @@ PowerCMD Pro 2011 2.2 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130194.jpgsave_picture_130194.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Photoshop 2021 22.5.5.691 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130195.jpgsave_picture_130195.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9DA6B82C0A7039B18A557FB9F759AA59BDBC77DC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130196.jpgsave_picture_130196.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ BBC. Вселенная / Universe (2021) BDRemux [H.264/1080i] (серии 1-5 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130197.jpgsave_picture_130197.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A8C87AB38C1640C890ECBCCAE8460C435D665D71
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130198.jpgsave_picture_130198.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:68FD0B5FE44FCD6F061F8C247C5CFDDC3E2142CA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130199.jpgsave_picture_130199.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:68FD0B5FE44FCD6F061F8C247C5CFDDC3E2142CA
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130200.jpgsave_picture_130200.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:16B7B9BB19E0BAFB9C9E34A9C9D050F8B41B8A8C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130201.jpgsave_picture_130201.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Adobe Acrobat Reader для PDF 21.11.1.20710 Mod by Rajat [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130202.jpgsave_picture_130202.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ GRAN TURISMO 5 Prologue (2008) [PS3] [EUR] 2.16 [Cobra ODE / E3 ODE PRO ISO] [Li
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130204.jpgsave_picture_130204.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:FB3E2F7FE6B706DE9EEF7F7AD200982CD05BBD31
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130205.jpgsave_picture_130205.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Udemy, Gary Pettie, Ben Tristem | Math For Video Games: The Fastest Way To Get S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130206.jpgsave_picture_130206.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:3F14B5C9098940AE898D79EE75BBF703BC49175F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130207.jpgsave_picture_130207.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VirtualBox 6.1.32 Build 149290 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130208.jpgsave_picture_130208.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Loredana Berte - E La Luna Busso (1988) [MP3|320 кб/с]<Rock, Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130209.jpgsave_picture_130209.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:A1DFEFF2DF7F2EDB1CE4DD9D31DFFDC2C7BE0943
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130210.jpgsave_picture_130210.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:82B88B8201F1CD8F55615B11593973141FD75CBA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130212.jpgsave_picture_130212.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:9182C3FE6786248243D617F48B793B812D83D8EC
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130214.jpgsave_picture_130214.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Smooth Jazz - Sexual Healing (2000) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130215.jpgsave_picture_130215.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ BBC. Эдем: Неукротимая Планета / Eden: Untamed Planet (202
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130216.jpgsave_picture_130216.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:729D6912C45272767068E71123DA0F40B679A8EE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130217.jpgsave_picture_130217.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:EDADC2E1B69FA478AE75E72FCC8B6F5DC9D0E05B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130218.jpgsave_picture_130218.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Hard Disk Sentinel PRO 5.70.10 Build 12540 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130219.jpgsave_picture_130219.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:755DE9C5590B2A5BAE9A1731CB2262E26EFA08A7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130220.jpgsave_picture_130220.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:0F396E177EA7A57072A0D21C8F1CBFC0937AE30F
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130223.jpgsave_picture_130223.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Legends of Valour [En] (RePack) 1992 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130225.jpgsave_picture_130225.jpg" />
 </div>
 
 

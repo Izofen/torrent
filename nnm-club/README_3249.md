@@ -6,7 +6,7 @@ Process Lasso Pro 14.3.0.58 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104835.jpgsave_picture_104835.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bewitching Sinners (2024) [En] (1.9.8.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104836.jpgsave_picture_104836.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Matthew Sting - Brave (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104837.jpgsave_picture_104837.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:8C2F5CB0C9484E114CA7149108ACC46B51186F67
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104838.jpgsave_picture_104838.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C6A068FE8DE14873FBA3BD5991316A76FAAB1766
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104839.jpgsave_picture_104839.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:C458B78F841D847019834360D7A2055BB8C7BBFB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104840.jpgsave_picture_104840.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:9404F251110E5E6075EE69EF935CF6B0F7388A62
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104841.jpgsave_picture_104841.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Arbitrator - Kill Their Religion (1998) Remaster, 2024, NORZ Records [FLAC|Lossl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104842.jpgsave_picture_104842.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Drakkar - Spread Your Wings (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104843.jpgsave_picture_104843.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:761F3A2F55FC0D1A98B46496BABF439EB7A8BD81
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104844.jpgsave_picture_104844.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:AAFE2E3EDD535F10D95F5B9DEAB686237824D9A6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104845.jpgsave_picture_104845.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - Songspire Records 6 Year Anniversary (2024) [MP3|320 Kbps] <Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104846.jpgsave_picture_104846.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Jurelia - Hinnos de Libertaz (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Prog Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104847.jpgsave_picture_104847.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Remedy - Pleasure Beats The Pain (2024) Japanese Edition [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104848.jpgsave_picture_104848.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:026E1846459A2DEDDD5CBC90E62BC328835CE132
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104849.jpgsave_picture_104849.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ MotoGP. Этап 12 из 20. Гран-при Арагона. Гонка (01.09.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104850.jpgsave_picture_104850.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ DemonDown - The Rise Of The Devil (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104851.jpgsave_picture_104851.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Oceano - Living Chaos (2024) [MP3|320 Kbps] <Deathcore, Soft-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104852.jpgsave_picture_104852.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:19D7F617BD8B1183294951060F4957F9E264C732
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104853.jpgsave_picture_104853.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Fallen Man - Influenza (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rcok>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104854.jpgsave_picture_104854.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:027CD6A356C05F9AE14F08953AA6F9B71E886047
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104855.jpgsave_picture_104855.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Melomaniac, Vol.01 (2024) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104856.jpgsave_picture_104856.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:62C43A647F683E5E1D982D4B47803FB9A36EC40E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104857.jpgsave_picture_104857.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ian Wilde - Dream Hunter (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104858.jpgsave_picture_104858.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Quantifier - The Ordinary Strain (2024) [MP3|320 Kbps] <Progressive Sludge Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104859.jpgsave_picture_104859.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Curtis Erdek - Fuktrump (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104860.jpgsave_picture_104860.jpg" />
 </div>
 
 

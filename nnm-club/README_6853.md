@@ -6,7 +6,7 @@ Rogue Amoeba Farrago 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235454.jpgsave_picture_235454.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ For The Fallen Dreams - For The Fallen Dreams (2023) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235455.jpgsave_picture_235455.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:16A75B37D4A001D15B664D3E122A0F6128B5249C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235456.jpgsave_picture_235456.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:BDFC9A266BDE1C298FF4A01C4EEF35D1DCA949C9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235457.jpgsave_picture_235457.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Levitated - Emotional Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235458.jpgsave_picture_235458.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235459.jpgsave_picture_235459.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Von Freeman - The Great Divide (2004) Premonition Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235460.jpgsave_picture_235460.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - B машину ремиксы Vol.32 (2023) [MP3|320 Kbps] <Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235461.jpgsave_picture_235461.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Ozzy Osbourne - Patient Number 9 (2022) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235462.jpgsave_picture_235462.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sunroad - Sunesthesia (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235463.jpgsave_picture_235463.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Eternal Rot - Cadaverine (2018) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235464.jpgsave_picture_235464.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:569CC05CCC5CEB24DA4770ACBF6D6A0A0EA1051B
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235465.jpgsave_picture_235465.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:944FA14669761A81F78F104A0B4230B4D065BA92
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235466.jpgsave_picture_235466.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Trauma - As The World Dies (2018) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235467.jpgsave_picture_235467.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ JUG Ru Group | Mobius 2022 Spring. Конференция по мобильно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235468.jpgsave_picture_235468.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:C4F69CEBB5202EE8E4B51DCDA4AC091BB44424AC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235469.jpgsave_picture_235469.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Cultus Black - Cultus Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Gr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235470.jpgsave_picture_235470.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ File & Image Uploader 8.3.2 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235471.jpgsave_picture_235471.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Tomb of Lucifer - Ode to Judah (2023) [MP3|320 Kbps] <Oriental Blackened Death M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235472.jpgsave_picture_235472.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:C614731498C8AD60A5F97160F4A33EBE6EA08851
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235473.jpgsave_picture_235473.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Amadeus Pro 2.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235474.jpgsave_picture_235474.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Fort Firewall 3.9.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235475.jpgsave_picture_235475.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Chaotica 2.2.3 Beta [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235476.jpgsave_picture_235476.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:034629791194CFABAD1CAEA189752D752E782903
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235477.jpgsave_picture_235477.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Triumpher - Storming The Walls (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235478.jpgsave_picture_235478.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Gods Of Gaia - As Daylight Dies (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235479.jpgsave_picture_235479.jpg" />
 </div>
 
 

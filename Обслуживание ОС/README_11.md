@@ -6,7 +6,7 @@ Glary Utilities Pro 6.33.0.37 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213433.jpgsave_picture_213433.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PrivaZer Pro 4.0.114 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213446.jpgsave_picture_213446.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ashampoo WinOptimizer 28.00.14 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213581.jpgsave_picture_213581.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ScanMyReg 3.2 RePack by tolyan76 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229062.jpgsave_picture_229062.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Ashampoo UnInstaller 16.00.02 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230236.jpgsave_picture_230236.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Uninstall Tool 3.6.0 Build 5684 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239438.jpgsave_picture_239438.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Ashampoo WinOptimizer 28.00.20 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246181.jpgsave_picture_246181.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ DISMTools 0.7.1.25103 + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246219.jpgsave_picture_246219.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Revo Registry Cleaner Pro 2.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246256.jpgsave_picture_246256.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Windows Update Blocker 1.8 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247667.jpgsave_picture_247667.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Display Driver Uninstaller 18.1.3.8 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247751.jpgsave_picture_247751.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Duplicate Cleaner Pro 5.26.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250803.jpgsave_picture_250803.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Process Lasso Pro 16.1.0.46 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251686.jpgsave_picture_251686.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Process Lasso Pro 16.1.0.46 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251712.jpgsave_picture_251712.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Wise Program Uninstaller 3.2.7.271 RePack (& portable) by elchupacabra [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251783.jpgsave_picture_251783.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Wise Care 365 Pro 7.3.2.716 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251785.jpgsave_picture_251785.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ WinDirStat 1.1.2.80 [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251998.jpgsave_picture_251998.jpg" />
 </div>
 
 

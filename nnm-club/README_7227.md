@@ -6,7 +6,7 @@
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247145.jpgsave_picture_247145.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Metroid Dread (2021) [Switch] [USA] 16.0.0 [NSZ] [License / 2.1.0] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247146.jpgsave_picture_247146.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:66427FAA05F8825157D4DCE73C3360DE2A0207AE
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247147.jpgsave_picture_247147.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:39E110BD1BC3C46A682B563475B7C3A9EF44D94A
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247148.jpgsave_picture_247148.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Deep House & Nu Disco Top 100 (Compiled by ZeByte) (2019) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247149.jpgsave_picture_247149.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8E40BFCE4F526FF6C0A442BF2DBA567A9E3CE96A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247150.jpgsave_picture_247150.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Udemy, Андрей Кудлай | Telegram bot интернет-магазин.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247151.jpgsave_picture_247151.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:953D7509633CDF4ACCF82BBDDA166A6B235577B5
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247152.jpgsave_picture_247152.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:561723AA5128DF4CB614D4C27DCF3FEF4B067559
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247153.jpgsave_picture_247153.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:01B44578B6FB0E813A6A10956F9FFDC46870CA6D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247154.jpgsave_picture_247154.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:A6D098F1F71464040EB5E28F04425A548AAC3F06
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247155.jpgsave_picture_247155.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Blasphemous (2019) [Switch] [USA] 11.0.0 [NSZ] [License / DLC / 1.0.8] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247156.jpgsave_picture_247156.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:B548636AA114E6684459D24CF54C9383B2B09444
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247157.jpgsave_picture_247157.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:1F2E103097B6159EC3AA090FAD1F7812ADC45FAB
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247158.jpgsave_picture_247158.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:1AC84BFF5F30EE7759762F5B03E49E80154F7456
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247159.jpgsave_picture_247159.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:7D73C514D893F2CD8F0507552FC3AA0393CB9E68
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247160.jpgsave_picture_247160.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:2911D863B307D3C794BC13ABA7E4E8A3E161E572
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247161.jpgsave_picture_247161.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:745C9014641F79BE1A39EEC096898DB37685D3AD
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247162.jpgsave_picture_247162.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:57A41A397921B41A0E106E1B522C7FA981349137
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247163.jpgsave_picture_247163.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:A68E2AC5A3CF65BDBFDF54FE7B3D00BD883505C8
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247164.jpgsave_picture_247164.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:E57D46DB096DB55E8F1080E849EB43ED29E61C04
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247165.jpgsave_picture_247165.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:BDEEE4EA62C1CE8DD8C8E594E3E3C6A90D76B26D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247166.jpgsave_picture_247166.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:44FE88775609FFAD11155347FBE3F02D26AB9BD5
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247167.jpgsave_picture_247167.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Windows 10 Pro VL x64 (22H2) (build 19045.2965) by ivandubskoj 12.05.2023 Fixed 
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247168.jpgsave_picture_247168.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:4B5491E376997F708A58A6EF867E5BC543ADDD20
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247169.jpgsave_picture_247169.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:2C807E981E62C6C5AAF56EE3CDEEAE7F756E9BCA
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247170.jpgsave_picture_247170.jpg" />
 </div>
 
 

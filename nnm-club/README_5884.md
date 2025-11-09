@@ -6,7 +6,7 @@ The Fanimatrix: Run Program (2003) WEBRip [H.264/720p] [En]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185103.jpgsave_picture_185103.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Akella Presents - vol.209 - Blues-Rock Live!(2CD) (2019) [MP3|320 Kbps] <Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185104.jpgsave_picture_185104.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A4046D0E7101E1584114B3AB9952F4A8616C9047
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185107.jpgsave_picture_185107.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Caroline Vreeland - Notes On Sex & Wine (2020) [MP3|320 Kbps] <Pop, Jazz, Blues>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185108.jpgsave_picture_185108.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:98CFA821C574BD18EF199D8B963AFDFBA39F2CB3
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185109.jpgsave_picture_185109.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Reg Organizer 9.30 (DC 25.09.2023) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185112.jpgsave_picture_185112.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Drakon - П​р​о​б​у​ж​д​е​н​и​е (2022) [FLAC|Lossl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185113.jpgsave_picture_185113.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:AC89C4F4203C7F2FC6D9ED63B11A8A02EA7700C9
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185114.jpgsave_picture_185114.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:C8EF61BBC5E13BCD8B099D4C61E3E9C572B122D3
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185117.jpgsave_picture_185117.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:A3A10B4ACA87F051DD11EAD7E78326E193B257B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185118.jpgsave_picture_185118.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:0943CCA7E9CD72B64461169668239886330BB8ED
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185119.jpgsave_picture_185119.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:A432E445B595CDA80BFB2DD0FF0F5C1E2C992D83
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185122.jpgsave_picture_185122.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Snakebite Delight - Swamp Walker (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185123.jpgsave_picture_185123.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:D535780FC8903873CB091803CE99C83CEDCF9450
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185124.jpgsave_picture_185124.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Modern Martina - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185126.jpgsave_picture_185126.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Teorex Inpaint 10.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185127.jpgsave_picture_185127.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:CE8BFDD1D51994246612106C0F227A1D61EEB856
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185128.jpgsave_picture_185128.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ WinToUSB Technician 8.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185130.jpgsave_picture_185130.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v12 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185132.jpgsave_picture_185132.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - В машине с музыкой Vol.320 (2022) MP3 [320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185133.jpgsave_picture_185133.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:A159E58BCFDD2294C1066CC25C01CB58D77409F5
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185135.jpgsave_picture_185135.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Korg S - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185136.jpgsave_picture_185136.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:773E570056950396141C78797FC0E36386D5AB41
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185137.jpgsave_picture_185137.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Udemy, Eric Ebling | Master Houdini FX: Create Stunning Visual Effects rigs (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185139.jpgsave_picture_185139.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:5639F3C03A3CBC7647037DF15F407D21F002D63B
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185142.jpgsave_picture_185142.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:F11B46D67ED04AA58D74C74F5C807E418EB821AD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185143.jpgsave_picture_185143.jpg" />
 </div>
 
 

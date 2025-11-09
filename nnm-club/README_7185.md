@@ -6,7 +6,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245763.jpgsave_picture_245763.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cinderella - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245764.jpgsave_picture_245764.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ FolderSizes 9.5.421 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245765.jpgsave_picture_245765.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Iron Mask - Studio Albums (7 releases) (2002-2020) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245766.jpgsave_picture_245766.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ AOMEI Backupper Pro 6.9.1 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245767.jpgsave_picture_245767.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Slegest - Avstand (2023) [FLAC|Lossless|WEB-DL|tracks] <Blackened Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245768.jpgsave_picture_245768.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - The Best of Trance 49 (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, En
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245769.jpgsave_picture_245769.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Nina Stark - Organic (2021) [AAC|~308 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245770.jpgsave_picture_245770.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:16D01EA9735E91BE61110A1C37C3B66F5598AB74
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245771.jpgsave_picture_245771.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:F02D63C5DD8025598484B677610FAA3ADE5A6588
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245772.jpgsave_picture_245772.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:BB6AC88E639248A070BB4A82B2599495C13481FF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245773.jpgsave_picture_245773.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ VA - Elegant New Trance Set (2021) [MP3|320 Kbps] <Trance, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245774.jpgsave_picture_245774.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:17F06E97FF6134ECD8AFF58583854099677A2C4A
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245775.jpgsave_picture_245775.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:6BA424870B0C469DFB9E6DF1CF23ECEC0CC720F4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245776.jpgsave_picture_245776.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Chillout Winter Paradise (2021) [AAC|~289 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245777.jpgsave_picture_245777.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ FPS Monitor 5420 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245778.jpgsave_picture_245778.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ RAW Power 3.4.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245779.jpgsave_picture_245779.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:167B7E444314FF4E1CB31BFA3F70784977705358
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245780.jpgsave_picture_245780.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ OmniFocus Pro 3 v3.11.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245781.jpgsave_picture_245781.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:AC8118B0681B452AF5BF504BE7A9ADDA5369C048
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245782.jpgsave_picture_245782.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:D04EF617916F8D3E77381B2C49B2C1D81D1DA7AC
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245783.jpgsave_picture_245783.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Serial Box & SerialSeeker 2023 - 04 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245784.jpgsave_picture_245784.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ John Di Martino's Romantic Jazz Trio - So In Love (2010) Venus Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245785.jpgsave_picture_245785.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:318A2BFA63D2404CBF005F446799FC54B81B2E0D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245786.jpgsave_picture_245786.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:C248FB8C07CE81C11E4902F6117EF2CFA2C1DA02
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245787.jpgsave_picture_245787.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:3E3CCBAF59D6FED2027B2837E91491B6A5018CDB
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245788.jpgsave_picture_245788.jpg" />
 </div>
 
 

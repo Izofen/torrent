@@ -6,7 +6,7 @@ Nickelback - Get Rollin' (2022) [MP3|320 Kbps] <Post-Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187438.jpgsave_picture_187438.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CDC20DA049D382B6B345F4C948F173EA618CD57F
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187439.jpgsave_picture_187439.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5D2200AFA1C3A71525B0A386AEE2EFFC84691103
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187440.jpgsave_picture_187440.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ LibreOffice 7.6.1.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187441.jpgsave_picture_187441.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Ocean Aquarium v1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187442.jpgsave_picture_187442.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Simple Sticky Notes 6.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187443.jpgsave_picture_187443.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:8FD6022EF9E88F0A13721933681921CB504905B5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187444.jpgsave_picture_187444.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Adguard 7.11.2 (7.11.4104.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187445.jpgsave_picture_187445.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:88716E0330DA95B36337B9EFC7BE6B6EC90DB4E7
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187446.jpgsave_picture_187446.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:F99009EFEB6C2224B350EFF17A719F6258C31412
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187447.jpgsave_picture_187447.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - Виктор Королёв и Ирина Круг•Букет из бел
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187448.jpgsave_picture_187448.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ YT Downloader 7.17.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187449.jpgsave_picture_187449.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Nickelback - Get Rollin' (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187451.jpgsave_picture_187451.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Pucc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187452.jpgsave_picture_187452.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Opera 93.0.4585.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187453.jpgsave_picture_187453.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Kdenlive 23.08.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187454.jpgsave_picture_187454.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:DEF2258C943BF0295E0CAA81E3757860C95893CB
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187455.jpgsave_picture_187455.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:AB6B179D8A036302FEEE9410807F51C243327F74
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187456.jpgsave_picture_187456.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:067A604CF9A20C4F12CFA3FF41861F92CF86B369
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187457.jpgsave_picture_187457.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:143A814E839154C409EA480BC48B039A10A081AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187458.jpgsave_picture_187458.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Autorun Organizer 5.38 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187459.jpgsave_picture_187459.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ NetLimiter 5.3.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187460.jpgsave_picture_187460.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:2A714C88BBDB6F99C4A6ECEF5675EBAF8540D8BE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187461.jpgsave_picture_187461.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Quick CPU 4.5.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187462.jpgsave_picture_187462.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ vRGB LED IR Remote Control v4.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187463.jpgsave_picture_187463.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Telegram Desktop 4.9.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187464.jpgsave_picture_187464.jpg" />
 </div>
 
 

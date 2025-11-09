@@ -6,7 +6,7 @@ Code Orange - The Above (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, h
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182361.jpgsave_picture_182361.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Stones Of Babylon - Ishtar Gate (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182362.jpgsave_picture_182362.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:F16C72C9EDEE9529EF5AD9BF58F847FE23FD66A0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182364.jpgsave_picture_182364.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NirLauncher Package 1.23.67 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182367.jpgsave_picture_182367.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:595375DA006DCD3D9697C8B26F1466D94F581A49
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182370.jpgsave_picture_182370.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Balearic Beats: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182371.jpgsave_picture_182371.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Aiseesoft Video Converter Ultimate 10.6.6 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182375.jpgsave_picture_182375.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Lane 8 - Fall 2023 Mixtape (2023-09-20) [MP3|320 Kbps] <Progressive House, Melod
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182376.jpgsave_picture_182376.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:F6B8B961D2A62DB74014928C9FDCB06E74E4BE85
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182377.jpgsave_picture_182377.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:80674084063F375C7522DD4458A476DA4AAC249B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182380.jpgsave_picture_182380.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ XYplorer 23.80.0000 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182383.jpgsave_picture_182383.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Keka 1.2.58 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182386.jpgsave_picture_182386.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Happy New Year 2023 (2022) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182387.jpgsave_picture_182387.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ InnoExtractor Plus 6.0.0.400 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182390.jpgsave_picture_182390.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:91D9ED33B30C43884A1389365885138A15B7989A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182392.jpgsave_picture_182392.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Audiobook Builder 2 2.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182394.jpgsave_picture_182394.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Dancing Services, Vol. 2 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182396.jpgsave_picture_182396.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:201060555744FA92DE36AB7F7A2B2394B38F29D4
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182399.jpgsave_picture_182399.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ StressMyPC 5.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182400.jpgsave_picture_182400.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Skype 8.91.0.404 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182403.jpgsave_picture_182403.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Steven Wilson - The Harmony Codex (2023) [MP3|320 Kbps] <Progressive rock, Art r
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182406.jpgsave_picture_182406.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Siskin - We Are Siskin (2023) Extended Mixes [MP3|320 Kbps] <Trance, Progressive
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182409.jpgsave_picture_182409.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:1D9BD587CB092B5AC9B78423A21F5B7D3037154D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182410.jpgsave_picture_182410.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Danny Bryant - Rise (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182413.jpgsave_picture_182413.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:7320377723082444AEEB2E7F67C387BF1370B6C3
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182414.jpgsave_picture_182414.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Trance Wax - Open Up The Night (2023) Extended Versions [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182418.jpgsave_picture_182418.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Throne Of Heresy - Decameron (2017) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239067.jpgsave_picture_239067.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sandboxie 5.64.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239070.jpgsave_picture_239070.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Calibre 6.19.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239072.jpgsave_picture_239072.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Ocean Dark - Hope & Chaos (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239073.jpgsave_picture_239073.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:3AAB5249372D891AF81F1FA69178A575FE502B34
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239074.jpgsave_picture_239074.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ xPlan4 Desktop 4.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239075.jpgsave_picture_239075.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:CA1E7E20D5432F1D4244FAA7AECE67D3FE0E3927
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239077.jpgsave_picture_239077.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:8D21B40AEF29C2EE65D50436DAC82B981B404946
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239079.jpgsave_picture_239079.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:0FD8871B1D0F6560D6E4E8104A10A43C715580CD
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239081.jpgsave_picture_239081.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:8238711DCC06638E5AD137A94E064D375ED56946
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239082.jpgsave_picture_239082.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Movist Pro 2.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239083.jpgsave_picture_239083.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:7B3E1226E481539F1624C1C8E58C6AFA8BCF02A0
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239084.jpgsave_picture_239084.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Gard Nilssen's Supersonic Orchestra - If You Listen Carefully the Music Is Yours
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239088.jpgsave_picture_239088.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Fort Firewall 3.9.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239089.jpgsave_picture_239089.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Throne Of Heresy - Antioch (2016) [FLAC|Lossless|WEB-DL|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239090.jpgsave_picture_239090.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:688B7419490880902EED3E0E8E17282165EDE953
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239092.jpgsave_picture_239092.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:BAFC13158CC541D0779CD1972FAC75A0A415B39A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239095.jpgsave_picture_239095.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ HWiNFO 7.27 Build 4865 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239096.jpgsave_picture_239096.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:F4457B39E116833BBCBA160AF6395F21A663DAF6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239098.jpgsave_picture_239098.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:B119AF2DA875E1DE7EBB2E159A7AB615007561DC
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239099.jpgsave_picture_239099.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Photo Effects Pro 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239101.jpgsave_picture_239101.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:29820648867F6425679301E8D82814655D5445A1
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239102.jpgsave_picture_239102.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:4489DE3E077CDE7199AF20834BE4255AEBA4E031
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239103.jpgsave_picture_239103.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Glary Tracks Eraser 5.0.1.260 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239104.jpgsave_picture_239104.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:5BF52E12797ED76C8D82EAD7653C4C7E4E6C4968
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239105.jpgsave_picture_239105.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ ColorWell 7.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239107.jpgsave_picture_239107.jpg" />
 </div>
 
 

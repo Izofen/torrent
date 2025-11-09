@@ -6,7 +6,7 @@ Pride Of Lions - Dream Higher (2023) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231346.jpgsave_picture_231346.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:57535772ECBE5D94CBF44ABD4217A78C0A9D8844
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231348.jpgsave_picture_231348.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Witchmaster - Witchmaster (2004) [FLAC|Lossless|image + .cue] <Black, Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231349.jpgsave_picture_231349.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Clark Terry Quintet - Top And Bottom Brass (1959) 1992, Original Jazz Classics [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231350.jpgsave_picture_231350.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:1CF939A84B0D1D5E74DBC6A1460A9E7B16272308
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231351.jpgsave_picture_231351.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:EA269165B213690A77E2F618E61BA1801276453B
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231352.jpgsave_picture_231352.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ pdfFactory Pro 8.40 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231353.jpgsave_picture_231353.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231354.jpgsave_picture_231354.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Viral Tyrant - Vultures Like You (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sto
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231356.jpgsave_picture_231356.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:AA5914104A60C2C2483C8E8290503C8AE4E4F0D2
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231358.jpgsave_picture_231358.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:FD9D61FB5F03B855265A2549E0D35BD784E39058
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231359.jpgsave_picture_231359.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ The Parallax Method - Folie a Trois (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231360.jpgsave_picture_231360.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Live Home 3D Pro Edition 4.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231361.jpgsave_picture_231361.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ GM EPUB Reader Pro 2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231362.jpgsave_picture_231362.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Whythre - Impregnate My Hate (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231363.jpgsave_picture_231363.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Sog - Man Demonic (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231365.jpgsave_picture_231365.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Lime - All Studio Albums (1981-2002) Collection [MP3|320 Kbps] <Electronic, Hi N
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231367.jpgsave_picture_231367.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ LDPlayer 9.0.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231368.jpgsave_picture_231368.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Summer Mix 2023 Beach Music (2023) [MP3|320 Kbps] <Dance, Club, House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231369.jpgsave_picture_231369.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:5761E765D3D44C2D3C3BA08CB276443868E8ACB2
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231370.jpgsave_picture_231370.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Yskelgroth - Unholy Primitive Nihilism (2010) [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231371.jpgsave_picture_231371.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ MotorTrinken - Involution (2023) [MP3|320 Kbps] <Heavy Metal/Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231372.jpgsave_picture_231372.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Gunner - Sinners (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231373.jpgsave_picture_231373.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ World End Man - Use My Knife (2018) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231376.jpgsave_picture_231376.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ PhotoDirector - Редактор фото 18.2.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231377.jpgsave_picture_231377.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Complete Internet Repair 9.1.3.6099 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231378.jpgsave_picture_231378.jpg" />
 </div>
 
 

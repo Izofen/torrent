@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82971.jpgsave_picture_82971.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:930A48CBC1F560694847F194F32301B6F5FFDA02
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82972.jpgsave_picture_82972.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 WPI Boot by OVGorskiy 16.03.2012
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82973.jpgsave_picture_82973.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Windows Server 2003 R2 SP2 (x64-x86) VOLUME [ENGLISH-RUSSIAN]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82975.jpgsave_picture_82975.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Need for Speed: The Run Limited Edition +DLC [Ru/En] (RePack/1.1) 2011 | Naitro
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82976.jpgsave_picture_82976.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Borland C++ Builder 6 Build 10.161 Enterprise Edition [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82977.jpgsave_picture_82977.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:76AD53CB3B7179D63C7028D983830AC17DA2F67A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82978.jpgsave_picture_82978.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ One Key Recovery 7 для Lenovo 7.0 [rus]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82979.jpgsave_picture_82979.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ One Key Recovery 7 для Lenovo 7.0 [rus]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82980.jpgsave_picture_82980.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ USB universal FINAL [русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82982.jpgsave_picture_82982.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (L/Steam-Rip) 2012
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82983.jpgsave_picture_82983.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (L/Steam-Rip) 2012
 >>Ported *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82984.jpgsave_picture_82984.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Gokusen / Гокусэн [2004, TV, 13 из 13] DVDrip 544p raw + rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82985.jpgsave_picture_82985.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Lenovo b570e One Key Recovery DVD Windows 7 x64 Ultimate 7.0 [rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82988.jpgsave_picture_82988.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Rog RocketDock 2012 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82990.jpgsave_picture_82990.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - Песни, Спетые Сердцем! (2012) [MP3|256 кб/с]<Шанс�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82995.jpgsave_picture_82995.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:DA248FD68C8224C2E9FF79B013ECEC81F89A902E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83001.jpgsave_picture_83001.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:ED1A48FC8EA4E987A9F4D1C1A46D887EC06EBCD6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83002.jpgsave_picture_83002.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Google Chrome 18.0.1025.109 Beta [Русский/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83004.jpgsave_picture_83004.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Chrome спроектирован сотрудниками Google с нуля, �
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83006.jpgsave_picture_83006.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:10B797DD970B77F3E960C551830B390F7196DCCE
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83007.jpgsave_picture_83007.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:10B797DD970B77F3E960C551830B390F7196DCCE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83008.jpgsave_picture_83008.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:4C2AFD40951DB211211CF3322BA1A9AD29A54223
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83009.jpgsave_picture_83009.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:15B0A83E9177EC9C886B49E4A1F72834FE3B0149
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83010.jpgsave_picture_83010.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:2021192EF0F76813C067E3015706FFDC325611C9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83011.jpgsave_picture_83011.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:2021192EF0F76813C067E3015706FFDC325611C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83014.jpgsave_picture_83014.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124763.jpgsave_picture_124763.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Demon - Hold On To The Dream (1991) Japanese Edition, Reissue, Remastered, 2020,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124764.jpgsave_picture_124764.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Evidence One - Tattooed Heart (2004) [APE|Lossless|image + .cue] <Melodic Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124765.jpgsave_picture_124765.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Evidence One - The Sky Is the Limit (2007) [APE|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124766.jpgsave_picture_124766.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Evidence One - Criticize the Truth (2002) Re-Release,  2007, AFM Records [APE|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124767.jpgsave_picture_124767.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Hazzerd - Delirium (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124768.jpgsave_picture_124768.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Evidence - Spiral (2002) Reissue, 2003, Irond [FLAC|Lossless|image + .cue] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124769.jpgsave_picture_124769.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Rock 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124770.jpgsave_picture_124770.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Grab Photos From Videos / Фото из видео v11.1.0 Mod by derrin [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124771.jpgsave_picture_124771.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:6D3FA815BD7285B1B7B5F762FBE33D0D386C9E53
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124772.jpgsave_picture_124772.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:356BB683D0206ABBF05674CB9CC7140D5EE55283
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124773.jpgsave_picture_124773.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Eisfabrik - Gotter in Weiss (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futu
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124774.jpgsave_picture_124774.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:2D19C70C50E84D40B37984A791A45F50582B7B10
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124775.jpgsave_picture_124775.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Public Memory - Elegiac Beat (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Left
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124776.jpgsave_picture_124776.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:62D53255D8D3C1931ACDC5EE5A4AE2CBBE024201
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124777.jpgsave_picture_124777.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:CE22196E630A01FFB870F7FB1E1EB294BE009594
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124778.jpgsave_picture_124778.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:FB36C8C937B2A33F911A741D25EBBFDAA8758D38
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124779.jpgsave_picture_124779.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:86697D5B577492D931BEAB300BCE13EF5CF4ED02
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124780.jpgsave_picture_124780.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:EAA125CDBAB91F0B2C0980CC709EC87AC7FE3636
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124781.jpgsave_picture_124781.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:513514D0F94A114C226DCCF6D1CF4BA737598746
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124782.jpgsave_picture_124782.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Todd Grubbs - Inside Your Brain (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124783.jpgsave_picture_124783.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:D22364CA61E8E725149F1EBC59284A0A9A4EF6A3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124784.jpgsave_picture_124784.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:A8E7FBFF97E7E5244D0DEA05C2D64576A38FF011
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124785.jpgsave_picture_124785.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:6A21AF08DCDD44523F52C434564859231120949B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124786.jpgsave_picture_124786.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Chase The Bear - Honey (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124787.jpgsave_picture_124787.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Public Memory - Elegiac Beat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124788.jpgsave_picture_124788.jpg" />
 </div>
 
 

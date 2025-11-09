@@ -6,7 +6,7 @@ Christmas Wonderland 11 (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165123.jpgsave_picture_165123.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Funky Just Away Dance (2022) [MP3|320 Kbps] <Chicago House, Soulful, Indie 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165124.jpgsave_picture_165124.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Music News vol.311 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165125.jpgsave_picture_165125.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:3D2696BD817DD46D0643BCA2381408F594AC6626
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165126.jpgsave_picture_165126.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Best Of Dance 2019 - The Radio Collection (2019) [MP3|320 Kbps] <Deep House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165127.jpgsave_picture_165127.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Opera GX 93.0.4585.72 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165128.jpgsave_picture_165128.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ FontExpert 2021 18.0 Release 1 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165129.jpgsave_picture_165129.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:C0125A0405A8A589E4516C96AEAAB288182F49CE
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165130.jpgsave_picture_165130.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ CyberLink PhotoDirector Ultra 15.0.10.1025 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165131.jpgsave_picture_165131.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Чёрный тюльпан 6 (2005) [FLAC|Lossless|tracks + .cue]<Шанс
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165132.jpgsave_picture_165132.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Daniel Deluxe - Ghostrunner (2020) Original Soundtrack [FLAC|Lossless|WEB-DL|tra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165133.jpgsave_picture_165133.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:BD20C6D1E3267B8C4B63123A924975FCA7FCE4CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165134.jpgsave_picture_165134.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:92D68BBBCD815F6AF5F0EC9D1B9678EC1A8F5A31
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165135.jpgsave_picture_165135.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:6C02F30028AD8E8E8B265A2752E04EDBC7F74249
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165136.jpgsave_picture_165136.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:6FBB1167B0F253D18766E29CFE88FBAD23D3052C
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165137.jpgsave_picture_165137.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Abora Recordings: Best Of 2021 (Mixed By Ori Uplift) (incl. Extended Mixes)
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165138.jpgsave_picture_165138.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:17CEF988E09DEC3FAEBDC78EA0AB9EE021D80FDD
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165139.jpgsave_picture_165139.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Topaz Video AI 4.0.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165140.jpgsave_picture_165140.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:1AB024475B75C00D8E294A1AAD0A048D04CB273C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165141.jpgsave_picture_165141.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ GoodSync Enterprise 10.10.16.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165142.jpgsave_picture_165142.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:0298C1DE0E142DD862476A4F96948ACEBE30DAAA
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165143.jpgsave_picture_165143.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165144.jpgsave_picture_165144.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:0B43F902A87DF8C37F175AD3CFB6A685AEC7ECCD
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165145.jpgsave_picture_165145.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Firefox Browser 84.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165146.jpgsave_picture_165146.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Beautiful Sound Of Trance Music (2019) [MP3|320 Kbps] <Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165147.jpgsave_picture_165147.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:C41C566BAB01BAFDF3F10DC559EC44FCAEED6EF0
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165148.jpgsave_picture_165148.jpg" />
 </div>
 
 

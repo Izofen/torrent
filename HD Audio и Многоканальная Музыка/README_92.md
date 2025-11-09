@@ -6,7 +6,7 @@ Sparks - MADDER! (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98605.jpgsave_picture_98605.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ River Arrow - R.A.W (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100536.jpgsave_picture_100536.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ronnie Baker Brooks - Blues In My DNA (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100537.jpgsave_picture_100537.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tuff Luck - An Acoustic Afternoon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100539.jpgsave_picture_100539.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Blues Rock Generations - Blues Rock Generations No.6 (2024) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100545.jpgsave_picture_100545.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rosie & the Revival - Soundchecks and Tape Decks (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100548.jpgsave_picture_100548.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Forever Desire - Beings of Wonder (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100549.jpgsave_picture_100549.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Lo Greco Bros, The Man With The Horn and Soulstance - The Electric Sessions  (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100550.jpgsave_picture_100550.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Omar And The Howlers - Rhythm and Western (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100551.jpgsave_picture_100551.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Rick Fowler Band - RFB (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100553.jpgsave_picture_100553.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Leavin' Trunk - The River (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100555.jpgsave_picture_100555.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Juanma Torres - Swing City Sessions #3 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100556.jpgsave_picture_100556.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ A Plane To Catch - Soul Piece (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100557.jpgsave_picture_100557.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Bump2Soul - Bump2Soul Live Vol. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100558.jpgsave_picture_100558.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:635CA79CBAD602C7CBC0843040BBA14AA58C8AC0
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_100606.jpgsave_picture_100606.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Natalia Lafourcade - Natalia Lafourcade Live at Carnegie Hall 2022 (2024) [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100608.jpgsave_picture_100608.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ FROM - Can’t Stand The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100648.jpgsave_picture_100648.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Mike McCorison lyric writer - The Wild Viking Project V2 (2024) [FLAC 24/48|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100649.jpgsave_picture_100649.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Marcus King - Mood Swings (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100656.jpgsave_picture_100656.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Ned Evett - Strange Kind Of Freedom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100657.jpgsave_picture_100657.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Mesquite Cafe - Raven's Cry (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100658.jpgsave_picture_100658.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Mark Bennett Gartman - Crossing of the Roads (2024) [FLAC 24/192|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100659.jpgsave_picture_100659.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Kripton - Fire on My Strings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100660.jpgsave_picture_100660.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Mad Dillon's Deputies - Biting Dynamite (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100661.jpgsave_picture_100661.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Mako - Virtual Blues II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100662.jpgsave_picture_100662.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Lance and Lea - Boots & Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Countr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100663.jpgsave_picture_100663.jpg" />
 </div>
 
 

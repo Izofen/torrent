@@ -6,7 +6,7 @@ Nedrugh - Depersonalize (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236543.jpgsave_picture_236543.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Delorian Domain - Alchemilla (2017) [FLAC|Lossless|WEB-DL|tracks] <Extreme Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236617.jpgsave_picture_236617.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Shabnak - Fusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Tribal Metal, Industrual 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236647.jpgsave_picture_236647.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Egor Lappo - Trancevoicer (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236716.jpgsave_picture_236716.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:820AB441420FC2B4016A359C8EB81C353A9548C5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236772.jpgsave_picture_236772.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:0C2EDCB7B7B35400FE4F6B73B32AD353181C613B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236790.jpgsave_picture_236790.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:8DF69E88FFFDB60CA1671F6863078D3C9B1EC188
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236844.jpgsave_picture_236844.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Total - 4 Albums + 7 Singles (2001-2021) [FLAC, WV|Lossless|image + .cue, tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237659.jpgsave_picture_237659.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Autumn Rain Melancholy - Одиночество (2023) [FLAC|Lossless|WEB-DL|tra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237728.jpgsave_picture_237728.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:857241ABCF9DB0FBE5D0C4A50317D1B0A1DBBEAC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237747.jpgsave_picture_237747.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:650CDD3CACD6E77D5B8672C2B4405CA75D416AE9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237807.jpgsave_picture_237807.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:C91115CA4B164BD10826C50A64660EAFA988CB2E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237886.jpgsave_picture_237886.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Loners - Отражения (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Pos
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238105.jpgsave_picture_238105.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:1F20A79894F729C42FD6A746BACEB588E3F27EF5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238175.jpgsave_picture_238175.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:7BAC83248C1D81ACA2EC11C18E95F37065A4A740
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238356.jpgsave_picture_238356.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Hyperomm - Designing Apocalypse (2023) [FLAC|Lossless|image + .cue] <Melodic Dea
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238614.jpgsave_picture_238614.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:C19E7D4DBE277E49C10EAAF3D0B86D88EE8C194C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238923.jpgsave_picture_238923.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:9E64F9A3ACB3D2AC3436576497CAB585F4E4E4EC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238993.jpgsave_picture_238993.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:3EB93ECC186E669B20AFF755D1C05169F792E73A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239892.jpgsave_picture_239892.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Black Scum - .INI (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240028.jpgsave_picture_240028.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Пипл про | To Purple. Российско-Белорусское по
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240170.jpgsave_picture_240170.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Roobanok - Космос умеет прощать (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240313.jpgsave_picture_240313.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:19C11BB9E5CDFEA4126269DCEAF2B4F356EE7DFF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240406.jpgsave_picture_240406.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Blaze To Raise - Blaze to Raise (2023) [FLAC|Lossless|WEB-DL|tracks] <MetalCore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240621.jpgsave_picture_240621.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Elena Volkova And Alex K. Strangel - Nova (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240633.jpgsave_picture_240633.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:099CC632F0279BA15BA7E8C77989BBCD9A80F81B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240655.jpgsave_picture_240655.jpg" />
 </div>
 
 

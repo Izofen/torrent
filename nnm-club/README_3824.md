@@ -6,7 +6,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119809.jpgsave_picture_119809.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E02870E64375480EF76BCF8D55EA52F7D6DFD4BC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119810.jpgsave_picture_119810.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Linda Susan Bauer - Dynamite (1982) LP [MP3|320 Kbps] <Electronic, Funk Soul, Po
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119811.jpgsave_picture_119811.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ V.A. - Buddha-Bar Beach & Love by Ravin (2023) [FLAC|Lossless|WEB-DL|tracks] <Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119812.jpgsave_picture_119812.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Soft Jazz Music, Jazz Music Zone - Vintage Jazz at Twilight (2024) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119813.jpgsave_picture_119813.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Emurasoft EmEditor Professional 23.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119814.jpgsave_picture_119814.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Romantic Candlelight Orchestra, Love Music Zone - Candlelit Piano Fancy Romantic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119815.jpgsave_picture_119815.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:A8D66A42CA7BDE544CFC81FE69EB5C3F48839497
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119816.jpgsave_picture_119816.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:5F2E08F9AF4C998B23FF61321242BF912B69B219
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119817.jpgsave_picture_119817.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ PDF24 Creator 11.16.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119818.jpgsave_picture_119818.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ MediaInfo 24.01.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119819.jpgsave_picture_119819.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ NoMachine 8.11.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119820.jpgsave_picture_119820.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ XMind Pro 2024 24.01 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119821.jpgsave_picture_119821.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ FanControl V180 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119822.jpgsave_picture_119822.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Soul Browser 1.4.03 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119823.jpgsave_picture_119823.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ JMG Sound Plugins Bundle 2024.01 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119824.jpgsave_picture_119824.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:6014A5E59A53C442352881793DC38017D25CE305
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119825.jpgsave_picture_119825.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:5A6477E0E0835857D28D4C1E41996278A4735C95
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119826.jpgsave_picture_119826.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ HWiNFO 7.70 Build 5350 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119827.jpgsave_picture_119827.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - Music News vol.336 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119828.jpgsave_picture_119828.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Александр Зацепин. 31 июня (2021) [FLAC|Lossless|tracks
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119829.jpgsave_picture_119829.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ PrivaZer Pro 4.0.82 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119830.jpgsave_picture_119830.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:50B07D82C9B02D2B2117FF7033D05367F00DDDE1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119831.jpgsave_picture_119831.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Shotcut 24.01.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119832.jpgsave_picture_119832.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Pale Moon 33.0.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119833.jpgsave_picture_119833.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:EFC9EA3277AE7DD3BC0FB273E9BEFAA0B005AC5A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119834.jpgsave_picture_119834.jpg" />
 </div>
 
 

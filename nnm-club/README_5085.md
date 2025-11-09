@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158919.jpgsave_picture_158919.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LEGO Скуби-Ду!: Призрачный Голливуд / Lego Scooby-Doo!:
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158920.jpgsave_picture_158920.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Technimatic - For All Of Us (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, L
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158921.jpgsave_picture_158921.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sumatra PDF 3.5.15264 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158922.jpgsave_picture_158922.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:28F602AE55E55601873BF27A3621C26F3D9FEE4D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158923.jpgsave_picture_158923.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:38F902CAC704BA6DB502E9BCE5CEFB4C18337FB0
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158924.jpgsave_picture_158924.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:1DDA2520BBA68BB1417C5D6DE60AFF258C83B622
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158925.jpgsave_picture_158925.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:0619D86BA939893D3C1BF879698380464195F39B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158926.jpgsave_picture_158926.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:233CB39B3328387CDE76C16172F8DF78F325E5F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158927.jpgsave_picture_158927.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:DF7FF12765D26743A5E0ED86F5D1D90FA2CA98E1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158928.jpgsave_picture_158928.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:D5B63B38812D80A22A9E1FB67E223EEA6E12EA65
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158929.jpgsave_picture_158929.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Zhimin Zhan | Selenium WebDriver Recipes in Java (2021) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158930.jpgsave_picture_158930.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ RSS Guard 4.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158931.jpgsave_picture_158931.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:BAD4B6BD0C658423C05E517543946E2EB617C4C8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158932.jpgsave_picture_158932.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Trance In Motion Vol.366 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158933.jpgsave_picture_158933.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:FE9D396D1920688A6F55E9D2D50882BA18E5005D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158934.jpgsave_picture_158934.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:45E045E6A4DEC0C8ADAAB052302B2ABE2E27BE9E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158935.jpgsave_picture_158935.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:5315052B2807F8A7D7033B17F1947D767AB2AD5A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158936.jpgsave_picture_158936.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:9CEE5C9F7475BDF9B68A59407D09F7498E82A936
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158937.jpgsave_picture_158937.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ One Commander Pro 3.28.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158938.jpgsave_picture_158938.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:E811AED33ACDEFA745259C6EC7B6CCEDA3CB9D15
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158939.jpgsave_picture_158939.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Zhimin Zhan | Selenium WebDriver Recipes in Node.js (2021) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158940.jpgsave_picture_158940.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Pythius - Turmoil (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Neurofunk>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158941.jpgsave_picture_158941.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - BEST OF 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House. 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158942.jpgsave_picture_158942.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Trance In Motion Vol.365 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158943.jpgsave_picture_158943.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ KORG - Modwave Native 1.0.2 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158944.jpgsave_picture_158944.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173642.jpgsave_picture_173642.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ simplewall 3.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173643.jpgsave_picture_173643.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:081B80EA2A0D91FBB4365F3C9E0A4A6CB51F2803
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173644.jpgsave_picture_173644.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Telegram Desktop 4.4.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173645.jpgsave_picture_173645.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Audio Hijack 3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173647.jpgsave_picture_173647.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:6324421B6B73977010A3D98FC02104FE92C5AE1B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173648.jpgsave_picture_173648.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:C25F00742EBC991641302EDA515D8C22F0958762
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173649.jpgsave_picture_173649.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:02217428EA0C49924C804E2D252D614F86F9F6CF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173650.jpgsave_picture_173650.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173651.jpgsave_picture_173651.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ StartAllBack 3.1.5.4186 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173653.jpgsave_picture_173653.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Audacity 3.2.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173654.jpgsave_picture_173654.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:C02F226057210A0FDD704C0F30D0BEA7C076FECA
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173655.jpgsave_picture_173655.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Body Language: Hot Sexual Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173656.jpgsave_picture_173656.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:FA2C35EFA208592CD20A02860258E96B16C8DD9D
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173657.jpgsave_picture_173657.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Vocal Trance Gems: Best Of (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173658.jpgsave_picture_173658.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:C858EFB09B956D224597D25D7683B034D21652A6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173659.jpgsave_picture_173659.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:4173A23BD213ADFF1E398DAE73D3214839634BA8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173660.jpgsave_picture_173660.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Artlantis 2021 v9.5.2.24851 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173662.jpgsave_picture_173662.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:2F4E79909BC533C84667DC3172E8033FEEF83F1F
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173663.jpgsave_picture_173663.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:925A03C5D19719C652F357C6C198D379194F6D90
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173664.jpgsave_picture_173664.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:FFAD75DF142626CB04E3522C8BC0AAC8230C126E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173665.jpgsave_picture_173665.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Antivirus Removal Tool 2023.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173666.jpgsave_picture_173666.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:5540B649301D11418C81CFFA3BDFE4C077AAEAB9
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173667.jpgsave_picture_173667.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ djay Pro AI 3.0.3  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173668.jpgsave_picture_173668.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Valhalla DSP Bundle 2021.12 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173670.jpgsave_picture_173670.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Romantic DANCE (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173671.jpgsave_picture_173671.jpg" />
 </div>
 
 

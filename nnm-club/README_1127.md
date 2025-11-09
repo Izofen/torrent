@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29657.jpgsave_picture_29657.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0A17669065D6D3EA9A4FCBD9565EDCEF2532D1A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29658.jpgsave_picture_29658.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:94FF1CC0911E38F4BC43C2C1AE2A0D09F0627CE4
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29659.jpgsave_picture_29659.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:03B6FC7D6BBF8119DDE6B0DF1C966DAC3004CD48
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29660.jpgsave_picture_29660.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Wondershare Filmora 14.3.2.11147 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29661.jpgsave_picture_29661.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:49C0E0DB12DC6B8E58814048A65A49732A7D7E8B
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29662.jpgsave_picture_29662.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:967CB695F8BDBF85ABD845C2039CE0CC2B5EA11E
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29663.jpgsave_picture_29663.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ BBC. Космическая одиссея. Путешествие по гала
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29664.jpgsave_picture_29664.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:688F5EDDCA2ED760425A85F25D730947D3F4DBCB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29665.jpgsave_picture_29665.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:3FD7A395E522769AEF1970B8662BEB54F3AA9F9A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29666.jpgsave_picture_29666.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:F2104E5A69549B2E3D856B9882B0E5C83C532BF3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29667.jpgsave_picture_29667.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Bethesda подтвердила дату выхода Doom: The Dark Ages — г
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29668.jpgsave_picture_29668.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Bethesda подтвердила дату выхода Doom: The Dark Ages — г
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29669.jpgsave_picture_29669.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ StartAllBack 3.9.2 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29670.jpgsave_picture_29670.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:E4EEA6043611601F75FAFD6EA206A8D9C7E3EB6F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29671.jpgsave_picture_29671.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:2592A31A760EA92F58E5BCA5076AC36C9B0490BC
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29672.jpgsave_picture_29672.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Softany WinCHM Pro 5.54 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29673.jpgsave_picture_29673.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:EBD861427A6FA7CADFD03CA5C791AAB3F7F4F8A4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29674.jpgsave_picture_29674.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:BCBB4DB2239DEDF1DA24368D1A1005EA20CE98E4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29675.jpgsave_picture_29675.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:061AC587E0441DB01CF1305B24AD7964D530B911
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29676.jpgsave_picture_29676.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:205D215970CBE3902895E9C6C940C0D37EC720C9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29677.jpgsave_picture_29677.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:12111BD0D74652988A1DFB7BF9773981D3993802
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29678.jpgsave_picture_29678.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Fort Firewall 3.15.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29679.jpgsave_picture_29679.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:F9DCD1BB58DDFD162BE923D778FD52555E14CFCE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29680.jpgsave_picture_29680.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:2E5AEBD1249FC7A120698D412A60926A8E86261D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29681.jpgsave_picture_29681.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Textra SMS v4.79 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29682.jpgsave_picture_29682.jpg" />
 </div>
 
 

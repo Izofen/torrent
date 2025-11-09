@@ -6,7 +6,7 @@ Crematory - Inglorious Darkness (2022) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49964.jpgsave_picture_49964.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Amorphis - Tales From The Thousand Lakes (1994) Live At Tavastia, Remastered, 20
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50329.jpgsave_picture_50329.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mr. Big - Ten (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50337.jpgsave_picture_50337.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:86799D7B384B093EB7BF5D0EDC8EBA69C2BE99D9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50550.jpgsave_picture_50550.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Blue Cheer - Lone Star Cafe, New York 1984 Live (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50649.jpgsave_picture_50649.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:F93F54A1AB54B06A79CE6B60F47BE69E2FF75A13
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50655.jpgsave_picture_50655.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Slaughter To Prevail - 4 Albums, 4 Singles (2015-2024) [FLAC|Lossless|WEB-DL|tra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50753.jpgsave_picture_50753.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:8EE330844FAABB2513340D040219A380E2A14E8F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50769.jpgsave_picture_50769.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Black Sabbath - Anno Domini (1989-1995) Reissue, Remastered, 2024, Warner Record
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50771.jpgsave_picture_50771.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Deep Purple - Lazy Sod (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50773.jpgsave_picture_50773.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:987B5AD43DD671732FBE4CF9CEB8B2900F53B671
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50836.jpgsave_picture_50836.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Chuck Berry - Greatest Hits (2004) [WavPack|Lossless|image + .cue] <Rock & Roll>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50975.jpgsave_picture_50975.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Eric Clapton - To Save a Child (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51069.jpgsave_picture_51069.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Visions Of Atlantis - Pirates II Armada (2024) [MP3|320 Kbps] <Melodic, Symphoni
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51080.jpgsave_picture_51080.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ R.E.M. - R.E.M.'s Top Forty Playlist (according to Berry, Buck, Mills and Stipe)
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51281.jpgsave_picture_51281.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Through Fire - Devil's Got You Dreamin' (2023) [MP3|320 Kbps] <Alternative Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51588.jpgsave_picture_51588.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Nebula & Black Rainbows - In Search Of The Cosmic Tale: Crossing The Galactic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51596.jpgsave_picture_51596.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Imagine Dragons - Loom (2024) [MP3|320 Kbps] <Pop Rock, Indie Rock, Alternative 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51706.jpgsave_picture_51706.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:2F68A3A26EBDB482EFFA53879D5CD6DA1C1A61A7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51707.jpgsave_picture_51707.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Warning - Keep Me Fed (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51816.jpgsave_picture_51816.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Louna - 9 Albums + 12 Singles + 3 Live + 4 Compilation (2009-2023) [MP3|320 kbps
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51987.jpgsave_picture_51987.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Paul McCartney - 50 Albums, 14 Box-sets, 2 Singles, 166 CD (1970-2024) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51988.jpgsave_picture_51988.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Louna - 9 Albums + 11 Single + 3 Live's + 4 Compilation (2010-2023) [FLAC|Lossle
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51991.jpgsave_picture_51991.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Borne Of Ash - From the Dark, They Came (2024) [FLAC|Lossless|WEB-DL|tracks] <At
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52024.jpgsave_picture_52024.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:3B9F177FF8ECF8FD8CDF4FD2873A196641230314
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52028.jpgsave_picture_52028.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Graceless - Icons Of Ruin (2025) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52054.jpgsave_picture_52054.jpg" />
 </div>
 
 

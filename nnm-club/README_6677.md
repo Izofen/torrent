@@ -6,7 +6,7 @@ Diamondback - American Made (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard B
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229088.jpgsave_picture_229088.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ NorthTale - Eternal Flame (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229090.jpgsave_picture_229090.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Romantic Feelings (2020) [MP3|320 Kbps] <Pop, Lyric, Romantic Songs>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229091.jpgsave_picture_229091.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Klaada - Antipodes Of The Self-Conscious Mind (2019) [FLAC|Lossless|WEB-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229092.jpgsave_picture_229092.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Skold - Seven Heads (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Indus
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229093.jpgsave_picture_229093.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Change MAC Address 3.3.1 Build 129 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229094.jpgsave_picture_229094.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:36A31B9E15427B84F146265675561BF57C26B85B
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229095.jpgsave_picture_229095.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:7697AF081C7E92C6C3B0A160CF1D958C74F2EF21
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229096.jpgsave_picture_229096.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Sea Of Snakes - The Serpent & The Lamb (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229098.jpgsave_picture_229098.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:FD3DD51F95C3044786AAA1AB3BF0B5581F9C21B3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229099.jpgsave_picture_229099.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:B33FA156F4CC1F7806E4A33D758330FBAA7021B8
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229100.jpgsave_picture_229100.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - The Chill Collective: Blissful Summer Vibes (2023) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229101.jpgsave_picture_229101.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:45B5C0C535D4B721045055034D12F473F6D34BEB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229102.jpgsave_picture_229102.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ RegCool 1.202 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229103.jpgsave_picture_229103.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ The Neon Philharmonic Orchestra - Switched On Classics (1997?) 4CD, Box Set [MP3
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229104.jpgsave_picture_229104.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Diabology - Father of Serpents (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229105.jpgsave_picture_229105.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ db and Ishq - Inbetween (2020) Virtual [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229106.jpgsave_picture_229106.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Paw 3.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229107.jpgsave_picture_229107.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:FF1147BADF9A539DEFB01C21253E7A9BCF2901C1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229108.jpgsave_picture_229108.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Trance Aliens (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229109.jpgsave_picture_229109.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:8DB936BFD15DDB52F243966250433759C7EFD281
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229110.jpgsave_picture_229110.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:6C1FA343861A53E761B2DD93FD0DD71B92B34334
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229111.jpgsave_picture_229111.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Distruster - Sic Semper Tyrannis (2022) [FLAC|Lossless|WEB-DL|tracks] <Crust, Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229112.jpgsave_picture_229112.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Lordi - Lordiversity: Superflytrap (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229113.jpgsave_picture_229113.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - 20 Original Debut-Albums by 20 Rock & Roll Stars (2015) 10CD [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229114.jpgsave_picture_229114.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:F6ACFBF73B0552DC26C9F809E9FEB95074F1AB45
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229115.jpgsave_picture_229115.jpg" />
 </div>
 
 

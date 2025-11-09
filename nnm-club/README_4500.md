@@ -6,7 +6,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140743.jpgsave_picture_140743.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Avalanche - Westbound (1992) [MP3|320 Kbps] <Pop, Electronic Pop Rock, Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140745.jpgsave_picture_140745.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Renault CAN Clip v202  [Multi/Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140747.jpgsave_picture_140747.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:BC093C7EC923F18E9A0A552444A2F22CEFD3DEA9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140748.jpgsave_picture_140748.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:33D26EACC199096957ECEAE377379232DB202F35
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140749.jpgsave_picture_140749.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:99FDC89386C929740D1298ADF7C6D512646C9D4C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140750.jpgsave_picture_140750.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Bears Wallpapers (17.12.12)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140751.jpgsave_picture_140751.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:EDCD8DF2C7C0A97D49E21236E13BF2C6D4B9DC93
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140753.jpgsave_picture_140753.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ The KiCad Team | Мануал для ПО "KiCad" [10 книг] (12.2020) [PDF, 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140754.jpgsave_picture_140754.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:CE058ECAB265BA9C5323F76C3CB7D4F4200E8E46
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140755.jpgsave_picture_140755.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Helicopters Wallpapers (17.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140756.jpgsave_picture_140756.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:9916B17DB3608BBF840BFB197A44C5C6B86E6B3D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140757.jpgsave_picture_140757.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:AB4E92AC69378761AA55F580FE4FB4AD8C179BA3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140758.jpgsave_picture_140758.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:8A331E5706C4665A067260C8953A8D22C0A6CA68
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140759.jpgsave_picture_140759.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:6CF9CF419FE4425A134B8C7514CEFB72CA53C67F
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140761.jpgsave_picture_140761.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ App Swap Drawer Premium v1.0.2.512 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140762.jpgsave_picture_140762.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:7E9269F480609924A0B6AED8E6467F25BF3CE73E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140763.jpgsave_picture_140763.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:127CA665694170F4112D5198F42C32F7CF0C45B4
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140764.jpgsave_picture_140764.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:255CFAB5422A196FB596CB18EC25CE4303148B03
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140765.jpgsave_picture_140765.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:9C92C7150531C9802549737910D129C517A07F66
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140766.jpgsave_picture_140766.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:1DED084D233A25AD21F3403EE84CE19F3C0F1130
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140768.jpgsave_picture_140768.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Better Than Sex (2CD) (2016) [MP3|320 Kbps] <Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140769.jpgsave_picture_140769.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Panda Free Antivirus 16.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140772.jpgsave_picture_140772.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Foxit PDF Reader 2023.3.0.23028 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140773.jpgsave_picture_140773.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Gilrs Wallpaper (17.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140774.jpgsave_picture_140774.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Farming Simulator 19 v.1.4.1 (2018) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140775.jpgsave_picture_140775.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78656.jpgsave_picture_78656.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Tiny Bang Story [Native] [Rus]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78668.jpgsave_picture_78668.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:9C9B7148A0B81BD97B2C0033E8A5CFD609AC7EA9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78672.jpgsave_picture_78672.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Portable Microsoft Office Enterprise 2007 PreSP3 DreamEdition 2010.2 Win7x86 & W
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78673.jpgsave_picture_78673.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Microsoft Office Enterprise 2007 - исчерпывающий комплект �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78675.jpgsave_picture_78675.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:3FACDBA6F3C0197E18D2053968A3A8927CBB1400
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78677.jpgsave_picture_78677.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Macromedia HomeSite 5.5 [Русский]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78682.jpgsave_picture_78682.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Windows 7 Ultimate x64 Enigma 3in1 R.G.Win&Soft v.21.02.12 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78683.jpgsave_picture_78683.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ G-force Platinum 3.7.5 [Русский] система зрительных об
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78684.jpgsave_picture_78684.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ G-Force Platinum - одна из самых популярных систем з
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78687.jpgsave_picture_78687.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:FA3B81452A8C484C6CE10D7D2EEC029EB7C085B4
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78689.jpgsave_picture_78689.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:0C5271C1BDE405624153B633D32F79DF58923631
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78708.jpgsave_picture_78708.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:250A9E687299806F8E19A45F5F467429D1361656
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78709.jpgsave_picture_78709.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:3E37D9B111357A88C8EEF691E0309244F629B764
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78715.jpgsave_picture_78715.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:B898025935DE4975F63F3F9AF4CD077FE25794D9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78719.jpgsave_picture_78719.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:B898025935DE4975F63F3F9AF4CD077FE25794D9
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78723.jpgsave_picture_78723.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Ja Rule - Pain Is Love 2 (2012) [MP3|320 кб/с]<Rap / Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78725.jpgsave_picture_78725.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ PhotoLine 16.54 ML+Rus Portable 16.54 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78731.jpgsave_picture_78731.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ PhotoLine 16 - всепригодная программа представля�
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78734.jpgsave_picture_78734.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Emma Hewitt - Colours (Armin van Buuren Remix) (2012) HDRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78735.jpgsave_picture_78735.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sigue Sigue Sputnik – Live In Tokyo (2003) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78740.jpgsave_picture_78740.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Sigue Sigue Sputnik – Live In Tokyo (2003) DVD5
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78741.jpgsave_picture_78741.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ The New Year Bustle / Новогодняя Суматоха (P) [Ru] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78743.jpgsave_picture_78743.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:2E7942345B4F5A4668600B9EECDF49C489258903
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78744.jpgsave_picture_78744.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:2E7942345B4F5A4668600B9EECDF49C489258903
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78747.jpgsave_picture_78747.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Record Super Chart № 229 (25.02.2012) [MP3|~142-320 кб/с]<House, Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78749.jpgsave_picture_78749.jpg" />
 </div>
 
 

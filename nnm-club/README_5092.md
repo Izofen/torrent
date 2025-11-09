@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159102.jpgsave_picture_159102.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Solid Factory, Антон Ильин | SolidWorks. Продвинутый кур
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159103.jpgsave_picture_159103.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:40305324BEECE3BA9516F4CBF8E3AC476257E879
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159104.jpgsave_picture_159104.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:162AE2F0F14B03BC4D0BD5B368D13C9119990FF7
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159105.jpgsave_picture_159105.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Yuusha Party o Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Deau
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159107.jpgsave_picture_159107.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E18FA785C35FA2F4B9FA8A500427061EAA205299
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159108.jpgsave_picture_159108.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:525541501757BCE03B9A5306267AC76357546E81
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159109.jpgsave_picture_159109.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:05855EDA2D7E7654578D02A1710A97B3E229766D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159110.jpgsave_picture_159110.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:D1E76EEF63206A9A077FDF5588A0EF3AF64D9B51
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159112.jpgsave_picture_159112.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:78CBC632C270F0EEAA446FF9B06B7F7D6B33EFA4
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159113.jpgsave_picture_159113.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:BD04528BB7101B819E315A774D1597886FF318DE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159114.jpgsave_picture_159114.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:4F65286D39EC2E671E23D896FFAD00DFEDAE575D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159115.jpgsave_picture_159115.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:F49E18CBD7094CE081B59951364A9D8183ED9358
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159116.jpgsave_picture_159116.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:A2124E09FC31BCA56B1B6E6C8BE119FAD90D7FC5
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159117.jpgsave_picture_159117.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Project Lazarus (2023) [Ru/Multi] (7.1) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159118.jpgsave_picture_159118.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:2F562182B2E62F823FB1FE856169FBE5FEB13842
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159119.jpgsave_picture_159119.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:2DB6841F95C561A81BBAC7C811FDAF4EB6C51D58
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159120.jpgsave_picture_159120.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:4424D755D7E137042B1EF8535CEFC8357FF3C23C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159121.jpgsave_picture_159121.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:91C34E2564983737E9693D1AB3DD4BC77D813032
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159122.jpgsave_picture_159122.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:35CDEED2466E2BF3CACFBDAAEC17DDDFBC31FA4B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159123.jpgsave_picture_159123.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:08325BBCF825455B2FAAEF6FC4056DFACB63415E
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159124.jpgsave_picture_159124.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:8D59D2CD3079B334D051E67D5877CD906A47A50C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159125.jpgsave_picture_159125.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:3A99999DC0F3E1956D4726F504A7CD5DC1F244CB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159126.jpgsave_picture_159126.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:8B765B32AE875166FF7739662A5765AC4F880447
 >>Игровое видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159127.jpgsave_picture_159127.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Yuusha Party wo Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Dea
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159128.jpgsave_picture_159128.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:009B0A486AF04033C5447AB65FF280D6BB0A5887
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159129.jpgsave_picture_159129.jpg" />
 </div>
 
 

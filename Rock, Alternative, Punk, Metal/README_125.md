@@ -6,7 +6,7 @@ Hour of Penance - Misotheism (2019) [FLAC|Lossless|WEB-DL|tracks] <Technical, Br
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108010.jpgsave_picture_108010.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hour of Penance - Disturbance (2003) [FLAC|Lossless|image + .cue] <Technical, Br
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108014.jpgsave_picture_108014.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Hour of Penance - Pageantry for Martyrs (2005) [FLAC|Lossless|image + .cue] <Tec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108015.jpgsave_picture_108015.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Hour of Penance - The Vile Conception (2008) [FLAC|Lossless|image + .cue] <Techn
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108016.jpgsave_picture_108016.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Hour of Penance - Cast the First Stone (2017) [FLAC|Lossless|image + .cue] <Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108017.jpgsave_picture_108017.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Black Diamonds - Destination Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108020.jpgsave_picture_108020.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Libra - Follow The Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108028.jpgsave_picture_108028.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Highways - Never Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108032.jpgsave_picture_108032.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Carmen - The Albums: 1973-1975 (3CD Boxset) (2024) Remaster, 2024,  Esoteric [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108050.jpgsave_picture_108050.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hour of Penance - Devotion (2024) [FLAC|Lossless|WEB-DL|tracks] <Technical, Brut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108063.jpgsave_picture_108063.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Alan Parsons Project - Eye In The Sky (Sessions) (1982) Reissue, Remastered,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108089.jpgsave_picture_108089.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Hellway Train - Borderline (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108095.jpgsave_picture_108095.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Gone til Winter - The First Season (2011) Compilation [MP3|320 Kbps] <Gothic Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108100.jpgsave_picture_108100.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Gone til Winter - Gone til Winter (2009) Demo [MP3|320 Kbps] <Gothic Metal, Rock
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108102.jpgsave_picture_108102.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Gone til Winter - Hiding from the Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108113.jpgsave_picture_108113.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Humanity Gone - Everything Nothing (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108121.jpgsave_picture_108121.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Gone til Winter - Hear Me (2009) Single [MP3|320 Kbps] <Gothic Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108127.jpgsave_picture_108127.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Carpenthus - Midgard (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Symphonic Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108128.jpgsave_picture_108128.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Gangruel - The Harvest Withers (2024) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108130.jpgsave_picture_108130.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:749855B0E4745CF6DC3D5AFAA454D7F8D7A488CE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108142.jpgsave_picture_108142.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Gurt - Satan etc (2024) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108149.jpgsave_picture_108149.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Folkrim - Tales of Tumult (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108154.jpgsave_picture_108154.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ ADX - Lempire du crepuscule (2024) [FLAC|Lossless|image + .cue] <Speed Metal, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108158.jpgsave_picture_108158.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Void Commander - Void Commander (2024) [FLAC|Lossless|WEB-DL|tracks] <stoner roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108160.jpgsave_picture_108160.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Orbium - Ouroboros (2024) [FLAC|Lossless|WEB-DL|tracks] <doom metal, stoner, pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108168.jpgsave_picture_108168.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Folkrim - Embers (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108170.jpgsave_picture_108170.jpg" />
 </div>
 
 

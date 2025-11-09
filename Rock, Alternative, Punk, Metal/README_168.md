@@ -6,7 +6,7 @@ The Requiem - A Cure To Poison The World (2024) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117034.jpgsave_picture_117034.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Life by Night - Life by Night (1985) [FLAC|Lossless|WEB-DL|tracks] <AOR, New Wav
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117036.jpgsave_picture_117036.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Paloma Faith - The Glorification of Sadness (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117041.jpgsave_picture_117041.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Rock Party Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117042.jpgsave_picture_117042.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Women in Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117048.jpgsave_picture_117048.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Rock Hits - women and men who know how to rock - 2024 (2024) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117072.jpgsave_picture_117072.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Blooming Discord - Memories From The Future (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117075.jpgsave_picture_117075.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - 100% Rock - Rock Hits - From Classic Rock to Metal (2024) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117088.jpgsave_picture_117088.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Von Hertzen Brothers - Live At Tavastia (2024) [FLAC|Lossless|WEB-DL|tracks] <Cr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117157.jpgsave_picture_117157.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Art Of Anarchy - Let There Be Anarchy (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117158.jpgsave_picture_117158.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ UMC - CHAPTER 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117160.jpgsave_picture_117160.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ UMC - CHAPTER 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117164.jpgsave_picture_117164.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ UMC - CHAPTER 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117166.jpgsave_picture_117166.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Witchsnake - Deathcult of the Snake (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117168.jpgsave_picture_117168.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Illumishade - Eclyptic: Wake of Shadows (2020) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117170.jpgsave_picture_117170.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Illumishade - Another Side of You (2024) [MP3|320 Kbps] <Symphonic Metal, Gothic
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117178.jpgsave_picture_117178.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kgb - Motion (1976) Reissue, 2024, Andromeda Black Hole [MP3|320 Kbps] <blues ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117182.jpgsave_picture_117182.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Elettra Storm - Powerlords (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117185.jpgsave_picture_117185.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ UMC - 90s in Metal (2018) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Cove
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117189.jpgsave_picture_117189.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:BFD730D420D5A68FACE037C8B7EF693D93E2E9A5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117191.jpgsave_picture_117191.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Steve Hackett - The Circus and the Nightwhale (2024) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117199.jpgsave_picture_117199.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Peter Gabriel - Shaking The Tree: Sixteen Golden Greats (1990) 1st German Press 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117200.jpgsave_picture_117200.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Leah - The Glory and the Fallen (2024) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117208.jpgsave_picture_117208.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ AC/DC - AC/DC A Touch Too Music Live In Maryland 1979 (Live) (2021) [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117219.jpgsave_picture_117219.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:8B59DEFB5F9705341DBBC9A5B88460C3EDD2242E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117223.jpgsave_picture_117223.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Durbin - Screaming Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117227.jpgsave_picture_117227.jpg" />
 </div>
 
 

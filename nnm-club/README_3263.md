@@ -6,7 +6,7 @@ Duran Duran - The Reflex (1984) Remaster, 2024, Rhino Records [FLAC|Lossless|WEB
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105199.jpgsave_picture_105199.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PdfFactory Std & Pro 9.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105200.jpgsave_picture_105200.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Mono Inc. - Symphonic Live - The Second Chapter (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105201.jpgsave_picture_105201.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bob Dylan - Good As I Been To You (1992) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105202.jpgsave_picture_105202.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Armin van Buuren - A State Of Trance 1187 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105203.jpgsave_picture_105203.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ All For Metal - Gods Of Metal (Year Of The Dragon) (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105204.jpgsave_picture_105204.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Caligula's Horse - Studio Albums (6 releases) (2011-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105205.jpgsave_picture_105205.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Kingcrow - Hopium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105206.jpgsave_picture_105206.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Paralydium - Universe Calls (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105207.jpgsave_picture_105207.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:E9774BDC5A6721516A9BDDCC5DA45A4B7837F233
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105208.jpgsave_picture_105208.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:E9774BDC5A6721516A9BDDCC5DA45A4B7837F233
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105209.jpgsave_picture_105209.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Blind Ivy - Satcitananda (2024) [MP3|320 Kbps] <Metalcore, Groove Metal, Female 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105210.jpgsave_picture_105210.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Fleshgod Apocalypse - Opera (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sympho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105211.jpgsave_picture_105211.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Zeal & Ardor - GREIF (2024) [FLAC|Lossless|WEB-DL|tracks] <Avant-Garde Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105212.jpgsave_picture_105212.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Dampf - No Angels Alive (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105213.jpgsave_picture_105213.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Dampf - No Angels Alive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105214.jpgsave_picture_105214.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:B1A3BF2A0D29196BD4BE14CFDCFFF20259BDC9BD
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105215.jpgsave_picture_105215.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:59787FA8363C703AAA4A31D9A32221B65626C569
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105216.jpgsave_picture_105216.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Miss May I - Apologies Are For The Weak (Re-Recorded 15th Anniversary Edition) (
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105217.jpgsave_picture_105217.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:32863B15E212F845EC76AA76FFB07AA8991C321A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105218.jpgsave_picture_105218.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Within the Ruins - Phenomena II (2024) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105219.jpgsave_picture_105219.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ FastStone Capture 10.7 Final RePack (& portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105220.jpgsave_picture_105220.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:D9DCB2F75934C476B410C628DD0B116D3F65D92F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105221.jpgsave_picture_105221.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:04F3C8BE1E1A21BD8E81B4FF1F356775F02FA43B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105222.jpgsave_picture_105222.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ PDFCreator 5.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105223.jpgsave_picture_105223.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ FastFlix 5.8.1 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105224.jpgsave_picture_105224.jpg" />
 </div>
 
 

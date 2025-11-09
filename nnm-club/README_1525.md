@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40006.jpgsave_picture_40006.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40007.jpgsave_picture_40007.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B3AE9A77F50144FB4DB0B8D29B62495FBFC2F9E8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40008.jpgsave_picture_40008.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wise Care 365 Pro 7.0.7.689 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40009.jpgsave_picture_40009.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E3C174B5E252EA3FF5E3048E3466EA0E2CDA543B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40010.jpgsave_picture_40010.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2B864AF65BDFA3BA53AAF775C7FA78DABCC11BA8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40011.jpgsave_picture_40011.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:E46BC636B23BEBE040F730CD42844383757AAD2C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40012.jpgsave_picture_40012.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:CD3763B90C946F3464739E4EA08A13EC4F3D072A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40013.jpgsave_picture_40013.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Spotify 1.2.47.366 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40014.jpgsave_picture_40014.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:E377D1AE41BAB545147F53397F66B093F590F7BC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40015.jpgsave_picture_40015.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:48467ADE7210CFADDB9D3FC3E610CD77DAC1B21D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40016.jpgsave_picture_40016.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ MediaHuman YouTube Downloader 3.9.9.96 (0210) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40017.jpgsave_picture_40017.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Skype вернул себе позиции самого популярного �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40018.jpgsave_picture_40018.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Skype вернул себе позиции самого популярного �
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40019.jpgsave_picture_40019.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Malwarebytes Windows Firewall Control 6.13.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40020.jpgsave_picture_40020.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:C84B9FDB29C7C7A3A231B5E5A6DC6F7FD8E13B6A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40021.jpgsave_picture_40021.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ FastStone Image Viewer 7.9 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40022.jpgsave_picture_40022.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:6CE3931BB01FC610C29A2E9F33B5AA12DA720E72
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40023.jpgsave_picture_40023.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:0C1A93AF7AB37E13FBF8DD55CF1D5E8C2E455B7A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40024.jpgsave_picture_40024.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:7F52123223198ED70F129FB0444180E62B91A4A8
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40025.jpgsave_picture_40025.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:46FA63DDEDCA51A9C6A560CA5CC937529FD4EB5A
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40026.jpgsave_picture_40026.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:A9BAFD855B18A557E4372D9F4AE919ABEBC20E83
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40027.jpgsave_picture_40027.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Glitchpunk (2021) [Ru/Multi] (1.0.7) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40028.jpgsave_picture_40028.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:DB2C297048552B6D8B5272627D466E914E95BDD5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40029.jpgsave_picture_40029.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:E7F7BF9B8CAC440D118B754BB254FBB6E42057F3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40030.jpgsave_picture_40030.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ ELDEN RING (2022) [Ru/Multi] (1.16/dlc) Repack Decepticon [Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40031.jpgsave_picture_40031.jpg" />
 </div>
 
 

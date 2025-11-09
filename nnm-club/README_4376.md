@@ -6,7 +6,7 @@ MAX Desktop 25.13.3 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136817.jpgsave_picture_136817.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D6778A0E59FA84AC867B5ABD28D16FD5B08C7FCA
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136818.jpgsave_picture_136818.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136819.jpgsave_picture_136819.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4FE321F247CBD5A54817B6DDE63D31CAF337C603
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136820.jpgsave_picture_136820.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1097532DBBCC5B3109A34DE68C0DF0A8478BBD78
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136821.jpgsave_picture_136821.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F57FDD3FBE0833BBE4777FD1A3C7348568E50501
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136822.jpgsave_picture_136822.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:BE27EBA79828501EF1FED4E0C0FB02C95519FC24
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136823.jpgsave_picture_136823.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:B6E656F3B658FB80701CA7648BAC3854A7ADC137
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136824.jpgsave_picture_136824.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:610E703002DDFD3E4A76E2BD9F631B50B2B4C1D1
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136825.jpgsave_picture_136825.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:E7B0A8C21D749B21970DAB6731AAB834BEC46F82
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136826.jpgsave_picture_136826.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:3C117FE3A29D911A26397F3247B0E5B1C5F4C37E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136827.jpgsave_picture_136827.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:C0828E59004431B65CF2E34B922BB486AE15D2F2
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136828.jpgsave_picture_136828.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:F64BA04DC54059B711F74A73D1DD44DAD991EF83
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136829.jpgsave_picture_136829.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:348FCEA6D16A1A829BA18A3CD7C4D625CC4FBD01
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136830.jpgsave_picture_136830.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:A201051A5F2551E4087A9DE548A86448709977AD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136831.jpgsave_picture_136831.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:7DECC069F8E527EB978B21A0350DE110E16A45A9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136832.jpgsave_picture_136832.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136833.jpgsave_picture_136833.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:085BEE46AD5AAA110B65B0A7E5469F43E4BE3686
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136834.jpgsave_picture_136834.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:FB9F11AAABFCA8040E663C6E34005FCBB196F9F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136835.jpgsave_picture_136835.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:D7901092E04D2CFF16F7B2429BF3DA1FE51BC789
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136836.jpgsave_picture_136836.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:18FFDD349BD31CCECFC9CE97F439D346232928F3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136837.jpgsave_picture_136837.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Renato Rocchinotti - Black Shadows in the Dark (2025) [FLAC 24/44.1|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136838.jpgsave_picture_136838.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Mississippi Heat - Don't Look Back (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136839.jpgsave_picture_136839.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ YT Downloader 9.17.8 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136840.jpgsave_picture_136840.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:D89292B653AB8AEA1E08561747DA6045015C7A9D
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136841.jpgsave_picture_136841.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ LeBron Johnson - Strong Men Still Human (2025) [FLAC 24/88.2|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136842.jpgsave_picture_136842.jpg" />
 </div>
 
 

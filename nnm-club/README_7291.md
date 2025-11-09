@@ -6,7 +6,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249603.jpgsave_picture_249603.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:854333FFC9A581577E4A762BE51074C06F721F57
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249604.jpgsave_picture_249604.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Phil Vincent - No Respect (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249605.jpgsave_picture_249605.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ BurnAware Free 15.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249606.jpgsave_picture_249606.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:88F75A53F714A391347EEACF60392A9093A77339
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249607.jpgsave_picture_249607.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:BD1891E5D8C09D4DE3D7DE4E4E1F1269349DD5AD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249608.jpgsave_picture_249608.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ U2 - Songs Of Surrender (2023) 4 CD [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249609.jpgsave_picture_249609.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:6FBE1E42EBBED09094DE01A3F562289CF218DE11
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249610.jpgsave_picture_249610.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:F95B2FFB75D0A340BBF7470A32E46429100E8B0C
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249611.jpgsave_picture_249611.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:DA8DD4B1F616CEE8E568BB40F4C76134C57CFF35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249612.jpgsave_picture_249612.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Marmoset Toolbag 4.03 (4036) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249613.jpgsave_picture_249613.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sumatra PDF 3.5.15345 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249614.jpgsave_picture_249614.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:64E3021B6A8AE86FEB3529819844FA8338B1875A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249615.jpgsave_picture_249615.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:4D48AA6605CC1DBA438853E33895BDBD0104F9E2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249616.jpgsave_picture_249616.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Ellis Mano Band - The Luck Of Draw (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249617.jpgsave_picture_249617.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:FF586B69F03F421DCAB8F996EE15944BBD53E580
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249618.jpgsave_picture_249618.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:7019F94D4C20F82D7F3EF33935CCF7B544B22923
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249619.jpgsave_picture_249619.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:5F1632AFD99DFC13CFA7549A8EB53028B2CB029E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249620.jpgsave_picture_249620.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:CF8B4E9D5996BD342D3B4EF2DEF4864EFCB54FB3
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249621.jpgsave_picture_249621.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Bryan Adams - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249622.jpgsave_picture_249622.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:AEF6EA0B48CE4674477554C6E2E734AD468B8595
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249623.jpgsave_picture_249623.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:03E56991514593A8654394FCAB009872AFBEF968
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249624.jpgsave_picture_249624.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Luxion KeyShot Pro 11.1.0.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249625.jpgsave_picture_249625.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ AOMEI Backupper Technician Plus 6.9.1 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249626.jpgsave_picture_249626.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Nikon Camera Control Pro 2.34.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249627.jpgsave_picture_249627.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Space Odyssey - Trip One: New Year's Voyage (2016) [OGG Vorbis|480 Kbps] <E
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249628.jpgsave_picture_249628.jpg" />
 </div>
 
 

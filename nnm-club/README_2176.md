@@ -6,7 +6,7 @@ MEGATON MUSASHI W: WIRED (2024) [Multi] (3.0.2/dlc) Repack FitGirl [Deluxe Editi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56943.jpgsave_picture_56943.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Avira Phantom VPN Pro 2.44.1.19908 RePack by elchupacabra [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56944.jpgsave_picture_56944.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FA90A48C84B1FA7C0C04E155CD10CF5C16DB0E22
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56945.jpgsave_picture_56945.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:D57903E894D5E51623BD96AD77348745F298F128
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56946.jpgsave_picture_56946.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:B9E26AE6A6AC0669A7A4AD7482DDD457FB6C6397
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56947.jpgsave_picture_56947.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C7DF801FC82F718F96FAB7B74D9C4F09FFC6F401
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56948.jpgsave_picture_56948.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:66D02A80C44E0DBD975409C69A738C143797D266
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56949.jpgsave_picture_56949.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:244D11323F70C1E72C59515A50F3F03C8A519CA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56950.jpgsave_picture_56950.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:16924697479C4A3B41387C5427947119E9BB577A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56951.jpgsave_picture_56951.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:BBD0251BB139D81B025D21B93C13AF5DABEA768C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56952.jpgsave_picture_56952.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:5C3626E5E528E38CDAAB9F89D4FB5D88F7C2258D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56953.jpgsave_picture_56953.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:9D4F22342E2757BC2CAA4ED0686F8434688CFD58
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56954.jpgsave_picture_56954.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:D8EC9D4E58EACB89BCB3230BB397FA8E9AA2E267
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56955.jpgsave_picture_56955.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:2CF693C94CC33302ADD23B828ACC772E9B1E3B0B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56956.jpgsave_picture_56956.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:61662D101380C654163DC2B4968845EE6583DA9A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56957.jpgsave_picture_56957.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:74172784218D8968FEFD9F990018F6A06CAE91DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56958.jpgsave_picture_56958.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ CG Masters, Chris Plush | 3D Cars: Inside and Out in Blender [Chapters 1-37] (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56959.jpgsave_picture_56959.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:C4E4E79F09F32821EAD3C9836C4AE792B2F7C4E3
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56960.jpgsave_picture_56960.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:957A928829A86BBA1862EB61839ED9B9B955F27A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56961.jpgsave_picture_56961.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:EB4F07B5A375FA98E13D5652C75E5DFF4CF2A60D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56962.jpgsave_picture_56962.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:5560C7EFA6018C32A9D081FA57DC411B581D76FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56963.jpgsave_picture_56963.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:BEADBF2D8EB5E231D325A215D85C416E25E60FF9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56964.jpgsave_picture_56964.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:4D15F80F7891B3F3BF8EB549C6E60033EC9D26B4
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56965.jpgsave_picture_56965.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ IObit Uninstaller Pro 13.5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56966.jpgsave_picture_56966.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:415C0943E5296F4B5C821485F92EE447E13D05D6
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56967.jpgsave_picture_56967.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Topaz Photo AI 3.0.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56968.jpgsave_picture_56968.jpg" />
 </div>
 
 

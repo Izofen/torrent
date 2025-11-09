@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58763.jpgsave_picture_58763.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Jamie B and Nova Scotia - Because Of You (2018) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58764.jpgsave_picture_58764.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Deep-House Heaven, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58765.jpgsave_picture_58765.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ CJ Stone & Quiz ft. Jenny - Surrender (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58766.jpgsave_picture_58766.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Bonnie Tyler - In Berlin (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Pop R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58767.jpgsave_picture_58767.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:A70887F04C1795619755E481BB6910ABD2853A05
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58768.jpgsave_picture_58768.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Rage - The Millennium Years (2001-2003) Box Set, 6 x CD, Compilation, 2021, Dr. 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58769.jpgsave_picture_58769.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Summer Party - Beach Evergreens (2024) [MP3|320 Kbps] <Pop, Dance, Club, Ho
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58770.jpgsave_picture_58770.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Firefox Browser 125.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58771.jpgsave_picture_58771.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Spring Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58772.jpgsave_picture_58772.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Nova Scotia - Power Of Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58773.jpgsave_picture_58773.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ UltraSearch Professional 4.1.3.915 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58774.jpgsave_picture_58774.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:24F6935A06EA42BB99F6AF50E12E00377BD4C436
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58775.jpgsave_picture_58775.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Wondershare UniConverter Ultimate 15.5.7.61 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58776.jpgsave_picture_58776.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Love Too Easily (2023) [Multi] (19) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58777.jpgsave_picture_58777.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Divine Journey 2: The Five Books of Moses (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58778.jpgsave_picture_58778.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Blues Melancholy (2024) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58779.jpgsave_picture_58779.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:65D33E602DCB345AF3A0E01873232959ACCB6CC4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58780.jpgsave_picture_58780.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Topaz Video AI 5.0.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58781.jpgsave_picture_58781.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Electronic compilation part 72 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58782.jpgsave_picture_58782.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:F93770A74BD020BABF09DFA8E7860E66E14D3119
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58783.jpgsave_picture_58783.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Icecream Screen Recorder PRO 7.40 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58784.jpgsave_picture_58784.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Balabolka 2.15.0.869 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58785.jpgsave_picture_58785.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ WinToUSB Technician 8.8 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58786.jpgsave_picture_58786.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Electronic compilation part 71 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58787.jpgsave_picture_58787.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:F636229EF1787B3240D54650FD6AA8B0E50ED3ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58788.jpgsave_picture_58788.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Tobin Mueller - Fragments (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71799.jpgsave_picture_71799.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jamaican Jazz Orchestra - All For A Reason (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71804.jpgsave_picture_71804.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ John Skelley - Dusk 'Til Dawn (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71806.jpgsave_picture_71806.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lustre Jazz - Bangkok Twilight (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71811.jpgsave_picture_71811.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tamara Bodie - Just Have Something to Say (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71812.jpgsave_picture_71812.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sound Dinosaur - BREWING HARMONY (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71814.jpgsave_picture_71814.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Deblon jackson - FLUTOPIA (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71906.jpgsave_picture_71906.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Pink Floyd - Live at Empire Pool (Wembley, London, UK, 17 November 1974) (2024) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71908.jpgsave_picture_71908.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Pink Floyd - Live At Odeon (Newcastle-upon-Tyne, UK, 9 November 1974) (2024) Liv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71909.jpgsave_picture_71909.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Blue Moods - Force & Grace (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71913.jpgsave_picture_71913.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ari Karason - Melodies for us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71918.jpgsave_picture_71918.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Unusual Suspects - At The Australian Jazz Museum Vol. 9 (Live) (2025) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71920.jpgsave_picture_71920.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Catlvish - Jazzthematics (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71922.jpgsave_picture_71922.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Gustav Lundgren Trio - Sofo Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71923.jpgsave_picture_71923.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Pink Floyd - Live at Empire Pool (Wembley, London, UK, 16 November 1974) (2024) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71926.jpgsave_picture_71926.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Mariah - Mystic Lady (1975) 2025 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71931.jpgsave_picture_71931.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Pink Floyd - Live At The Empire Theatre (Liverpool, UK, 29 November 1974) (2024)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71932.jpgsave_picture_71932.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Pink Floyd - Live At Palais De Sports (Paris, France, 24 June 1974) (2024) Live 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71933.jpgsave_picture_71933.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Pink Floyd - Live at Palace Theatre (Manchester, UK, 9 Dec 1974) (2024) Live [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71936.jpgsave_picture_71936.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Nenei - Sunset Grooves (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71937.jpgsave_picture_71937.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Code Cowboy - Bootleg Ballads (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71949.jpgsave_picture_71949.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Paleface Swiss - Cursed (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Metalco
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71953.jpgsave_picture_71953.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Canaan - Some last echo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Doom 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71954.jpgsave_picture_71954.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Lord Spikeheart - 2 Albums (2023-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71955.jpgsave_picture_71955.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Subway To Sally - Post Mortem (2024) (Deluxe Version) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71959.jpgsave_picture_71959.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Until I Wake - Renovate (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71961.jpgsave_picture_71961.jpg" />
 </div>
 
 

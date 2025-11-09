@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139001.jpgsave_picture_139001.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Mumshad Mannambeth | Linux Foundation Certified Systems Administrator - L
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139002.jpgsave_picture_139002.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2584540CC19419226D1C0BB8883A5EF2E8E29337
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139003.jpgsave_picture_139003.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Now That's What I Call Movies (2015) [FLAC|track+.cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139004.jpgsave_picture_139004.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:22364E18A359EF34631E8B84C07EC9D21E4D703A
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139007.jpgsave_picture_139007.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:92AE96FAC664AB18F6A3BDF48BACEFE02F7BF4BC
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139009.jpgsave_picture_139009.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Caravelli - Compilation (2021) [MP3|320 Kbps] <Instrumental, Easy Listening>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139010.jpgsave_picture_139010.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:CC589D640B223ED0557B51EDA0E41896EA050D58
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139011.jpgsave_picture_139011.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:558087CCE76A1057EBACEC3189E2567333594D0C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139012.jpgsave_picture_139012.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:6606A439B190FE0C2C0E894FBFEAD31305AE35E3
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139013.jpgsave_picture_139013.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:8B1353191E295EE6372DFEB8D3FDBCD9F3B2C023
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139014.jpgsave_picture_139014.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:1296B49F1139B79EB45F82AD154041B8BDC9AB62
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139015.jpgsave_picture_139015.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Solum 3 - Creation (2017) SOLANIC [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139017.jpgsave_picture_139017.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:AD042DE03B9AEA1520AE94388AD83EA8B4D76850
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139018.jpgsave_picture_139018.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:3F917B1ECDE401D70ED7053FAE7EE54F35C61D4F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139021.jpgsave_picture_139021.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Craig Payne - A Long Time Coming (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139022.jpgsave_picture_139022.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:2F876101E7A9D5904997A314693711C5FD817EE0
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139023.jpgsave_picture_139023.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:08747FC5BC9C9261E9CB7DEC8BED8FB97BABC220
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139024.jpgsave_picture_139024.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Nicolette Larson - Nicolette (1978) Remastered, 2013, Warner Bros. Records [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139026.jpgsave_picture_139026.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:1612E058448692A254603762BD9A2544975C5BD5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139027.jpgsave_picture_139027.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:8CC14A7DEF0429BED893E328A254E5176DA7809A
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139028.jpgsave_picture_139028.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:5F5D6E0A4CDAA025707BB509C3CA5BDF75094FAC
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139031.jpgsave_picture_139031.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA - The Electronic Spirit (2021) [MP3|320 Kbps] <Synthwave, Synthspace, Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139032.jpgsave_picture_139032.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Now Xmas (2015) [FLAC|track+.cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139033.jpgsave_picture_139033.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:EA74D660F2C393DF10DE6EC5435C3D76BF8D1659
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139034.jpgsave_picture_139034.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ K-Lite Codec Pack 15.3.2 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139035.jpgsave_picture_139035.jpg" />
 </div>
 
 

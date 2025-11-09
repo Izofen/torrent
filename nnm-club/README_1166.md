@@ -6,7 +6,7 @@ The Lies We Tell Ourselves (2025) [Ru/Multi] (Build 16745997) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30671.jpgsave_picture_30671.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Capture One 23 Enterprise 16.5.4.2682 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30672.jpgsave_picture_30672.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SoftPerfect RAM Disk 4.4.3 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30673.jpgsave_picture_30673.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4D4E5FC79C32B881365C151C306C8725EEBCF391
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30674.jpgsave_picture_30674.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:AB3CE3D27306544BAE42C04F8203DA3D561E4016
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30675.jpgsave_picture_30675.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:78AC6441C84DDE16A987EBAA6EE2551AA7569B91
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30676.jpgsave_picture_30676.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:033DEA5FFD88302DC6652386B33288164703BBE0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30677.jpgsave_picture_30677.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:89FBF2E15962E040C08408736D1B38185CF93833
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30678.jpgsave_picture_30678.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:6F4C59E8CA39A9DAE6EC459FAEE0256C7FA1EEA4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30679.jpgsave_picture_30679.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:6F4C59E8CA39A9DAE6EC459FAEE0256C7FA1EEA4
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30680.jpgsave_picture_30680.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ AnyDesk 9.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30681.jpgsave_picture_30681.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:FCA9BC8535B3331CFE6361472B5B38053BDEC301
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30682.jpgsave_picture_30682.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ uTorrent Pro 3.6.0 Build 47178 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30683.jpgsave_picture_30683.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:85AA1280DEBD91180D0AFC098D5AD141ACE50479
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30684.jpgsave_picture_30684.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30685.jpgsave_picture_30685.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Dr.Web CureIt! (17.01.2025) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30686.jpgsave_picture_30686.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:F34DDF7B61290B2C1E042D5F04130AE2A3A23B2B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30687.jpgsave_picture_30687.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:8CA4C5CF366A5DBC8BAD6CEA0FDE5DE5B6291CEB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30688.jpgsave_picture_30688.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:7B03AEA140D635EE846487EBB70C065C4DC01F96
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30689.jpgsave_picture_30689.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ LDPlayer 9.1.37.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30690.jpgsave_picture_30690.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:3CFBBEF330A906519FA9783117DAF30592D8A501
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30691.jpgsave_picture_30691.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Terra Exodus (2025) [En] (43.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30692.jpgsave_picture_30692.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:27AEBEFB52E9FD19EDC08C5AD0B5BDD61BA9BB0A
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30693.jpgsave_picture_30693.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:48E413C41948820317B8AA38297003EA9512A780
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30694.jpgsave_picture_30694.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:48E413C41948820317B8AA38297003EA9512A780
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30695.jpgsave_picture_30695.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:0F228772097FE687795E3BEE457AD46B2EE1CCB4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30696.jpgsave_picture_30696.jpg" />
 </div>
 
 

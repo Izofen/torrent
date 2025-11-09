@@ -6,7 +6,7 @@ VA - Mandarin Chill Out, Vol. 3 (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtem
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114651.jpgsave_picture_114651.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A1678280DECA9A360978CD53ACF2CA495AF0DE42
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114652.jpgsave_picture_114652.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Sultan And Shepard - Endless, Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114653.jpgsave_picture_114653.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PdfFactory Std & Pro 8.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114654.jpgsave_picture_114654.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ CudaText 1.210.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114655.jpgsave_picture_114655.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Mojo Mafia - Rescue Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114656.jpgsave_picture_114656.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:2A96725A2A26FB88723BBEE45A4F9BE1BF28D118
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114657.jpgsave_picture_114657.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:BBF5602CD802393F9BC8BCD3CEF36F5DCE507ABC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114658.jpgsave_picture_114658.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Martin Stevens - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114659.jpgsave_picture_114659.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:80B3C0F346A63837245C61B1470E2E03E6B7F238
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114660.jpgsave_picture_114660.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Caravan Palace - Gangbusters Melody Club (2024) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114661.jpgsave_picture_114661.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:FE2FEE7616D857E139316C83A0F068914327FA7E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114662.jpgsave_picture_114662.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - Андрей Петров - Музыка из к/ф "Жестокий ро�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114663.jpgsave_picture_114663.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:8CE9793F36D1E7AD68ED27AB1BC3A21A29DE0531
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114664.jpgsave_picture_114664.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:AE03BA2F98CE81DC8A1630189501E6FD45D55D39
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114665.jpgsave_picture_114665.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - Trance Party 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114666.jpgsave_picture_114666.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:9C8BF9CFE685E7196E0BFEB6EF49CA67DA18EA44
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114667.jpgsave_picture_114667.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:AFF0CCAE4B76990F5DB83D1E89D9B6854CC6584E
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114668.jpgsave_picture_114668.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Calibre 7.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114669.jpgsave_picture_114669.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - The Metal Griffin (2024) [MP3|320 Kbps] <Metal, Hard, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114670.jpgsave_picture_114670.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:A980B273C7D5E475767EF5B022FAE6A4E3FBF644
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114671.jpgsave_picture_114671.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Sumatra PDF 3.6.15974 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114672.jpgsave_picture_114672.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:F8F488747C31F1ABDBB6DDE83AF3DF0117F7B3B5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114673.jpgsave_picture_114673.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ HiPER Calc Pro (Scientific Calculator) 10.4.3 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114674.jpgsave_picture_114674.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:56A98E4247716FE6193E49B165483586E03DB547
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114675.jpgsave_picture_114675.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ FinePrint 11.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114676.jpgsave_picture_114676.jpg" />
 </div>
 
 

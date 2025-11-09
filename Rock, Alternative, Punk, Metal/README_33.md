@@ -6,7 +6,7 @@ Thunder - 26 Albums (1990 - 2024) 49 CD [FLAC|Lossless|image + .cue, tracks + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41335.jpgsave_picture_41335.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Coldplay - Moon Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41368.jpgsave_picture_41368.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:E7A6CF20593742F0273E04CCE8C85F0B6084C4E1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41372.jpgsave_picture_41372.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:14E5DD38F17427BE39576A7125D70B171A5478B0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41423.jpgsave_picture_41423.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:CD7238A6270DBAF65A2EF7FD5BF1BCF717BABA86
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41462.jpgsave_picture_41462.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:1C12E8456D93F6ACA5D0B95509F244BAA3A8FB7F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41471.jpgsave_picture_41471.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Eric Clapton - Meanwhile (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41473.jpgsave_picture_41473.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:BC6D137B2244B0DD54F6ECFB940CED760E8758C8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41610.jpgsave_picture_41610.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - 100 Greatest Rock Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41706.jpgsave_picture_41706.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Paul Di'Anno - The Book of the Beast (2024) Compilation [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41868.jpgsave_picture_41868.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Edguy - Дискография (1994-2008) [MP3|320 kbps]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41969.jpgsave_picture_41969.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Marilyn Manson - Sacrilegious (2024) EP [FLAC 16/44.1|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41974.jpgsave_picture_41974.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:56FD50342768ABB68651694C55FB25832AE2010C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42191.jpgsave_picture_42191.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Whisky of Blood - Diablesse Of Revolution (2024) [MP3|320 Kbps] <Hard Rock, Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42192.jpgsave_picture_42192.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Grimgotts - The Time of the Wolfrider (2024) [FLAC|Lossless|WEB-DL|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42201.jpgsave_picture_42201.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Serious Black - Rise of Akhenaton (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42202.jpgsave_picture_42202.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Turbokill - Champion (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42207.jpgsave_picture_42207.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:027CA1C1DC2AAB06F07CCD4F221A6EE200BFC24F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42210.jpgsave_picture_42210.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:A2625F69BAC865E996784B68998B3085CE4E1C72
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42215.jpgsave_picture_42215.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:A7C411DD336A88DA28CF10BB339D1BB943D510B6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42217.jpgsave_picture_42217.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:3634BF45EA150470A0E38BEFC2E027DA1D2782BD
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42221.jpgsave_picture_42221.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:18B8151E4F50DF6410E772C339E634537C143E1F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42222.jpgsave_picture_42222.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:75253A6D33132BBCE694D4769A73A2572A4ACF56
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42244.jpgsave_picture_42244.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:FD25FD81115375696961B3FE8E642AFE95F2C1C9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42294.jpgsave_picture_42294.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Richie Kotzen - Nomad (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42303.jpgsave_picture_42303.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ The Black Dahlia Murder - Servitude (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42306.jpgsave_picture_42306.jpg" />
 </div>
 
 

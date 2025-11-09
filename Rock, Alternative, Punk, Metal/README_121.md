@@ -6,7 +6,7 @@ Or Not - Violence & Grace (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107474.jpgsave_picture_107474.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Those Damn Crows - Inhale/Exhale (2023) Expanded Edition, 2024, Earache Records 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107477.jpgsave_picture_107477.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rifflord - 39 Serpent Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, St
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107482.jpgsave_picture_107482.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Within Temptation - Worlds Collide Tour (Live in Amsterdam) (2024) [MP3|320 Kbps
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107486.jpgsave_picture_107486.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Benighted - Ekbom (2024) 2 x CD [FLAC|Lossless|image + .cue] <Death Metal, Grind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107494.jpgsave_picture_107494.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Hounds Of Hasselvander - Another Dose Of Life (2021) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107495.jpgsave_picture_107495.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Antropofagus - Methods of Resurrection Through Evisceration (2017) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107498.jpgsave_picture_107498.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Antropofagus - Alive Is Good... Dead Is Better (2001) EP, Released, 2001, Beyond
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107500.jpgsave_picture_107500.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Battlesnake - The Rise And Demise Of The Motorsteeple (2024) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107501.jpgsave_picture_107501.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Memphis May Fire - Remade In Misery (2022) [FLAC|Lossless|tracks + .cue] <Post-H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107503.jpgsave_picture_107503.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Cavalera - Schizophrenia (2024) Re-Recorded [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107511.jpgsave_picture_107511.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ My Diligence - 5 Albums (2014-2024) [FLAC|Lossless|WEB-DL|tracks] <heavy psych, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107514.jpgsave_picture_107514.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Antropofagus - No Waste of Flesh (1999) [FLAC|Lossless|image + .cue] <Brutal Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107517.jpgsave_picture_107517.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ V.A. - Split Torso Trauma (2011) Split [FLAC|Lossless|image + .cue] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107519.jpgsave_picture_107519.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Within Temptation - Worlds Collide Tour (2024) Live in Amsterdam [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107524.jpgsave_picture_107524.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Lonely Fire - The Last Ride (2024) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107529.jpgsave_picture_107529.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Aires - Останусь собой (2024) [FLAC|Lossless|WEB-DL|tracks] <Punk R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107532.jpgsave_picture_107532.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Jethro Tull - Bursting Out (1978) Live, Steven Wilson Remix, 2024, Parlophone Re
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107544.jpgsave_picture_107544.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Alanis Morissette - Supposed Former Infatuation Junkie (1998) Thank U Edition, 2
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107556.jpgsave_picture_107556.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Eynomia - Sea of Tears (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107576.jpgsave_picture_107576.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Maverick - Silver Tongue (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107577.jpgsave_picture_107577.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Deiv Id Fuzz - The Witch and the Moonset (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107579.jpgsave_picture_107579.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Stoned Circus - The Stoned Circus (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107580.jpgsave_picture_107580.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Danava - Live (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner Rock, Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107581.jpgsave_picture_107581.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Fervent Hate - In Rot We Trust (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107586.jpgsave_picture_107586.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Cainites - Revenant (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107587.jpgsave_picture_107587.jpg" />
 </div>
 
 

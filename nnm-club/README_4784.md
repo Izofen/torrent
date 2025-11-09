@@ -6,7 +6,7 @@
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149708.jpgsave_picture_149708.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Navitel Navigator / Навител v9.6.1964 Full и другие [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149709.jpgsave_picture_149709.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:931A76B84A4AE020BE0B9D6C716B3F6B9586F5FB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149710.jpgsave_picture_149710.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:A180B3FDF8F17E1724D357D62EA0895AD04C9B56
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149712.jpgsave_picture_149712.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Animal ДжаZ - Раритеты (2021) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149713.jpgsave_picture_149713.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:F15BEAF60A3799D1F4A9E5E8C633D1AD7ECBCB9A
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149715.jpgsave_picture_149715.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:CFDDF8E5185ED85792B9972B8E0CDAC575E19FF9
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149716.jpgsave_picture_149716.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ TouchRetouch for Mac 2.3.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149717.jpgsave_picture_149717.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Might And Magic. Heroes 6 [Ru/En] (RePack/1.8.0/2 DLC) 2011 l R.G. Shift
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149718.jpgsave_picture_149718.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:A0FF3D1F69CAD0F897B2851BF18D71A51ACB5166
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149719.jpgsave_picture_149719.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:584B064EEBDDA97885E9E90180BD4D68C7371B58
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149720.jpgsave_picture_149720.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:ECE0276BD46AD7A04E1808FD7C4D12CD81501528
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149721.jpgsave_picture_149721.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:511F13D7B84A5AF2D5AACD595FB7942DA2DDB704
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149722.jpgsave_picture_149722.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:E6B5D8F51A27D4F82773B4C98B82FF1E86F133D7
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149723.jpgsave_picture_149723.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:2548D849B08F2E02FC58E94697983CE92023C0B0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149724.jpgsave_picture_149724.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Q-Dir 9.07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149725.jpgsave_picture_149725.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ One Punch Man / Ванпанчмен [2015, TV, 12] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149727.jpgsave_picture_149727.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:C331736C59F5C81510A4735F2CC8F9C77E9E7A3E
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149728.jpgsave_picture_149728.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:4ACD5A842667DC7D7B3C7FF9F68D998891C5B239
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149729.jpgsave_picture_149729.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Papik - Sounds For The Open Road Vol.2 (2020) 2CD [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149730.jpgsave_picture_149730.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ JETE - Заживое (2021) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149731.jpgsave_picture_149731.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Laura Pausini - Laura Xmas (2016) [AAC|256 Kbps]<Christmas, Pop, Jazz, Easy List
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149732.jpgsave_picture_149732.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ W.D.I | Веб-дизайн Интенсив (2015) PCRec [H.264]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149733.jpgsave_picture_149733.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:7642402BE5682C28554F0D5F286757739DA892D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149736.jpgsave_picture_149736.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:B0414DF78A38D17E6885732715124D66E428B8C6
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149737.jpgsave_picture_149737.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Leviathan: The Last Day of the Decade / Левиафан: Последний д�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149739.jpgsave_picture_149739.jpg" />
 </div>
 
 

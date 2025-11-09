@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10336.jpgsave_picture_10336.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SWORD ART ONLINE Fractured Daydream (2024) [Ru/Multi] (1.4.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10337.jpgsave_picture_10337.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1B9FB4CC4E62418C2D63177B44BD22F0B7CA4978
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10338.jpgsave_picture_10338.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1B9FB4CC4E62418C2D63177B44BD22F0B7CA4978
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10339.jpgsave_picture_10339.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:1B9FB4CC4E62418C2D63177B44BD22F0B7CA4978
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10340.jpgsave_picture_10340.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:89EB3D2517875FB328F3D05B04520B08E0B963ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10341.jpgsave_picture_10341.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:33A2BAADDC42F3C19BCB6F27466BB3E9F251C2D2
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10342.jpgsave_picture_10342.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:03A72859BD446427ADE6E3C31257E00A3B9C5C70
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10344.jpgsave_picture_10344.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:A5561AA359039EC7AA2C5B4164A4A0313560D353
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10345.jpgsave_picture_10345.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:230444B2F9217072E6D5AF5D60AFA008AA9D2333
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10346.jpgsave_picture_10346.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:BE6A44AD54525F3CFAD6C217A387976626D04422
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10347.jpgsave_picture_10347.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Into the Dead: Our Darkest Days (2025) [Ru/Multi] (0.5.1.13033) Repack Other s [
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10348.jpgsave_picture_10348.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:4C0662443BAF9747E784FDD911ED6B5740F675AB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10349.jpgsave_picture_10349.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ IconCool Studio Pro 7.70 Build 121108 [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10350.jpgsave_picture_10350.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:18F748F5C73318804C92E15DC4719917D31865E3
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10351.jpgsave_picture_10351.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ VA - Music News For Forum vol.118 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10352.jpgsave_picture_10352.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:5370250C4093867B2BC0D8950C89D407EAAD4D93
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10353.jpgsave_picture_10353.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:4B5EBCD2821EE3297382CE481CE24C95D93C8FFC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10354.jpgsave_picture_10354.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:57B69C730B8E22A3D5AAE57229F8C46C8993B4A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10355.jpgsave_picture_10355.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Compilation Part 177 Electronic (2025) [MP3|320 Kbps] <Electronic, Easy lis
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10356.jpgsave_picture_10356.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Sandra - Into A Secret Land (1988) 1st German Press [APE|Lossless|image + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10357.jpgsave_picture_10357.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:3D2DA901E92908F87E5CF366D93AC974F604CFFD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10358.jpgsave_picture_10358.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Detectives United 8: Vengeance from the Past (2025) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10359.jpgsave_picture_10359.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:7EC40F58EF2E08979BC4F824DB7C2B6C7B280372
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10360.jpgsave_picture_10360.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ StaxRip 2.48.2.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10361.jpgsave_picture_10361.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Roxette - Joyride (1991) 1st UK Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10362.jpgsave_picture_10362.jpg" />
 </div>
 
 

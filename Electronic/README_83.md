@@ -6,7 +6,7 @@ Armin van Buuren - Breathe In - Extended Versions (2024) [MP3|320 Kbps] <Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121314.jpgsave_picture_121314.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Lounge O'Clock, Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121466.jpgsave_picture_121466.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Lounge O'Clock, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121474.jpgsave_picture_121474.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - This Is Bass 2023 (2023) [MP3|320 Kbps] <Breaks, Breakbeat>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121502.jpgsave_picture_121502.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Armin van Buuren - A State Of Trance 1246 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121553.jpgsave_picture_121553.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Ori Uplift - Uplifting Only Episode 661 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121555.jpgsave_picture_121555.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - A State of Trance - Classics Top 10, Vol. 9 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121557.jpgsave_picture_121557.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ MEDUZA - Live @ La Torre Ibiza, Spain (2025-09-16) [MP3|320 Kbps] <Tech House, M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121559.jpgsave_picture_121559.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Black Hole Trance Music 10-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121561.jpgsave_picture_121561.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Black Hole House Music 10-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121563.jpgsave_picture_121563.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:EDAE34293015ED2BA7BAFC0FDFF621E0DAE1A692
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121699.jpgsave_picture_121699.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - TOP 10 Trance 2023 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121703.jpgsave_picture_121703.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Astrix - Live @ Alternative Reality Set, Universo Paralello, Brazil (2024-01-05)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121706.jpgsave_picture_121706.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Winter Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121729.jpgsave_picture_121729.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Festival Sounds 2024 by Kontor (2024) [MP3|320 Kbps] <Dance, Club, House, E
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121735.jpgsave_picture_121735.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ ASCO - Live @ Symphony of CAOS, Ascoli Piceno, Italy (2023-09-09) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121834.jpgsave_picture_121834.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Armin van Buuren - A State Of Trance 1156 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121852.jpgsave_picture_121852.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Deep & Melodic House 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121863.jpgsave_picture_121863.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - 80s and 90s Remixed, Vol. 2 - The Dance Hit Workout (2024) [FLAC|Lossless|W
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121914.jpgsave_picture_121914.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Black Hole House Music 01-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121996.jpgsave_picture_121996.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Black Hole Trance Music 01-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122033.jpgsave_picture_122033.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Top 8 December 2023 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122361.jpgsave_picture_122361.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Vintage Culture - Live @ UP Club Stage, Universo Paralello, Brazil (2024-01-03) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122504.jpgsave_picture_122504.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Morgenstern - Zeitgeist (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122577.jpgsave_picture_122577.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Space 92 - Live @ Input Barcelona, Spain (2024-01-06) [MP3|320 Kbps] <Techno>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122734.jpgsave_picture_122734.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Pop Mania 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122741.jpgsave_picture_122741.jpg" />
 </div>
 
 

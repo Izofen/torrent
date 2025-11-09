@@ -6,7 +6,7 @@ M1 Tank Platoon II (1998) [En] (1.0.4.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195737.jpgsave_picture_195737.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C92699C8900C7231A47FCE9F020DB060EABB8C5D
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195738.jpgsave_picture_195738.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7E4B18075F501AD13B1EE12F734D6B39A6573408
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195739.jpgsave_picture_195739.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6115F0EC7518B4F078740F11561B4310933C3198
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195740.jpgsave_picture_195740.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:516239DA9D532DFAE720042D79386B4DA66F0ACD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195741.jpgsave_picture_195741.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E2CAF9019FE0B3D178BCFAEB7292D1D1E9369E01
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195742.jpgsave_picture_195742.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:8FEB7D0A785E4FFA956CB2CA69164476D4574678
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195743.jpgsave_picture_195743.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:9138787F97983B6D1418C67B2D840FA799A7F056
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195744.jpgsave_picture_195744.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Stardock Fences 4.1.9.2 (x64) RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195745.jpgsave_picture_195745.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ AGAMA Car Launcher 3.3.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195746.jpgsave_picture_195746.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:E4F92CB45EAFD6D83F76934F148F8D840AAF481D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195747.jpgsave_picture_195747.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:12D7D7BA57DE62AB3100DA966EABDD25AA7A18FC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195748.jpgsave_picture_195748.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:52E5380B7016DE1AD730125D85939910C3B321AD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195749.jpgsave_picture_195749.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Bandicam 6.2.4.2083 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195750.jpgsave_picture_195750.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ AOMEI Partition Assistant Technician Edition 10.1.0 (10.07.2023) RePack by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195751.jpgsave_picture_195751.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:8F00D087E4109FB37AA70B29DB8E5F6EA146136A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195752.jpgsave_picture_195752.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:FE7E2239B461063B166C8838D05F89101E35BDCE
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195753.jpgsave_picture_195753.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:61B391B7685DA2124A2082DF8D52C547410402F5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195754.jpgsave_picture_195754.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:EB2F51EB6AD378483E6D83B9A31955FC335C8A2E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195756.jpgsave_picture_195756.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:ABC2EFD3C2601745F086B598307572D7D71316E7
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195757.jpgsave_picture_195757.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Ascold Flow | Поездатое путешествие (Книга 1). Том 1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195758.jpgsave_picture_195758.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:C7DDC50FC84C45006DC3031E8D132FA67EE3D917
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195759.jpgsave_picture_195759.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:55C0617C14EC93B2E21136AA4DA14889D3E37E5C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195760.jpgsave_picture_195760.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:56BC8982C10B84C1704EB16ABCA68405A0242444
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195761.jpgsave_picture_195761.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:6046C1C7A712B05C0FC12F18F541A0EBB69F2A89
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195762.jpgsave_picture_195762.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:0B3C7E2F4D2C3E3EB613803E4D93F4A333EDEF1D
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195763.jpgsave_picture_195763.jpg" />
 </div>
 
 

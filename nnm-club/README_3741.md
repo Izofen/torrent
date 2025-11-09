@@ -6,7 +6,7 @@ Alanna Lyes - Compilation (2024) [MP3|320 Kbps] <Electro Swing/Nu Jazz | Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117643.jpgsave_picture_117643.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:608D4B9034061DC21D7E9CA88EA868A59F4815FE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117644.jpgsave_picture_117644.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Icecream Slideshow Maker PRO 5.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117645.jpgsave_picture_117645.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Johnny Hits Vol. 1 '98 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117646.jpgsave_picture_117646.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ LibreOffice 25.8.2.2 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117647.jpgsave_picture_117647.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Jazz Sax Lounge Collection, Magical Memories Jazz Academy - Best Sexy Saxophone 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117648.jpgsave_picture_117648.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VCap Downloader 0.1.37.6739 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117649.jpgsave_picture_117649.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Skype 8.112.0.210 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117650.jpgsave_picture_117650.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Hard Disk Sentinel PRO 6.30.4 Build 13402 Beta RePack (& Portable) by elchupacab
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117651.jpgsave_picture_117651.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Richard Marx - Ballads (1994) [OGG Vorbis|480 Kbps] <Pop, Ballad>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117652.jpgsave_picture_117652.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ AOMEI Backupper Technician Plus 8.0.0 Repack (& Portable) by elchupacabra [Multi
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117653.jpgsave_picture_117653.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:3E4E713AE19A306438F2C4CA67DE0BEFB9E33D5B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117654.jpgsave_picture_117654.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:834141FAB7CFD6C07F5B3CFB56FD069D139B8DC5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117655.jpgsave_picture_117655.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Romantic Moods Academy - Happy Valentine's Day 2024 (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117656.jpgsave_picture_117656.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Chambers of Devious Design (2022) [Ru/Multi] (1.3.0b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117657.jpgsave_picture_117657.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Bernie Torme - Die Pretty Die Young (1987) Remaster, 2024, Cherry Red Records [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117658.jpgsave_picture_117658.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:AC19A7C216F0D7A524FDDCAD4E5EFCC83ADE087A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117659.jpgsave_picture_117659.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VIVA - Осень (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117660.jpgsave_picture_117660.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Witchflame - Omen (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117661.jpgsave_picture_117661.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ QOwnNotes 24.2.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117662.jpgsave_picture_117662.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:D7755E02472434829EC079E764B735D9E6BBD451
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117663.jpgsave_picture_117663.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:D0C7B2DB0EF793D250B1A008153D71CA062ACF4C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117664.jpgsave_picture_117664.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Bossa Nova Lounge Club, Romantic Love Songs Academy - Bossa Romance (2024) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117665.jpgsave_picture_117665.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:ED94E8BA10CBC3AD227C06BD75F2CE5E550DACF5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117666.jpgsave_picture_117666.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:6EF1D44B56AEA62F1EF2C4B142CF6CADD1D5B856
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117667.jpgsave_picture_117667.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:9C26521799D63E7B3371626AA9507F3446562965
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117668.jpgsave_picture_117668.jpg" />
 </div>
 
 

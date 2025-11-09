@@ -6,7 +6,7 @@ Far Cry 3 Deluxe Edition [Ru] (RePack/1.04) 2012 | Fenixx
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132345.jpgsave_picture_132345.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:DED3ACFB35E6891F34354DAD3FF4ACB9FA932E34
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132346.jpgsave_picture_132346.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Wychazel - The Temple of Hathor (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132348.jpgsave_picture_132348.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:D105DD6AF02AC95796DE260F103CC6366D0583A5
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132350.jpgsave_picture_132350.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Baccara - Light My Fire (2023) Remastered [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132352.jpgsave_picture_132352.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Recovery Partition for Lenovo G480 / Windows 7 Home Basic (х64) SP1 [русск
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132353.jpgsave_picture_132353.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Recovery Partition for Lenovo G480 / Windows 7 Home Basic (х64) SP1 [русск
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132354.jpgsave_picture_132354.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:D416E39A3253353A236C10150342C4FD5DCC4AF2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132357.jpgsave_picture_132357.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VirtualDub 1.10.3 Final Portable by SamLab [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132358.jpgsave_picture_132358.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Alan Wake Дилогия [Ru/En] (Repack) 2012 | R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132360.jpgsave_picture_132360.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ SoundHound∞ 10.2.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132362.jpgsave_picture_132362.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Macrorit Partition Expert 8.1.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132364.jpgsave_picture_132364.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Another / Иная [2012, TV, 12 из 12] BDrip 1080p raw + rus x2
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132365.jpgsave_picture_132365.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Revo Uninstaller Pro 5.2.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132366.jpgsave_picture_132366.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ TeleInet 1.52 Portable [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132367.jpgsave_picture_132367.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Michiel Van Der Kuy Dance With Me  Ultimate Collection Part 3 (2022) [FLAC|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132368.jpgsave_picture_132368.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:5E00860A7B3897682F8B9DFE1410B03B43634934
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132370.jpgsave_picture_132370.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:54D0A22F11EDEA3B896743A0D459E1C65CFC165C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132371.jpgsave_picture_132371.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Wychazel - A Brighter Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132372.jpgsave_picture_132372.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:457F339230B8E500DCDDB5189BA16F3DA453ADB6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132373.jpgsave_picture_132373.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ PortableApps.com Platform 27.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132374.jpgsave_picture_132374.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Singularity [Ru/En] (L/1.1) 2009
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132375.jpgsave_picture_132375.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Sia - This Is Acting (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132376.jpgsave_picture_132376.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Whitesnake - The Purple Album: Special Gold Edition (2015) 2xCD, Remastered, 202
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132377.jpgsave_picture_132377.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Tonari no Kaibutsu-kun / Мой безбашенный сосед [2012, TV, 13 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132378.jpgsave_picture_132378.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:E81CF75402A11DC41069129A65CEA69B09F69DC2
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132379.jpgsave_picture_132379.jpg" />
 </div>
 
 

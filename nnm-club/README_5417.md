@@ -6,7 +6,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167737.jpgsave_picture_167737.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D11BCAAF7F8B0D1837DD0C95B99955F9368897F3
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167738.jpgsave_picture_167738.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Audio Hijack 3.8.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167739.jpgsave_picture_167739.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:42977F56B02F8086912B1451C7AD97F2C2F4F628
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167740.jpgsave_picture_167740.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:DE68B1AACBC7A1F6C36C9891FA5B683FB02AD728
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167741.jpgsave_picture_167741.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:4459A0DE943680AD4F5845D64CAAC96AFBAEE041
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167742.jpgsave_picture_167742.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Isafjord - Hjartastjaki (2022) Related [FLAC|Lossless|WEB-DL|tracks] <Atmospheri
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167743.jpgsave_picture_167743.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Waterfox Current G4.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167744.jpgsave_picture_167744.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:06C0D1DF1711109B0EE003473C3BDD9769D21DE6
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167745.jpgsave_picture_167745.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:D9447314D6AF93529458B18B703742221E2ED4FD
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167746.jpgsave_picture_167746.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:73A935497D582F2CF6872BCDBAA78020CE21DE0B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167747.jpgsave_picture_167747.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:02FADAB6F43E75D011F33A87DD1710F576691BAC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167748.jpgsave_picture_167748.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Aiseesoft Mac Data Recovery for Mac 1.5.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167749.jpgsave_picture_167749.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:66444F13615D938C904617B2D4D7024872EF19C2
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167750.jpgsave_picture_167750.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:6720C1EFCAC4B0D3CAC1C5343EBCBF17AE6254B8
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167751.jpgsave_picture_167751.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ URL Manager Pro 6.1 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167752.jpgsave_picture_167752.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:9640B4A55CAA8A0BE27A3365F9611E37C6780C0B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167753.jpgsave_picture_167753.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Sophie - 3 Albums (1989 - 1995) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167754.jpgsave_picture_167754.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:EBF96F8A31A926C435EDB8AF3DFA2DEC21E626EC
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167755.jpgsave_picture_167755.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Sublime Merge Dev Build 2081 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167756.jpgsave_picture_167756.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Telegram Desktop 4.11.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167758.jpgsave_picture_167758.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ calibre 5 v5.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167759.jpgsave_picture_167759.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Sound Siphon 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167760.jpgsave_picture_167760.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:00009D1EDAFCFD31C5D318D05423ED8257A882FC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167761.jpgsave_picture_167761.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ XnView 2.49.2 Complete RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167762.jpgsave_picture_167762.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:40018BD581616889A66768FB3ECCAE4FCADC225D
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167763.jpgsave_picture_167763.jpg" />
 </div>
 
 

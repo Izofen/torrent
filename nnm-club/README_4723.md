@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147814.jpgsave_picture_147814.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8184CF6FB53311391F2135F4960F4AF279DEE9F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147815.jpgsave_picture_147815.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:351B64D0FEB3E29127FE81962EB2C6F6A5BAA17E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147816.jpgsave_picture_147816.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D0CFE4383F0FA3D32E781208DA0693ABDBA02306
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147817.jpgsave_picture_147817.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Garden of Grief - Novembernebel (2010) [FLAC|Lossless|image + .cue] <Ambient Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147818.jpgsave_picture_147818.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:41FE86986698C2F2E9F57D766E0E9E5ABE6E2227
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147819.jpgsave_picture_147819.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ AIMP 4.12 Build 1878 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147820.jpgsave_picture_147820.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:A8B8B9C4A9840373FF2A1FA1F56D10B84DA180CC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147821.jpgsave_picture_147821.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Street Racing Grand Tour v0.12.3756 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147822.jpgsave_picture_147822.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ KCNcrew Pack 11-15-23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147823.jpgsave_picture_147823.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:12D3A3803220F9EC8ED33610B9FCD1766E73ED52
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147824.jpgsave_picture_147824.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:999AE16D2200DF40A56F02F354EF955CCA4F8964
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147825.jpgsave_picture_147825.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Surviving Mars v.1.4 Merbold 1010784 (51924) (2018) [Multi/Ru] [macOS Native gam
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147826.jpgsave_picture_147826.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:16702CF168BE78020289A39AB54BD33A953EC840
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147827.jpgsave_picture_147827.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Grand Theft Auto: San Andreas (2005) [Ru/Multi] (1.0/1.1) Lossless Repack R.G. O
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147828.jpgsave_picture_147828.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Cabela's Big Game Hunter: Trophy Season (2005) [En] (1.0.0) Unofficial
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147829.jpgsave_picture_147829.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:37D6FAD4D884E1AB39B67E1253B7095C0948A9F3
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147831.jpgsave_picture_147831.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Reg Organizer 8.41 Final RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147833.jpgsave_picture_147833.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Steam Slicer - Devenir (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147834.jpgsave_picture_147834.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:BA276662D0B8E786EA49C592B6000867D5EF4FB1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147835.jpgsave_picture_147835.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:B9D740BA4C7635D699A3F282F5D9CE1E476F918D
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147836.jpgsave_picture_147836.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:C208B0416A4FD800022F501955A5C0A35302CDEC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147837.jpgsave_picture_147837.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - RAM Drum & Bass Annual 2017 (2016) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147838.jpgsave_picture_147838.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Heavenqueen - Heavenqueen (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147839.jpgsave_picture_147839.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:D8DDC7193C8DC41FE2381F1ABB670E6B7BD4D3A6
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147840.jpgsave_picture_147840.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:A24A4D3C48D7BF7EE1A984516AA03B0F0B06BA35
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147841.jpgsave_picture_147841.jpg" />
 </div>
 
 

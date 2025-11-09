@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235532.jpgsave_picture_235532.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Alan Waters - Жернова (2023) [MP3|320 Kbps] <Alternative, Industrial>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235533.jpgsave_picture_235533.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7A8F2DF7676FC75932C6060A45031069AA3FF643
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235534.jpgsave_picture_235534.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Demolition Train - Bound By Horror, Sealed With Blood (2017) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235535.jpgsave_picture_235535.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Spotify 1.2.10.760 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235536.jpgsave_picture_235536.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:73DCED6FD914DBD7F0CB896F76DEA998C9372BAF
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235537.jpgsave_picture_235537.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Wardencliff - Город (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235538.jpgsave_picture_235538.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Erik Naugle - Absolute (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235539.jpgsave_picture_235539.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Melancholy - Чернъ (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235540.jpgsave_picture_235540.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:B6D85F9517CBAC7B2E2CDCE7B0D5A8B1B1AC81D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235541.jpgsave_picture_235541.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:2F8A8A491752FA6C7C412776A70ADB4CCC2CAC68
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235542.jpgsave_picture_235542.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ CyberLink AudioDirector Ultra 13.4.2903.0 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235543.jpgsave_picture_235543.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Gary Burton - Alone At Last (1971) 2012, Atlantic [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235544.jpgsave_picture_235544.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:4180C6F4D782999C29B987F7280164C6995092DD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235545.jpgsave_picture_235545.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ It Is - The Exister (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Garage Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235546.jpgsave_picture_235546.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Silky Soul Cowgurl'z - Trailride (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, So
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235547.jpgsave_picture_235547.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Divinefire - Eye Of The Storm (2011) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235548.jpgsave_picture_235548.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ AVS Video Software 12.9.6.32 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235549.jpgsave_picture_235549.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Barbara Carroll - This Heart Of Mine (1994) DRG Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235550.jpgsave_picture_235550.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Skillshare, Yassine Larayedh | Create Realistic Looking 3D Environments in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235551.jpgsave_picture_235551.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Cocktail Ventura Edition 16.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235552.jpgsave_picture_235552.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Music News vol.262 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235553.jpgsave_picture_235553.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Elvis Costello – Live At The El Mocambo (1993) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235554.jpgsave_picture_235554.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Keep It 1.10.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235555.jpgsave_picture_235555.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Chrono Plus - Time Tracker 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235556.jpgsave_picture_235556.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:608AD0EBF4DA793C72627163523BCF864FCB9095
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235557.jpgsave_picture_235557.jpg" />
 </div>
 
 

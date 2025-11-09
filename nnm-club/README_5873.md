@@ -6,7 +6,7 @@ Microsoft PowerToys 0.74.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184607.jpgsave_picture_184607.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nekomata - ...And Then, The Abusement Park Left Town (2022) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184608.jpgsave_picture_184608.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ My Favorites 2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184611.jpgsave_picture_184611.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:962BEAA813B8269924BB8277F9FDAD19AB2E7975
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184612.jpgsave_picture_184612.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Duplicate Files Sweeper 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184614.jpgsave_picture_184614.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/En] (2.8.0.4/1.0.111.0/dlc) Rip X-NET
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184616.jpgsave_picture_184616.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Unlocker 1.9.2 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184618.jpgsave_picture_184618.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Anat Fort Trio - Colour (2019) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184620.jpgsave_picture_184620.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Sumatra PDF 3.5.15698 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184622.jpgsave_picture_184622.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:A9F451378A91A901FB16A753245D37CA016FB8A8
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184623.jpgsave_picture_184623.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Sylvaine - Nova (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Post-Black Meta
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184626.jpgsave_picture_184626.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:C3317E8743B9507F98C269142D46DAFF89007E36
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184627.jpgsave_picture_184627.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ BurnAware Professional 17.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184628.jpgsave_picture_184628.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Persuader - Necromancy (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184629.jpgsave_picture_184629.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ ScAnDroid Experiment's - Mental Solubility (2023) авторская разда�
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184632.jpgsave_picture_184632.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Windows 10 Pro 20H2 x64 Rus by OneSmiLe [19042.662]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184633.jpgsave_picture_184633.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ PALLEA - Парусник Маака (2022) [FLAC|Lossless|WEB-DL|tracks] <Screa
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184635.jpgsave_picture_184635.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:31D1431CFBF2BA95AAFB62471175943C86368309
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184637.jpgsave_picture_184637.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Surf Rock Compilation Part 34 (2023) [MP3|320 Kbps] <Surf Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184638.jpgsave_picture_184638.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Kurnalcool - The Final Tazz (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184641.jpgsave_picture_184641.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Ambient Ethereal Dreams (2023) [MP3|320 Kbps] <Ambient, Downtempo, Relax>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184642.jpgsave_picture_184642.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:11876EDF5AA56B9740E9526D2FE240C3463C7C7C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184643.jpgsave_picture_184643.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:87CABDAB0C6A73B8A35D81731B8312DDDB4ED13C
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184645.jpgsave_picture_184645.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ MediaHuman YouTube Downloader 3.9.9.86 (2509) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184647.jpgsave_picture_184647.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Broken Lock - Postmodern Songs (2022) [MP3|320 Kbps] <Stoner, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184648.jpgsave_picture_184648.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:A1D1D643DA85F96E9ACCC029028FA1347AF42C7B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184650.jpgsave_picture_184650.jpg" />
 </div>
 
 

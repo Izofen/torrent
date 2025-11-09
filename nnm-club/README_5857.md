@@ -6,7 +6,7 @@ CGcircuit, Stefan Bredereck | FX MAYHEM 102 - Smokeless Fire & Flames (2021) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183899.jpgsave_picture_183899.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:718132163B72D8A9A4895BFF464AEF2985184ADF
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183900.jpgsave_picture_183900.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:1E8DFA66C3DCF1692D9C539979F305B969E310E7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183903.jpgsave_picture_183903.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F5064DF9D5E67A36BB33C2FC848250CF062F50B4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183904.jpgsave_picture_183904.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ WinBin2Iso 6.21 Build 001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183906.jpgsave_picture_183906.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:059734075D9735DFB6C3CC959DAADE0F073F696F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183908.jpgsave_picture_183908.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:BB9A2B15FD222703C8CA59819C2E4F1E734C3F24
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183911.jpgsave_picture_183911.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:60AA6681A54B205E152C5ADF5E14BB4D33087E77
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183912.jpgsave_picture_183912.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:361E2EE2127EA53D801493250A53869C73D2F1FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183916.jpgsave_picture_183916.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:B379F896A63887A9AED2B9994CBB851CB9B49533
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183918.jpgsave_picture_183918.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ jetAudio HD Music Player Plus v11.2.7 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183920.jpgsave_picture_183920.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Savage Soul - Suffering World (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183921.jpgsave_picture_183921.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ XYplorer 25.00.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183925.jpgsave_picture_183925.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Mind Key - MK III: Aliens In Wonderland (2019) Japanese Edition [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183926.jpgsave_picture_183926.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:2466C57AC3EE600BE3F81A6816EC388160F9A0FB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183929.jpgsave_picture_183929.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Code Orange - The Above (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Industr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183930.jpgsave_picture_183930.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:D2097A9B56FE214B25CD4DC0B9B01B52C2D58E9C
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183931.jpgsave_picture_183931.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:6E64114514E3CA1143003FB1C2EEABCFBB1D4BA9
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183933.jpgsave_picture_183933.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:18D062C8A193E10C3B586B653F0DD9078E8D9FD6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183934.jpgsave_picture_183934.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Yaoru - Эверсивность (2022) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183935.jpgsave_picture_183935.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:EF6FD82D7B045892206C22AEBCCD29BE10D1718A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183937.jpgsave_picture_183937.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Firs - Власть (2022) [MP3|320 Kbps] <Alternative Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183938.jpgsave_picture_183938.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Giuseppe Ottaviani - Horizons (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183940.jpgsave_picture_183940.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Rising Steel - Fight Them All (2020) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183942.jpgsave_picture_183942.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Blowmind - Monster (2023) [MP3|320 Kbps] <Stoner Rock, Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183943.jpgsave_picture_183943.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Frank Chickens - 5 Albums (1984-1994) Collection [MP3|320 Kbps] <Electronic, Syn
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183945.jpgsave_picture_183945.jpg" />
 </div>
 
 

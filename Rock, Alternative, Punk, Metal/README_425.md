@@ -6,7 +6,7 @@ The Dear Hunter - The Indigo Child (2021) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236715.jpgsave_picture_236715.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Egor Lappo - Trancevoicer (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236716.jpgsave_picture_236716.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Crystal City Rockers - After All These Years (2021) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236727.jpgsave_picture_236727.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Alan King - I Saw The Rain (1995) [FLAC|Lossless|image + .cue] <AOR, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236738.jpgsave_picture_236738.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sic Vikki - Streetside Picasso (1995) Japanese Edition [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236747.jpgsave_picture_236747.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Tim Feehan - Full Contact (1990) [FLAC|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236750.jpgsave_picture_236750.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Arret's Odyssey - Arret's Odyssey (2021) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236756.jpgsave_picture_236756.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sugarcult - Start Static (2001) 20th Anniversary Edition, 2021, Fearless Records
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236758.jpgsave_picture_236758.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:E4617FC3AD54FEF0C31A463D6D41AF90995BDC9A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236772.jpgsave_picture_236772.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:0C2EDCB7B7B35400FE4F6B73B32AD353181C613B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236790.jpgsave_picture_236790.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Buster No - Buster No (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236799.jpgsave_picture_236799.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Replacements - Sorry Ma, Forgot To Take Out The Trash (1981) Deluxe Edition,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236804.jpgsave_picture_236804.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Madrugada - 8 Albums (1999 - 2022) [FLAC|Lossless|tracks+.cue]<Indie, Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236811.jpgsave_picture_236811.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Gartraada - A Night Of Winter Solstice (2013) [FLAC|Lossless|image + .cue] <Atmo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236815.jpgsave_picture_236815.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Rainbows Are Free - Heavy Petal Music (2008) Restore, 2023, Ripple Music [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236816.jpgsave_picture_236816.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:53D6425A2B0868FD756F16AE683C5F68BB307194
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236820.jpgsave_picture_236820.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Disturbed - Live and Indestructible (2008) [FLAC|Lossless|tracks + .cue] <Nu Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236822.jpgsave_picture_236822.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Livlos - And Then There Were None (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236827.jpgsave_picture_236827.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Disturbed - Prayer (2002) Maxi-Single [FLAC|Lossless|tracks + .cue] <Nu Metal, A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236843.jpgsave_picture_236843.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:AC21B5E8F01C33F43253B5D95F78D4893E835EB0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236844.jpgsave_picture_236844.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Reckless Love - 5 альбомов (2010 - 2022) [FLAC|Lossless|image + .cue, tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236871.jpgsave_picture_236871.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sepultura - A-Lex (2009) Remaster, 2021, BMG Rights Management [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236872.jpgsave_picture_236872.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Schizofrantik - Truth Is An Illusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236879.jpgsave_picture_236879.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Dust Mountain - Hymns For Wilderness (2021) [FLAC|Lossless|WEB-DL|tracks] <Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236881.jpgsave_picture_236881.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Black Drop - Octopus (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236892.jpgsave_picture_236892.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Cline's Mind - Vortex Of Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Spe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236902.jpgsave_picture_236902.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Krec - Сухой Закон (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108156.jpgsave_picture_108156.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sant Andreu Jazz Band - Jazzing 14 Vol.2 (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108157.jpgsave_picture_108157.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sons of Arrakis - Volume II (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychede
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108161.jpgsave_picture_108161.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ileana Mottola - Cool Life (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108163.jpgsave_picture_108163.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ilya Serov - Colors (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108164.jpgsave_picture_108164.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ LØLØ (LOLO) - falling for robots & wishing i was one (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108165.jpgsave_picture_108165.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Parker James & Paul DeFiglia & Caleb Breaux - Afterglow (2024) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108167.jpgsave_picture_108167.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dying Fetus - Descend into Depravity (2009) [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108172.jpgsave_picture_108172.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dying Fetus - War of Attrition (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Brut
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108173.jpgsave_picture_108173.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Euge Valovirta - Hardtones (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108174.jpgsave_picture_108174.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Rikard From - In My Own Time (2024) [FLAC 24/48|Lossless|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108177.jpgsave_picture_108177.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Relaxing Jazz Music, Cuban Latin Collection - Nostalgic Cuban Nights: Soft Instr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108184.jpgsave_picture_108184.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Paul Kleber - Little Home (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contempo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108187.jpgsave_picture_108187.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Lamb Shelter - Out The Cage (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108188.jpgsave_picture_108188.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Withering Surface - Exit Plan (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108202.jpgsave_picture_108202.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Samsas Traum - Kalk (2024) Underground-Edition, 2024, Trisol [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108251.jpgsave_picture_108251.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hippotraktor - Stasis (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108254.jpgsave_picture_108254.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ LImperatrice - Pulsar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <nu disco, fr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108261.jpgsave_picture_108261.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Evergrey - Theories Of Emptiness (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108263.jpgsave_picture_108263.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Toxic Holocaust - Studio Albums (6 releases) (2003-2019) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108264.jpgsave_picture_108264.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Atrophy - Studio Albums (3 releases) (1988-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108266.jpgsave_picture_108266.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Margaux - Inside the Marble (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <indie po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108269.jpgsave_picture_108269.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Dream Drop - Acne Superstar (2023) Extended version, 2024, GAIN [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108273.jpgsave_picture_108273.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Holy Mother - Rise (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108274.jpgsave_picture_108274.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Archives - No Bliss In Ignorance (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108275.jpgsave_picture_108275.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Electric Yawn - Deliverance (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Space 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108279.jpgsave_picture_108279.jpg" />
 </div>
 
 

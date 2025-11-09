@@ -6,7 +6,7 @@ CherryTree 0.99.56 x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210491.jpgsave_picture_210491.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tensnake - Stimulate (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210495.jpgsave_picture_210495.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:09E5B6405AA9DC287C23FB36FE3BF19064C7FF9D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210498.jpgsave_picture_210498.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ OfficeSuite Pro + PDF 13.10.47670 Mod by mihz, AppModz, Balatan, LITEAPKS [Ru/Mu
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210501.jpgsave_picture_210501.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:440ADAE04ADC38BA5166135F348D9D6130E3D6C8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210503.jpgsave_picture_210503.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:59B13CC5AAA782B70B85133B1EEFFD03A5D743C2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210504.jpgsave_picture_210504.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:07563C92AC64EF6E489A38B0DFEF40EB2C9E0FB8
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210506.jpgsave_picture_210506.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Music News vol.274 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210509.jpgsave_picture_210509.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Elegant Weapons - Horns For A Halo (2023) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210511.jpgsave_picture_210511.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:14EEAC24912182F33F08D7BA6E8C3DAA43C5E9A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210512.jpgsave_picture_210512.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Balabolka 2.15.0.851 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210514.jpgsave_picture_210514.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Sex Music Zone - Orgasm after Orgasm: Seductive Chillout (2023) [FLAC|Lossless|W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210517.jpgsave_picture_210517.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:98CD9E82EAE86311D3710CB3969CA1BEF38E2D34
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210519.jpgsave_picture_210519.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:FF15FFAE870DC477E988F5757F547D43B2BBAFD8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210520.jpgsave_picture_210520.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Dr. Chatelet: Faith 神医 (2022) [Multi] (1.0.25) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210522.jpgsave_picture_210522.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:5E5C3404C9DA6D9EA7B378D88A555B7FC552FBF7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210525.jpgsave_picture_210525.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Music News vol.275 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210528.jpgsave_picture_210528.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Paul McCartney – The McCartney Years (2007) 2 discs [DTS 5.1 CD-DA|44.1/16|ima
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210529.jpgsave_picture_210529.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:349FD9B0854395EA92A047061EA399F363990FDB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210531.jpgsave_picture_210531.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Kdenlive 23.04.2 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210533.jpgsave_picture_210533.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:B42CD59181870FAB1B86DD765CCA4B26D5B9FF35
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210534.jpgsave_picture_210534.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:38BA4E23CD86745ADBA7D1E6785966BDAEF5B295
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210537.jpgsave_picture_210537.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Adobe Acrobat Reader для PDF 23.3.0.26648 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210538.jpgsave_picture_210538.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - Blues On My Soul (2023) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210540.jpgsave_picture_210540.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Remains (2021) [Ru/Multi] (0.50x0297a) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210543.jpgsave_picture_210543.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:13D1428A5BC2F7D746351E0BCAB5E537C6625C0D
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210545.jpgsave_picture_210545.jpg" />
 </div>
 
 

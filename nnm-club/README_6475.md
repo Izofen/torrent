@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205056.jpgsave_picture_205056.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0534BD415DBD138DBA845AE92D3A4FB8F619B4BE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205057.jpgsave_picture_205057.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CFB6188324F994327FEADCF091C87859EED9059A
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205058.jpgsave_picture_205058.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft Windows 11 [10.0.22621.674], Version 22H2 (Updated October 2022)  - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205059.jpgsave_picture_205059.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Toto Cutugno - Лучшие песни (2011) Серия Новая коллек
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205060.jpgsave_picture_205060.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Axe - 10 albums, 19 CD (1979-2019) Discography [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205061.jpgsave_picture_205061.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Spotify 1.2.18.997 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205062.jpgsave_picture_205062.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:27066C4F661E0B51752F6F061D64DF8DE6D77A91
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205063.jpgsave_picture_205063.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:A6605DB6B50575CCC5C63439A2A458B190B1DC33
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205064.jpgsave_picture_205064.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:45727BE0ED0089172C28AC7B9AF8F1A725078567
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205065.jpgsave_picture_205065.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:01FD3AD7AB59A73AD26C743368400B597E9FB074
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205066.jpgsave_picture_205066.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Microsoft Windows 10.0.19044.2130, Version 21H2 (Updated October 2022)  - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205067.jpgsave_picture_205067.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ StartAllBack 3.5.3 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205068.jpgsave_picture_205068.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ CamScanner 6.47.6.2308150000 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205069.jpgsave_picture_205069.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:85437E4DA30CB9034A4236006D26C3E541323318
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205070.jpgsave_picture_205070.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ DesktopImages3D 2.29 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205071.jpgsave_picture_205071.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:D979353002BE1890AF844F39B6A1676C281B3CBF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205072.jpgsave_picture_205072.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:662A167E548647D59F361C42DC709596CA5FC1A1
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205073.jpgsave_picture_205073.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ StressMyPC 5.31 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205074.jpgsave_picture_205074.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ uTorrent 3.5.5 Build 46542 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205075.jpgsave_picture_205075.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:E6CB5B0CBE6C38E868B35C9764C84F05B490844F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205076.jpgsave_picture_205076.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Malloc Privacy & Security VPN 3.37 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205077.jpgsave_picture_205077.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ LibreOffice 7.6.0.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205078.jpgsave_picture_205078.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:C93BAFFCE35279272A870C2354D7087095C85432
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205079.jpgsave_picture_205079.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Microsoft Windows 11 [10.0.22000.1098], Version 21H2 (Updated October 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205080.jpgsave_picture_205080.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ KMPlayer 4.2.3.3 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205081.jpgsave_picture_205081.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.3.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48529.jpgsave_picture_48529.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ JustAxe (2024) [Ru/En] (1.00) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48551.jpgsave_picture_48551.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Over Islands (2024) [Multi] (2.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48558.jpgsave_picture_48558.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Messenger (2018) [Ru/Multi] (2.0.4/dlc) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48566.jpgsave_picture_48566.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Undying (2021) [Ru/Multi] (1.0.2.41413/dlc) Repack FitGirl [Premium Edition - Se
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48582.jpgsave_picture_48582.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.5/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48585.jpgsave_picture_48585.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (0.9.1/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48599.jpgsave_picture_48599.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Star Named EOS (2024) [Ru/Multi] (1.0.0_03) Repack Other s [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48605.jpgsave_picture_48605.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ No Man's Sky (2016) [Ru/Multi] (5.00.1/dlc) Repack Other s [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48606.jpgsave_picture_48606.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Gestalt: Steam & Cinder (2024) [Multi] (1.0.6) Scene Skidrow
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48607.jpgsave_picture_48607.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:5CBC197EF9EE321CF6789B34640F8309F1017DE4
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48608.jpgsave_picture_48608.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Resurrection of mind (2024) [Ru/En] (Build 15055615) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48613.jpgsave_picture_48613.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.0.2) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48624.jpgsave_picture_48624.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ House Party (2017) [Ru/Multi] (1.3.3.12714/dlc) License GOG [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48628.jpgsave_picture_48628.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Messenger (2018) [Ru/Multi] (2.0.4/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48636.jpgsave_picture_48636.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ A Day Out (2023) [En] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48651.jpgsave_picture_48651.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Nickelodeon All-Star Brawl 2 (2023) [Multi] (1.11.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48652.jpgsave_picture_48652.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Suppress Academician (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48653.jpgsave_picture_48653.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Champion Shift (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48659.jpgsave_picture_48659.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Barrhell (2024) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48662.jpgsave_picture_48662.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Weko The Mask Gatherer (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48663.jpgsave_picture_48663.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Rising Lords (2020) [Multi] (1.1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48667.jpgsave_picture_48667.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Linkito (2024) [Ru/Multi] (1.0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48673.jpgsave_picture_48673.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Artisan TD (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48674.jpgsave_picture_48674.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Hannah’s Day (2024) [Ru/En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48678.jpgsave_picture_48678.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Our Adventurer Guild (2024) [En] (1.24) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48679.jpgsave_picture_48679.jpg" />
 </div>
 
 

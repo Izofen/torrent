@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169606.jpgsave_picture_169606.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4221370CF97E5CB20A937A46EE9596B223C7A37A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169607.jpgsave_picture_169607.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:440202199845775427CB59CBAF9A232D2572140A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169608.jpgsave_picture_169608.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Bar Lounge Background Music (2021) [AAC|~291 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169609.jpgsave_picture_169609.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:AFC213486AC737BD2C742808D21AE627B14A7C9F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169610.jpgsave_picture_169610.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Ultimate Christmas Nu Jazz Music (2021) [AAC|~324 Kbps] <Nu Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169611.jpgsave_picture_169611.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ VA - Super8 & Tab Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169612.jpgsave_picture_169612.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:E2D01A346F13B0BB97773CF84F56483378461244
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169613.jpgsave_picture_169613.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Ant Download Manager Pro 2.1.0 Build 75692 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169614.jpgsave_picture_169614.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Ethno 4 (2021) [AAC|~324 Kbps] <Chill Out, Downtempo, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169615.jpgsave_picture_169615.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:3B0DFAC9201F78D7C2F20FD7264FFAB02C8C3E19
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169616.jpgsave_picture_169616.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:D9349B448A5955EF1D2EF1D786F76439C8F07581
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169617.jpgsave_picture_169617.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:28C3719EBC9C59D69BFCA803330721C0DB424397
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169618.jpgsave_picture_169618.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:B20F0C2E8A9F60ABF2C11540E0625AF361401207
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169619.jpgsave_picture_169619.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bandicam 4.5.3.1608 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169620.jpgsave_picture_169620.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:D85B7653B41ED2E0C9C50043CF0951F295A02212
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169621.jpgsave_picture_169621.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:A206D6C3DE6FC139BC746827A7E5ACCB8E749DA8
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169622.jpgsave_picture_169622.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Mariah Carey - Mariah Carey's Magical Christmas Special (Apple TV+ Original Soun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169623.jpgsave_picture_169623.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231023) Scen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169624.jpgsave_picture_169624.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:D7778504A9FEC33691B3651CD9717A29C41F1C17
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169625.jpgsave_picture_169625.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:E7C18B2BE7F5B5A88A85C9A73817DA52BAC7E915
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169626.jpgsave_picture_169626.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Cure - 40 Live (Curaetion 25: From There To Here + Anniversary) (2018) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169627.jpgsave_picture_169627.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:A15EDB5496984DCBFD47B529DE4E89236734BC5F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169628.jpgsave_picture_169628.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Macrorit Disk Scanner 5.3.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169629.jpgsave_picture_169629.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:47FAD126CD2124C41B6BF686FA39AD648F695038
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169630.jpgsave_picture_169630.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:7DF92FC894AC868E879A7828DDA941421F27B628
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169631.jpgsave_picture_169631.jpg" />
 </div>
 
 

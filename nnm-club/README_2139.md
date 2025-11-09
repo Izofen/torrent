@@ -6,7 +6,7 @@
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55981.jpgsave_picture_55981.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F3F5178A5AE33F12E7C7801CA249CE3D0B1F7561
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55982.jpgsave_picture_55982.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F3F5178A5AE33F12E7C7801CA249CE3D0B1F7561
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55983.jpgsave_picture_55983.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D4ED3DAD69E8FC83C3DAE3EA13FA5A65ED1C9DAA
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55984.jpgsave_picture_55984.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A4D67CBA925C49FFB82232CB986E66C1B15D0AEE
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55985.jpgsave_picture_55985.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4D0E2C8165A1F9EFEC1BF2293440594B34402D29
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55986.jpgsave_picture_55986.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VMware делает Workstation Pro и Fusion Pro бесплатными для 
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55987.jpgsave_picture_55987.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VMware сделала Workstation Pro и Fusion Pro бесплатными дл�
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55988.jpgsave_picture_55988.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:4CA86719F209348973DAAFC93AF86012CED8665D
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55989.jpgsave_picture_55989.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ System software for Windows v.3.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55990.jpgsave_picture_55990.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mark Knopfler - Duets & Collaborations (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55991.jpgsave_picture_55991.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:7616DD0D2AA74035542FEB3C992930CFD5C2507F
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55992.jpgsave_picture_55992.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:3B9F4FEF72564A44386003DCBB3713328769965D
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55993.jpgsave_picture_55993.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Morbid: The Lords of Ire (2024) [Ru/Multi] (1.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55994.jpgsave_picture_55994.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Ventoy 1.0.98 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55995.jpgsave_picture_55995.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Adobe Illustrator 2024 28.5.0.132 + Plug-ins (x64) Portable by 7997 (20.05.2024)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55996.jpgsave_picture_55996.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:AF5A0CB753A031D2F7CAEDEBB9EAEF4D5AFB81CA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55997.jpgsave_picture_55997.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:4F704548C6123B1AFEB4A808DE066A0FAFFE9706
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55998.jpgsave_picture_55998.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:5345F4948AC3DC99E08D31C34DC75A010A0348BB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55999.jpgsave_picture_55999.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:F8F71A6B3A46EE7B1E96EFBB4A7A60C9705285F7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56000.jpgsave_picture_56000.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:F1D15C0CB9C65BD02063FF213141DC512F741E8F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56001.jpgsave_picture_56001.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:B9EBAA16234F483C658BCCB8538B0935C332B379
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56002.jpgsave_picture_56002.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56003.jpgsave_picture_56003.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:199D1594D06F6A78F3FFB7F525FD89BA490E326D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56004.jpgsave_picture_56004.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:A23AAA084EAE9D61728C542077F3A4C6EAC98489
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56005.jpgsave_picture_56005.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.0.0515.2048/dlc) Repack FitGirl [Direc
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56006.jpgsave_picture_56006.jpg" />
 </div>
 
 

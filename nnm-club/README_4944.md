@@ -6,7 +6,7 @@ Chance Hayden - Get Somethin' (2018) Ropeadope Records [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154557.jpgsave_picture_154557.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:27D158974D357332B902DB8F1D3942E8E54FEA37
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154559.jpgsave_picture_154559.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Looking for Aliens (2021) [Ru/Multi] (1.0.8) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154560.jpgsave_picture_154560.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:362B75E4D6BFD245211EFF46C9CBCBEE3129F41E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154561.jpgsave_picture_154561.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:C4772FF1C0D7A53FEE52637427D9756566D416EF
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154562.jpgsave_picture_154562.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:3FA09112A986BE82DBE68AD00E9A5A73F8422B38
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154563.jpgsave_picture_154563.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Sunset Event: Chillout Sound Mix (2020) [MP3|320 Kbps] <Chillout, Lounge, D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154564.jpgsave_picture_154564.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Delicious Library 3.6.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154565.jpgsave_picture_154565.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - World Club Charts (2018) [MP3|320 Kbps] <House, Tropical, Funky, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154566.jpgsave_picture_154566.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:26BA3932D924148C2B61E07A6D34823B8B45AA5E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154567.jpgsave_picture_154567.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Hecate Enthroned - Redimus (2004) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154568.jpgsave_picture_154568.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.5.13528/dlc) Repack xatab [Collector'
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154569.jpgsave_picture_154569.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:B1EC7E6BDE3C347702D7CD5BC84A626BDBF94F50
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154570.jpgsave_picture_154570.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:FC85905950C7ED4AB2F92723939071672360A0F7
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154571.jpgsave_picture_154571.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ CyberLink PowerDVD Ultra 22.0.2415.62 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154572.jpgsave_picture_154572.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:1B0D54AB22563A79178C7C02D0B264D634681597
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154573.jpgsave_picture_154573.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:6CD4938B35A6B9DBE9C107E5D2876946A06D5BDB
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154574.jpgsave_picture_154574.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:1FA09CFE227A2DCA6348226322131BD063FFC830
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154575.jpgsave_picture_154575.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:1995F0CB355008FB497F659D6A92DE17C12ED920
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154576.jpgsave_picture_154576.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Hobbs Angel Of Death - Hobbs' Satan's Crusade (2003) Compilation, Reissue, 2017,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154577.jpgsave_picture_154577.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Nina - Control (2020) EP [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154578.jpgsave_picture_154578.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ My Little Pony в кино (Мой маленький пони) / My Little Pony
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154579.jpgsave_picture_154579.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:45ACF0B115263BF2A9EA4B667FC6E7986BB34E4A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154580.jpgsave_picture_154580.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Cassius Lambert - Symmetri (2018) Laborie Jazz [FLAC|Lossless|WEB-DL|tracks] <Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154581.jpgsave_picture_154581.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:E7B504ABB6A09DB74776A74B8B09F95816112B6C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154582.jpgsave_picture_154582.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:DF01D73738273EA1EA1343471BC649FE42DB9BAE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154583.jpgsave_picture_154583.jpg" />
 </div>
 
 

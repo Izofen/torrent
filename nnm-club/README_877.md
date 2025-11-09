@@ -6,7 +6,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23141.jpgsave_picture_23141.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Saints Row: The Third Remastered (2021) [Ru/Multi] (1.0.6.1/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23142.jpgsave_picture_23142.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MassTube Ultra 20.1.3.126 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23143.jpgsave_picture_23143.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Polarr Photo Editor Pro 5.11.10 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23144.jpgsave_picture_23144.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A52E7C5859A3BE3A95253D6339F1370D9ED4044A
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23145.jpgsave_picture_23145.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Poop Killer: Flush or Die (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23146.jpgsave_picture_23146.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:9B9F238CAFCDD18D026389707B329A4EA8779702
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23147.jpgsave_picture_23147.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:815E3BC5BBE895A658B1397878358F9D5CA57F57
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23148.jpgsave_picture_23148.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:E8641E840C783E97B125470790ACEB1C1C151628
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23149.jpgsave_picture_23149.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:E8641E840C783E97B125470790ACEB1C1C151628
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23150.jpgsave_picture_23150.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Crash Time - Undercover (2012) [Multi] (5.0.33) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23151.jpgsave_picture_23151.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:880BD4297C4779E307C2C8A2BB87C896FE1C1980
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23152.jpgsave_picture_23152.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23153.jpgsave_picture_23153.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Easy Red 2: All Fronts (2020) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23154.jpgsave_picture_23154.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Adobe Photoshop 2025 26.5.0.16 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23155.jpgsave_picture_23155.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:97450AF6BE95D1DBC85B5ACF745530EE645BA9F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23156.jpgsave_picture_23156.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:3BEE3FBCCDE6E2C87C597C8E9117B40F0D797253
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23157.jpgsave_picture_23157.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:3BEE3FBCCDE6E2C87C597C8E9117B40F0D797253
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23158.jpgsave_picture_23158.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:EFA60ACE43BB75F41DEA58E9BA075D0C0D09F703
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23159.jpgsave_picture_23159.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack FitGirl [Digital
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23160.jpgsave_picture_23160.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:B22987C5F7522CB677E43AED5E50A55D5ECD66E1
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23161.jpgsave_picture_23161.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Topaz Photo AI Pro 3.6.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23162.jpgsave_picture_23162.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Ishura 2 | Исура [ТВ-2] [2025, TV, 12 эп.] WebRip 720p HEVC raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23163.jpgsave_picture_23163.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:5C8EB0992A13C03C54810581F221BBD9C27F5FDD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23164.jpgsave_picture_23164.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:8D36BC9B46021A9F462BE00846CB120B58767690
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23165.jpgsave_picture_23165.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - Cosmic Heaven (2025) [MP3|320 Kbps] <Synthpop, Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23166.jpgsave_picture_23166.jpg" />
 </div>
 
 

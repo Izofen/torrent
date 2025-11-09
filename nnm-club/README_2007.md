@@ -6,7 +6,7 @@ Windows 7 SP1 with Update [7601.27170] AIO 44in2 (x86-x64) by adguard (v24.06.11
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52548.jpgsave_picture_52548.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C539E91549D66D4AA55FF87157E08EE748582E9D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52549.jpgsave_picture_52549.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Axel Rudi Pell - 43 albums, 54 CD (1984-2024) [FLAC|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52550.jpgsave_picture_52550.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Magnum | Bob Catley | Hard Rain - 39 albums, 68 CD (1978-2024) [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52551.jpgsave_picture_52551.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:36BD39DBAB7D17B1132011DAAE342B784BFD01E8
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52552.jpgsave_picture_52552.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:032EF1C7FD8C10570A02B575EEEEB28BA287DBB4
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52553.jpgsave_picture_52553.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:26A8C178B8FF61C496BA8F8641889E0DE2A36F6E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52554.jpgsave_picture_52554.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Despair: Blood Curse (2024) [Ru/Multi] (1.02) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52555.jpgsave_picture_52555.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:D262F3539D81996357093C98ECB16ED2A0B7756E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52556.jpgsave_picture_52556.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:78142D8A9DDB8FD0EC30B613284A83124FA2DFE2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52557.jpgsave_picture_52557.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:0C50E9DA9CB6FA78609CD50373BA8339BA5050F4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52558.jpgsave_picture_52558.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:7CF21A15BADD5A34661316617EC6E2C157113BF5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52559.jpgsave_picture_52559.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:00BEDD90C960BBF44AC321FAB6EDE6C74F42CCB3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52560.jpgsave_picture_52560.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ OCCT 13.0.1 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52561.jpgsave_picture_52561.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ RizomUV Virtual Spaces / Real Space 2024.0.58 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52562.jpgsave_picture_52562.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:1511486B95C417287187CE862CC95810331EA5CF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52563.jpgsave_picture_52563.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Process Monitor 4.01 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52564.jpgsave_picture_52564.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:09919F9D5DA69B1BA4FAA711EC3ACB1031C4D4AB
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52565.jpgsave_picture_52565.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VA - compilation  part 88 Eurodisco (2024) [MP3|320 Kbps] <Eurodisco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52566.jpgsave_picture_52566.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:013940262803852CBDFBA97EDA831E4432DEC941
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52567.jpgsave_picture_52567.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:66E9E7D2CE3C2F7A7041F760148A609663208F91
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52568.jpgsave_picture_52568.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:3EF15BAAA1CD082AAD5F8A5FF914D52AAF8B21CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52570.jpgsave_picture_52570.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Joe Bonamassa - If Heartaches Were Nickels (Live At The Hollywood Bowl With Orch
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52571.jpgsave_picture_52571.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:79122786AB53AE44F9F727E547E75BB07FE854A5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52572.jpgsave_picture_52572.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:45DF8889F8C3351ECBFFD63F08254A0B9B0FD2C1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52573.jpgsave_picture_52573.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:87BEB3370890A277E6FF4A406882A04CCA3D94E3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52574.jpgsave_picture_52574.jpg" />
 </div>
 
 

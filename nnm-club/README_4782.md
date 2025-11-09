@@ -6,7 +6,7 @@ Sexy Girls Wallpapers (08.12.12) [Wallpapers 16+]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149645.jpgsave_picture_149645.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Gilrs Wallpaper (09.12.12) [Wallpapers 16+]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149646.jpgsave_picture_149646.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ OCCT 7.2.2 Final Portable [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149647.jpgsave_picture_149647.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Movavi Picverse Photo Editor 1.5 [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149648.jpgsave_picture_149648.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Movavi Picverse – фоторедактор для Mac на русском яз
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149649.jpgsave_picture_149649.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Cure - Show (1993) DVD9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149651.jpgsave_picture_149651.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - С Новым годом! (2018) [MP3|320 Kbps] <Pop, Dance>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149652.jpgsave_picture_149652.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Horace Parlan - Happy Frame Of Mind (1963) 2005, Toshiba-EMI [FLAC|Lossless|trac
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149653.jpgsave_picture_149653.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Lungo 2.0.3 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149655.jpgsave_picture_149655.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Lungo предотвращает засыпание Mac и затемнение 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149656.jpgsave_picture_149656.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Lungo предотвращает засыпание Mac и затемнение 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149657.jpgsave_picture_149657.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Lungo предотвращает засыпание Mac и затемнение 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149658.jpgsave_picture_149658.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Lungo предотвращает засыпание Mac и затемнение 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149659.jpgsave_picture_149659.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Sexy Girls Pack Wallpapers (08.12.12) [Wallpapers 16+]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149660.jpgsave_picture_149660.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Black Hole Trance Music 12-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149661.jpgsave_picture_149661.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Hannibal - Metamorphose (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groove, Thr
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149662.jpgsave_picture_149662.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Hannibal - Metamorphose (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groove, Thr
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149664.jpgsave_picture_149664.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Behemoth - In Absentia Dei (2021) 2xCD [FLAC|Lossless|image + .cue] <Black Metal
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149665.jpgsave_picture_149665.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ BEHEMOTH наделали много шума, проведя живой стр�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149666.jpgsave_picture_149666.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ BEHEMOTH наделали много шума, проведя живой стр�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149667.jpgsave_picture_149667.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Willis Jackson With Jack McDuff - Together Again! (1959 - 1961) 2003, Prestige [
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149668.jpgsave_picture_149668.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - German Top 100 Single Charts 21.12.2018 (2018) [MP3|256 Kbps] <Pop, Hip-Hop
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149669.jpgsave_picture_149669.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - German Top 100 Single Charts 21.12.2018 (2018) [MP3|256 Kbps] <Pop, Hip-Hop
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149670.jpgsave_picture_149670.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - German Top 100 Single Charts 21.12.2018 (2018) [MP3|256 Kbps] <Pop, Hip-Hop
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149671.jpgsave_picture_149671.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - German Top 100 Single Charts 21.12.2018 (2018) [MP3|256 Kbps] <Pop, Hip-Hop
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149672.jpgsave_picture_149672.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Eldritch - Innervoid (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Power-Me
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149673.jpgsave_picture_149673.jpg" />
 </div>
 
 

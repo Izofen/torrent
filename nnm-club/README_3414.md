@@ -6,7 +6,7 @@ VA - Fulltime Production Electro 80, Vol. 1 (2013) [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109125.jpgsave_picture_109125.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fort Firewall 3.12.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109126.jpgsave_picture_109126.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:EA6BFAF301CB4D657477B49AC04F87165750ECDA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109127.jpgsave_picture_109127.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Speedtest от Ookla 5.3.7 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109128.jpgsave_picture_109128.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Sexual Music Collection - Sexy Swing Jazz Bar (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109129.jpgsave_picture_109129.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:D08E6DAEA83ABB5749CED6BF8F201B6DFDEF8497
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109130.jpgsave_picture_109130.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:2A819F0D51DBCF992A6C04DB0FE02C38F8F87D41
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109131.jpgsave_picture_109131.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:E5D25BA18C74A74C9D813820FED7600CD7D0335D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109132.jpgsave_picture_109132.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:AFE75A3C16A13BB194CA63D482F3C60A323874CE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109133.jpgsave_picture_109133.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:604ECDE18DE88BFC1E8B91887F5A72355588F377
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109134.jpgsave_picture_109134.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ FlipaClip: Create 2D Animation 3.9.1 (ARM64) Mod by AppModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109135.jpgsave_picture_109135.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Taskito: To-Do и напоминания 1.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109136.jpgsave_picture_109136.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:087EC8DFC3C2700934070720BAEDC08E9991CAA4
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109137.jpgsave_picture_109137.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Google Chrome 125.0.6422.77 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109138.jpgsave_picture_109138.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:5732B2D859E392358B6495B49EA08F2281F245F7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109139.jpgsave_picture_109139.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Moore Martin | Oxford Grammar for Schools 1. Audio 2 (2014) [MP3] [EN]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109140.jpgsave_picture_109140.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Frank Walker - Progressive House Never Died, The Brooklyn Mirage New York, Unite
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109141.jpgsave_picture_109141.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - The Classic Dance Remixes (Arthur Baker Presents Dance Masters John Luongo)
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109142.jpgsave_picture_109142.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:414EE83EFBCF5D8DA2492FFDAF6CDBA918C2652C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109143.jpgsave_picture_109143.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:83417B2E781CF87AAE941F6CFCE8886C74827C5D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109144.jpgsave_picture_109144.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Andy Samford - The Eternal Illusion (2024) [MP3|320 Kbps] <Classic Rock, Psyched
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109145.jpgsave_picture_109145.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:1F5362EC1BB4401B4D8CCE2652BFCD597C9215E1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109146.jpgsave_picture_109146.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Volodia Rizak - DMS / 220V (2019) [FLAC|Lossless|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109147.jpgsave_picture_109147.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:7DF44F213D478E4F12829D926AD2D4DFCF3D626F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109148.jpgsave_picture_109148.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:C57AA74281C9B5BEA1C202360D39612C6749F4F2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109149.jpgsave_picture_109149.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ PhotoRoom 4.9.6 (b1398) Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109150.jpgsave_picture_109150.jpg" />
 </div>
 
 

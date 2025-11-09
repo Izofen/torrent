@@ -6,7 +6,7 @@ Lords of Ravage (2025) [Ru/Multi] (1.0-1-26) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202456.jpgsave_picture_202456.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BALL x PIT (2025) [Ru/Multi] (build 20076054/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202458.jpgsave_picture_202458.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Spindle (2025) [Multi] (1.0.3) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202481.jpgsave_picture_202481.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0/dlc) Scene Tenoke [Premium Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205680.jpgsave_picture_205680.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Beneath (2025) [Ru/Multi] (0.9920f/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212167.jpgsave_picture_212167.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212184.jpgsave_picture_212184.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Escape Simulator 2 (2025) [Ru/Multi] (16507r) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212426.jpgsave_picture_212426.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Master of Command (2025) [Ru/Multi] (Build 20565020) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212435.jpgsave_picture_212435.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Beneath (2025) [Ru/Multi] (20251024 v2) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212593.jpgsave_picture_212593.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dispatch (2025) [Ru/Multi] (1.0.15103/dlc) Repack Necros [Digital Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213423.jpgsave_picture_213423.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Beneath (2025) [Ru/Multi] (0.9920f/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213464.jpgsave_picture_213464.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Wreckreation (2025) [Ru/Multi] (1.0.144924) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213550.jpgsave_picture_213550.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dark Moon (2025) [Ru/Multi] (Build version 2025-10-29) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220442.jpgsave_picture_220442.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Silly Polly Beast (2025) [Ru/Multi] (1.01) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220632.jpgsave_picture_220632.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Mortal Kombat: Legacy Kollection (2025) [Multi] (1.0.0.1) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230013.jpgsave_picture_230013.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Escape Simulator 2 (2025) [Ru/Multi] (16494r) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230304.jpgsave_picture_230304.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230568.jpgsave_picture_230568.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Wreckreation (2025) [Ru/Multi] (1.0.144924) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230593.jpgsave_picture_230593.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Beneath (2025) [Ru/Multi] (0.9920f/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230599.jpgsave_picture_230599.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Dark Moon (2025) [Ru/Multi] (2025-10-29 Build 20591880) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230605.jpgsave_picture_230605.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ CUFFBUST (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246221.jpgsave_picture_246221.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lessaria: Fantasy Kingdom Sim (2025) [Ru/Multi] (1.0.1034/dlc) Repack FitGirl [D
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246236.jpgsave_picture_246236.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Wreckreation (2025) [Ru/Multi] (0.9c) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246250.jpgsave_picture_246250.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246251.jpgsave_picture_246251.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Bleak Haven (2025) [Ru/Multi] (1.2.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246252.jpgsave_picture_246252.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Avernum 4: Greed and Glory (2025) [En] (1.0.0a) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246253.jpgsave_picture_246253.jpg" />
 </div>
 
 

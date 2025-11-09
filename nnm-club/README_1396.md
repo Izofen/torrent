@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36651.jpgsave_picture_36651.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D31A4A924D4B05DB5740ACF65A31FA678FD88765
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36652.jpgsave_picture_36652.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Rainbow - Star Collection (2010) 4CD Boxset [FLAC|Lossless]<Hard Rock, Heavy Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36653.jpgsave_picture_36653.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Tortuga - A Pirate's Tale (2023) [Multi] (1.2.0.62400) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36654.jpgsave_picture_36654.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Depersonalization (2022) [Multi] (2.0.30) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36655.jpgsave_picture_36655.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Rainbow - Forever Gold  2CD (1999) [APE|Lossless]<Classic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36656.jpgsave_picture_36656.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Dan T. and the Crew - LEGACY (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36657.jpgsave_picture_36657.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Carnal Savagery - Graveworms, Cadavers, Coffins And Bones (2024) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36658.jpgsave_picture_36658.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Sandy Hall - Full Circle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36659.jpgsave_picture_36659.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sandy Hall - Full Circle (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Har
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36660.jpgsave_picture_36660.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.3 (1953, 1954) 1995
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36661.jpgsave_picture_36661.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Carnal Savagery - Into The Abysmal Void (2024) [FLAC|Lossless|WEB-DL|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36662.jpgsave_picture_36662.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:69BC1C0DF2738702F16C31383D8982DAB601484A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36663.jpgsave_picture_36663.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Microsoft Visual Studio 2022 Enterprise 17.12.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36664.jpgsave_picture_36664.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Hamidshax - Compilation Cd 3 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36665.jpgsave_picture_36665.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:E5EC25224AF23D686724CE9C0F4B1C6D2C26A759
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36666.jpgsave_picture_36666.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:25B1DCED51FDDCE6F8CDEAD9DAAE5BF8579260C7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36667.jpgsave_picture_36667.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:B5E422EA046FD36EE050D6B005E572461556DA50
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36668.jpgsave_picture_36668.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Piano and Violin Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36669.jpgsave_picture_36669.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Шансон премьера 2024 ноябрь (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36670.jpgsave_picture_36670.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Grab Photos From Videos / Фото из видео v11.3.2 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36671.jpgsave_picture_36671.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Light Image Resizer 7.1.1.61[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36672.jpgsave_picture_36672.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:894160BE9735E09EC5A563E257472CBCD2816C9C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36673.jpgsave_picture_36673.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:78C728B73535DBF4FFA5639ABD35D3BE2A00D139
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36674.jpgsave_picture_36674.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:10930E2DDA94CF78B51D29A7BFCED1B33B98D87C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36675.jpgsave_picture_36675.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:2CCE27649FD531CC2B167762F50F63AD0AE6825D
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36676.jpgsave_picture_36676.jpg" />
 </div>
 
 

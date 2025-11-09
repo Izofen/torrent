@@ -6,7 +6,7 @@ Charles Mingus - Let My Children Hear Music (1971) 1988, Sony [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235143.jpgsave_picture_235143.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Happy Vibes 2023 (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235144.jpgsave_picture_235144.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Magic Battery 5.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235145.jpgsave_picture_235145.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - Chill Today, vol. 5 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235146.jpgsave_picture_235146.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:771D5EB1FEDF215632823208EDBF489C85A83DE4
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235147.jpgsave_picture_235147.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Fulltimegamedev, Thomas Brush | Full Time Game Dev (2020) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235150.jpgsave_picture_235150.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:B198942C51DF2C28C3BD58DCE328D4467A7EB7BE
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235151.jpgsave_picture_235151.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Nekkar - Nekkar (2013) [FLAC|Lossless|image + .cue] <Melodic Doom, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235153.jpgsave_picture_235153.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Hookshot 1.21.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235155.jpgsave_picture_235155.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:013F7F67C8BC07A2F4A837CA521BF6A251A93441
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235157.jpgsave_picture_235157.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ MotoGP. Этап 08. Гран-при Нидерландов. Гонка (25.06.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235158.jpgsave_picture_235158.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:BCE178FA610F2259EF10B643BABA3A3C49A15DCE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235159.jpgsave_picture_235159.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Downfall Of Gaia - Silhouettes of Disgust (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235160.jpgsave_picture_235160.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ VA - White Sands (Chill-Out And Electronic Collection), Vol. 3 (2022) [AAC|~332 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235162.jpgsave_picture_235162.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ NetWorker Pro 7.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235164.jpgsave_picture_235164.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:43BBF39CAA38FC2630FA9E9C1E68D1D0A4CE49B7
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235165.jpgsave_picture_235165.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ WinSnap 6.0.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235166.jpgsave_picture_235166.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Seelenkraft - Zeilen der Zeit (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235167.jpgsave_picture_235167.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Her own world - Tales From Another Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235168.jpgsave_picture_235168.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ The Gnomon Workshop, Sarah Arduini | Character Animation and Video Reference (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235169.jpgsave_picture_235169.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ mcZoomOn 5 v5.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235171.jpgsave_picture_235171.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:8C252FFC024A663B942BE322F7F97CD83A266774
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235172.jpgsave_picture_235172.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:3DB88BAADE5014B2ECB5584F314A0AD5586C2E5C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235173.jpgsave_picture_235173.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Smooze Pro 2.0.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235174.jpgsave_picture_235174.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Martin Joo | Test-Driven APIs with Laravel and Pest (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235175.jpgsave_picture_235175.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:9F150FB67A90F5A08B6E3EFFA5FC805BD3703491
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235178.jpgsave_picture_235178.jpg" />
 </div>
 
 

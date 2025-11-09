@@ -6,7 +6,7 @@ RegCool 2.004 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111101.jpgsave_picture_111101.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:17B1FE1506AFD1E45C8C3D225013CC9A221E719B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111102.jpgsave_picture_111102.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Glary Tracks Eraser 6.0.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111103.jpgsave_picture_111103.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Photo Studio Premium v2.7.3.2559 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111104.jpgsave_picture_111104.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:BD82791CB8BFA3F0804256C936372CA0772CCC24
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111105.jpgsave_picture_111105.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Nicky Romero - Tomorrowland Friendship Mix (2024-04-18) [MP3|320 Kbps] <Tech Hou
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111106.jpgsave_picture_111106.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:21FB60508E28C5C5AE8B0EB12625DA9301E71B2B
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111107.jpgsave_picture_111107.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:3ED88727D297AA3F671456C2D3E8B4B7C33AC247
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111108.jpgsave_picture_111108.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Zuider Zee - Collection (1975-2018) [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111109.jpgsave_picture_111109.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Warfect - Spectre of Devastation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Thrash M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111110.jpgsave_picture_111110.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Angel Witch - Angel Witch (1980) Reissue, Remastered, Universal [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111111.jpgsave_picture_111111.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Claptone & Diplo - Live @ The Masquerade, Fabrik Madrid, Spain (2024-04-06) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111112.jpgsave_picture_111112.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ The Preacher - The Final Attack (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111113.jpgsave_picture_111113.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:BC429E6B1C8327C9F3C1B95C6D9BA431D80A9EDF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111114.jpgsave_picture_111114.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:043E741EBB1D792D19FC87B1369324E27858957C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111115.jpgsave_picture_111115.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Joe Mooney - Lush Life (1956) 1999, Koch Jazz [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111116.jpgsave_picture_111116.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Tal Farlow - Complete 1956 Private Recordings (2002) 2CD, Definitive Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111117.jpgsave_picture_111117.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Paul Bley - The Paul Bley Synthesizer Show (1970, 1971) 2017, Bamboo [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111118.jpgsave_picture_111118.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:A94E7C3493FDB4D9A4C442365FC7493D94EA1A1C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111119.jpgsave_picture_111119.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Speedtest от Ookla 5.3.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111120.jpgsave_picture_111120.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:09167E65CFFC80BCCCCBEB108B8B79AB0351491B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111121.jpgsave_picture_111121.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:A43581C86B609EAA56223A5A17205545033AC411
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111122.jpgsave_picture_111122.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Lionheart - The Grace of a Dragonfly (2024) [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111123.jpgsave_picture_111123.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - Pure Dreams, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111124.jpgsave_picture_111124.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Nova Scotia - Everytime We Touch (2023) [FLAC|Lossless|WEB-DL|tracks] <Club-Danc
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111125.jpgsave_picture_111125.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Nova Scotia - Think About The Angels (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111126.jpgsave_picture_111126.jpg" />
 </div>
 
 

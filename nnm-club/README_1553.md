@@ -6,7 +6,7 @@ Tor Browser Bundle 13.5.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40734.jpgsave_picture_40734.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Yozakura-san Chi no Daisakusen | Mission: Yozakura Family | Операция: С
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40735.jpgsave_picture_40735.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Medieval Delivery (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40736.jpgsave_picture_40736.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:59A1F1AD9FB44E661C29692E9E27E47988C983D0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40737.jpgsave_picture_40737.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ IObit Driver Booster Pro 12.0.0.356 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40738.jpgsave_picture_40738.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5C9F01AFB68A3A2F888390C99AFA4066413C5396
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40739.jpgsave_picture_40739.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:1985C14A1BF21E1ED6E47134B1E5F8203809A077
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40740.jpgsave_picture_40740.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:E59EF44B5B3D1616C2AF048D099F082477CA4500
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40741.jpgsave_picture_40741.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Ford против Ferrari / Ford v Ferrari (2019) UHD BDRemux [H.265/2160p] [4K,
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40742.jpgsave_picture_40742.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:ECB59DF2450ED986A9C3A88CFB032A2712F1C6A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40743.jpgsave_picture_40743.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:ECB59DF2450ED986A9C3A88CFB032A2712F1C6A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40744.jpgsave_picture_40744.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:ECB59DF2450ED986A9C3A88CFB032A2712F1C6A3
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40745.jpgsave_picture_40745.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Muse - 12 Albums, 1 Box Set (1999 - 2022) [26 CD] [FLAC|Lossless|image + .cue|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40746.jpgsave_picture_40746.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:9F3D16C0AC7FC9668267561A01EDE9D47888A6A5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40747.jpgsave_picture_40747.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:12BA1A1B6C45DCD1AFAAADB924A63F94AB2453F1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40748.jpgsave_picture_40748.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Windows 7 SP1 7601.27366 x64 3in1 by OneSmiLe [11.10.2024] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40749.jpgsave_picture_40749.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:232F90ADA1EE2DB0C8C1F83152EFBD96723D6D81
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40750.jpgsave_picture_40750.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:FB708C32737E0568AA95E2BC8D341160CFFEB947
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40751.jpgsave_picture_40751.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (3.1.0.1/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40752.jpgsave_picture_40752.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:2E5CB3BA7C2F9C47D7B557E859C27A37FBF16DE0
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40753.jpgsave_picture_40753.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:3674BA180E26BC093EDA723529FB84F8EC1C33A7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40754.jpgsave_picture_40754.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Coldplay - 15 альбомов, 2 EP (2000 - 2024) 18 CD [FLAC|Lossless|image+.c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40755.jpgsave_picture_40755.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.2.1.12/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40756.jpgsave_picture_40756.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:9550F15A2DEB7726C42901DFC001CC8E8A5F3C9C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40757.jpgsave_picture_40757.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:7CED330986C0D0C91CCE011AED2328115CC9338A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40758.jpgsave_picture_40758.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:81109F60EA05332E68FB9FA5D26ED89987AA6C29
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40759.jpgsave_picture_40759.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30385.jpgsave_picture_30385.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tin Can: Escape Pod Simulator (2022) [Ru/Multi] (1.0.0.7d) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30386.jpgsave_picture_30386.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:611CA3C1908233E83E8FEE88C2F44DE6C53D7C1B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30387.jpgsave_picture_30387.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2AB077C612B076011212E8E2CD27DC18719DECBE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30388.jpgsave_picture_30388.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6C8F0202199B105F1778E27AE61E695879411DC6
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30389.jpgsave_picture_30389.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:71BE6B61D7D22B09C262297B555412A5B18764B4
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30390.jpgsave_picture_30390.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:245102E07AAC98E1D1FD04435BEC1056F12F1CBB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30391.jpgsave_picture_30391.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Tavern Master (2021) [Ru/Multi] (2.3/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30392.jpgsave_picture_30392.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:91351AE19A3BCADEB2F582C471C30600BDC5BECC
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30393.jpgsave_picture_30393.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Reg Organizer 9.61 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30394.jpgsave_picture_30394.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:1AA49EF805AF2750D3713E89A70F56321345E994
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30395.jpgsave_picture_30395.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ BBC. 1929: Великий крах / 1929: The Great Crash (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30396.jpgsave_picture_30396.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Kodi 21.2 (Omega) [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30397.jpgsave_picture_30397.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Love n Life: Lucky Teacher (2024) [Ru/Multi] (3.3.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30398.jpgsave_picture_30398.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BBC. Horizon: Сколько людей может жить на Земле? / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30399.jpgsave_picture_30399.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:BFDCBC47246DD91081E4B524BB979A06F48DD65E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30400.jpgsave_picture_30400.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30401.jpgsave_picture_30401.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:D7804549CA4D0DE84E8861FE93B20E9839E57094
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30402.jpgsave_picture_30402.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:81BD41B9CC34F76AF612D80F34B6FAD14A5BC05F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30403.jpgsave_picture_30403.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Free Download Manager 6.25.2.6046 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30404.jpgsave_picture_30404.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Advanced Renamer 4.08 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30405.jpgsave_picture_30405.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Def Leppard: One Night Only. Live at the Leadmill (2023) BDRip [H.265/1080p] [10
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30406.jpgsave_picture_30406.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Lumii - Фоторедактор, Фильтры v1.700.167 Mod by PieMods [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30407.jpgsave_picture_30407.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ R-Wipe & Clean 20.0.2491 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30408.jpgsave_picture_30408.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:CBFAD0FE3BE734E15D9A6F780CF009CE0F4DE493
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30409.jpgsave_picture_30409.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:6C22873B887BB9060F85BFDCB43A5A7E2397C898
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30410.jpgsave_picture_30410.jpg" />
 </div>
 
 

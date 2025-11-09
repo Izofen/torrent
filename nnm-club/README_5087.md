@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158971.jpgsave_picture_158971.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Heavy Queens (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158972.jpgsave_picture_158972.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C067D1AD1893F0AAC6E6C7B6BD1F71CE4CE97A5B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158973.jpgsave_picture_158973.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Space Holidays Vol. 14 (2022) 3CD [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158974.jpgsave_picture_158974.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:5D0D26C0BD9E60CB92FC377970FDB84EAE20484D
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158975.jpgsave_picture_158975.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:060C07356C3667BC66F5954DC0DB232DAD822026
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158976.jpgsave_picture_158976.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:022118503FAB223ABD0960E68A7E6FA22B21AB1D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158977.jpgsave_picture_158977.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:6232E786C89DD26C51DEF7B0114F0D3C37D2DF32
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158978.jpgsave_picture_158978.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ n-Track Studio Suite 10.0.0.8209 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158979.jpgsave_picture_158979.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:2A6064DACA706B2C24180ED339FCA9E6106562DB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158980.jpgsave_picture_158980.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ MouseBoost pro for Mac 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158981.jpgsave_picture_158981.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:62FE652120B99E628D7746433B3D655C732114B0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158982.jpgsave_picture_158982.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ MotoGP. Этап 18. Гран-при Малайзии. Гонка (12.11.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158983.jpgsave_picture_158983.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Cheap Trick - Live At The Whisky (1977) 4 x CD, Limited Edition, Reissue, 2022, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158984.jpgsave_picture_158984.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:4D1BE3546E6FAFEC5E36C34342E7ECA491213156
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158985.jpgsave_picture_158985.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Wondershare UniConverter 14.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158986.jpgsave_picture_158986.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Beate Zurwehme ft LDX#40 - Fck Sigrid Kárzer (2022) [FLAC|Lossless|tracks] <Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158987.jpgsave_picture_158987.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Manizha - Колыбель для повзрослевшего (2022) [MP3|320 K
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158988.jpgsave_picture_158988.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Fallen Angels: Bad Girl Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158989.jpgsave_picture_158989.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:96E34934C1E3A534DF883A2F332F83CC8276576D
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158990.jpgsave_picture_158990.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:0F1C041B3AE72D0082189F1A05C97BA901E9337F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158991.jpgsave_picture_158991.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Dawesome - Kult 1.0.0 VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158992.jpgsave_picture_158992.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:470D5C41AC2C37D0135E35112200F45637CF9FD8
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158993.jpgsave_picture_158993.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:D8C4FA8E147A726CC49EA2525825E74F903276E5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158994.jpgsave_picture_158994.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Evile - Studio Albums (6 releases) (2007-2023) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158995.jpgsave_picture_158995.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:F672D0A1B05F47DBEEEE2E823802ED84FCAE36A6
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158996.jpgsave_picture_158996.jpg" />
 </div>
 
 

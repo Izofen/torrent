@@ -6,7 +6,7 @@ Xojo 2023 Release 1.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194467.jpgsave_picture_194467.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ MAD WAY (2023) [Multi] (1.1.6) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194468.jpgsave_picture_194468.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:27E294E8E3CD131D7FC34B09DD0CD047112114AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194469.jpgsave_picture_194469.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:BE7817A059EDF747D50E31AF8C234466ACC2BEB6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194470.jpgsave_picture_194470.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Opera One 101.0.4843.43 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194471.jpgsave_picture_194471.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:DDE16A1128F56B7008CAE03AEA2671FA127A684A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194472.jpgsave_picture_194472.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Hammond Organ - The Sweet Life (2023) [MP3|320 Kbps] <Hammond, Instrumental
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194473.jpgsave_picture_194473.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:7E56490A685022E7E108D42558586626641497BA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194475.jpgsave_picture_194475.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:536B4D2F607093895AD4052C4950DF87BCF96229
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194476.jpgsave_picture_194476.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:E24081DE16039D6D02A69C7BCB622713900E3408
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194477.jpgsave_picture_194477.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:E825C475221F6E3AE8913A7A0EE221EE6EB34B46
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194478.jpgsave_picture_194478.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:1DBC0DED90DE1AD337F23F199DE547C2A7AC6054
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194479.jpgsave_picture_194479.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:E8489EF808A814991C33A2B2118C327B488C2770
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194480.jpgsave_picture_194480.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:CAC962048065CF36065006DE69E26D48ECC43ABB
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194481.jpgsave_picture_194481.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:2BF25D5C370D3E744E09E8864ABE0F3557A72437
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194482.jpgsave_picture_194482.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:4FEDD418A3EEE0B465BCCE465F8FFC54129CD92C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194483.jpgsave_picture_194483.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:C949850BB68614F199E82CEB58214D689DE3CCE2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194484.jpgsave_picture_194484.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:704381CE9CC7077E85CEEA2FBEFE3C1D6A6333D4
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194485.jpgsave_picture_194485.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:8AE79E3B6056FF083073010C3CC8A5A9B70246E1
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194486.jpgsave_picture_194486.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:79038A50998B1209C82EF805573790D5D728B764
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194487.jpgsave_picture_194487.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:CCEE8ACF035C5DACC4E6FD89E3BB42BAB572083F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194489.jpgsave_picture_194489.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Douluo Dalu | Dou Luo Da Lu | Soul Land | Боевой континент [2018-
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194490.jpgsave_picture_194490.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.3324]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194491.jpgsave_picture_194491.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:B8C92DAE05CEA6CA6C5AA653FC18AAFB8CDB0E8F
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194492.jpgsave_picture_194492.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Stepik, Shultais Education, Никита Шультайс | Проектиров
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194493.jpgsave_picture_194493.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:9E1FAFD2E00E1B096B43D9C1F9E62D580B659DD4
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194495.jpgsave_picture_194495.jpg" />
 </div>
 
 

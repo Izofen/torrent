@@ -6,7 +6,7 @@ Black Smoke Trigger - Horizons (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105797.jpgsave_picture_105797.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:5C09449FE10D910C4F3E563C247FDDD06DE45281
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105798.jpgsave_picture_105798.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Electronica Confessions, Vol. 13 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105799.jpgsave_picture_105799.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C2D35633A5FBF5BBA8AE20A8FF8553D15E952291
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105800.jpgsave_picture_105800.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ CareUEyes 2.4.0.0 Pro Portable by FC Portables [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105801.jpgsave_picture_105801.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:5FFB578F6B10F47175B4923432981B13492BE571
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105802.jpgsave_picture_105802.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:930A8BDA115B055EE25ADAD1C8FBD095421499FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105803.jpgsave_picture_105803.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:930A8BDA115B055EE25ADAD1C8FBD095421499FA
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105804.jpgsave_picture_105804.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:A8519DF83D3EEBD6E0F0B389AD7AB81CDCEC93B4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105805.jpgsave_picture_105805.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Enchantment 2: Sun's Tear (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105806.jpgsave_picture_105806.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:FBA4979AB5B0C5D85FD1A5D0D78951D0B10419D9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105807.jpgsave_picture_105807.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:AC5FEE25670B1FD718C840F62820B7516CD3059D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105808.jpgsave_picture_105808.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:F5C47A4F8AD4BF245B65303F3666D018EA127402
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105809.jpgsave_picture_105809.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - IBIZA SUMMER 2024 - Best Electronic Music [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105810.jpgsave_picture_105810.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:6C584C9277B9BE88C250614399ACA1F6B24DEB76
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105811.jpgsave_picture_105811.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:8F9B4A8F92FC45A0D65F7CA80C9D32B0D7713AA5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105812.jpgsave_picture_105812.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ PhotoRoom v5.2.1 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105813.jpgsave_picture_105813.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:971009F0B3AB44A0E3B47A1A7FD5FED79D1ED5D9
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105814.jpgsave_picture_105814.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Blind Guardian - Somewhere Far Beyond (Revisited) (1992) 2024 Nuclear Blast [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105815.jpgsave_picture_105815.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Frank Sinatra - Ol' Blue Eyes (1990) Starlite [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105816.jpgsave_picture_105816.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:EC6CF439D819CBCA782DA1FF87A80806AF45524F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105817.jpgsave_picture_105817.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:9BF60A56829C6803DDF12594B888CD3720649EDA
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105818.jpgsave_picture_105818.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Burning Mountain - Secret Garden Session (2024) [MP3|320 Kbps] <Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105819.jpgsave_picture_105819.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:9D73FD01801E4AFF78BBB1AF2F0C7E4AD87B9161
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105820.jpgsave_picture_105820.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:450FC129973E71FA1D50DE30648086F98D0B0FB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105821.jpgsave_picture_105821.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ The Smashing Pumpkins - Aghori Mhori Mei (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105822.jpgsave_picture_105822.jpg" />
 </div>
 
 

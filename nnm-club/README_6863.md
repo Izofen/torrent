@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235714.jpgsave_picture_235714.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ HTML Academy | Анимации, часть 1. CSS-анимации (2022) [unpa
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235715.jpgsave_picture_235715.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:23D2E6E83A092251156BEEEB7339C79E061C6EB9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235716.jpgsave_picture_235716.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Ana Popovic - Power (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235717.jpgsave_picture_235717.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:0269AD1591A74D86E66347ED8B12F748A55A928F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235718.jpgsave_picture_235718.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Magnus Rosen Band - It's Time to Rock the World Again (2023) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235719.jpgsave_picture_235719.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:A18F55F83589F4DA964F2F497B54A679D29E5277
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235720.jpgsave_picture_235720.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Schysma - Schysma (2021) [MP3|320 Kbps] <Progressive Metal, Heavy Metal, Female 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235721.jpgsave_picture_235721.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Perfectly Clear WorkBench 4.5.0.2533 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235722.jpgsave_picture_235722.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Take It to Church, Vol. 1 (2018) [AAC|~324 Kbps] <Disco House, Nu-Disco, In
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235723.jpgsave_picture_235723.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:A43CC9FA61049825ADF747C2042661D5CA0FA2BB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235724.jpgsave_picture_235724.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:C2995B07C95F31B73B4F4360F743CA5969DFA5F8
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235725.jpgsave_picture_235725.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:4E09593E7D1CD3B46B89CD43238AF0BA0B3F05D3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235726.jpgsave_picture_235726.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Guardian Singles - Feed Me To The Doves (2023) [FLAC 24/48|Lossless|WEB-DL|track
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235727.jpgsave_picture_235727.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:619523718E762EF440E296317A19CB8982FAC769
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235728.jpgsave_picture_235728.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:D35532133E893D6CEAFAA4A731CF8FA4A27FCAF3
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235729.jpgsave_picture_235729.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:FDCACA9E463507284B6B7054D40D87A5BA636FE3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235730.jpgsave_picture_235730.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Scheitan - Berzerk 2000 (1998) [APE|Lossless|image + .cue] <Black Metal, Death '
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235731.jpgsave_picture_235731.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ The Flower Kings - The Sum Of No Evil (2007) Remaster, 2023, InsideOutMusic [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235732.jpgsave_picture_235732.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Arjen Lucassen's Supersonic Revolution - Golden Age Of Music (2023) [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235733.jpgsave_picture_235733.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Acer Negundo - Pryanichnye dozhdi (2023) [MP3|320 Kbps] <Psychedellic Rock, Expe
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235734.jpgsave_picture_235734.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:1B1843A4454D6358F5F35F75658D6CCAD363C44C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235735.jpgsave_picture_235735.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:7910529929081B46D302A076687A6879115A0D78
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235736.jpgsave_picture_235736.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:D9F0A930AD055072672BB61B3DE2B19F83CCAA38
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235737.jpgsave_picture_235737.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Maktkamp - Caps Lock Woke Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235738.jpgsave_picture_235738.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:AD5F63F7F5FD49C97F81BE7C819198B3466C72B8
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235739.jpgsave_picture_235739.jpg" />
 </div>
 
 

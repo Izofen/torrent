@@ -6,7 +6,7 @@ Joker's IV - Pink World (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142260.jpgsave_picture_142260.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Heretic Brazil - Gilgamesh (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142268.jpgsave_picture_142268.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:EF9C61DB0A4FF8CEF32465DBC118099459465AB7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142411.jpgsave_picture_142411.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Burning Witches - Burning Witches (2017) Japanese Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142416.jpgsave_picture_142416.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Daniele Luppi & Parquet Courts - Milano (2017) [FLAC|Lossless|tracks + .cue] <In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142450.jpgsave_picture_142450.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ magnet:?xt=urn:btih:0E85E75E102D899A634BD32631B622AEDD454C29
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142456.jpgsave_picture_142456.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Imparity - Tales Of Rust And Bones (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142524.jpgsave_picture_142524.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Virgil & Steve Howe - Nexus (2017) [FLAC|Lossless|tracks + .cue] <Ethereal, Art 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142526.jpgsave_picture_142526.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Kaunis Kuolematon - Mielenvalta (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142528.jpgsave_picture_142528.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Clouds - Clouds Acoustic (2020) Compilation [FLAC|Lossless|Web-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142531.jpgsave_picture_142531.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Mono Inc. - Mono Inc. (Live in Hamburg) (2023) [FLAC|Lossless|WEB-DL|tracks] <Go
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142557.jpgsave_picture_142557.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Story of the Year - Wolves (2017) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142566.jpgsave_picture_142566.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Midnight Dreams - Journey (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142572.jpgsave_picture_142572.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Sieges Even - The Art Of Navigating By The Stars (2005) [MP3|320kbps] <Progressi
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142575.jpgsave_picture_142575.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Legacy - Stand And Conquer (2003) [MP3|320 Kbps] <Progressive, Power Metal, Hard
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142581.jpgsave_picture_142581.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dwell in Doom - 5 CD (2019-2020) [MP3|320 Kbps] <Doom Metal, Gothic Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142592.jpgsave_picture_142592.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:75D91511CE0595D4B70AA9D589D0B694E53A8635
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142600.jpgsave_picture_142600.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ The Sixth Chamber - Beyond the Night Veil (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142630.jpgsave_picture_142630.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Udo Lindenberg - Stärker als die Zeit Live (2016) Deluxe Edition 3CD [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142669.jpgsave_picture_142669.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Black Pyre - Fall Of The Northern Kingdom (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142675.jpgsave_picture_142675.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Vehemence - God Was Created (2002) [FLAC|Lossless|image + .cue] <Metal, Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142682.jpgsave_picture_142682.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Vehemence - Forward Without Motion (2015) [FLAC|Lossless|tracks + .cue] <Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142698.jpgsave_picture_142698.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Lindi Ortega (Линди Ортега) - Little Red Boots (2011) Last Gang Recor
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142708.jpgsave_picture_142708.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Veil of Mist - Another End Is Possible (2023) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142711.jpgsave_picture_142711.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ The Giant Void - Abyssal (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Heavy, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142724.jpgsave_picture_142724.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ The Purple Gang - Strikes (1968) Reissue, 1998, Essential [MP3|320 Kbps] <Folk R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142742.jpgsave_picture_142742.jpg" />
 </div>
 
 

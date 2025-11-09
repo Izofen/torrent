@@ -6,7 +6,7 @@
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52366.jpgsave_picture_52366.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DC4AA8D7F9CFE92120A2041C69EF3616E47B5187
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52367.jpgsave_picture_52367.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Imagine 1.5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52368.jpgsave_picture_52368.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Nuro Audio - Xpitch 1.0.2 VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52369.jpgsave_picture_52369.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:65DCBA22F0B3507CE6E650EFDE5722CF46E0AC74
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52370.jpgsave_picture_52370.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:BF5DFCDE232F470A377DD4B2375FF8C2A9C3BCE3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52371.jpgsave_picture_52371.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:1B91FFE18CB9CC91BA303D10A22B48001B1D4282
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52372.jpgsave_picture_52372.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:CAEF2A402E63380D95042D240961C2FE77218D29
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52373.jpgsave_picture_52373.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:3CB7815584ED3ABD356B6E41E31FC09810D39A4E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52374.jpgsave_picture_52374.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:F56CBD5295BCAD87E1121F361447C2183C8EA9DC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52375.jpgsave_picture_52375.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Plus Messenger (Telegram+) v10.13.1.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52376.jpgsave_picture_52376.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:BC6E26C804DDB829E7CB5024A274D55B6F4EBE54
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52377.jpgsave_picture_52377.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ JetBrains CLion 2024.1.4 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52378.jpgsave_picture_52378.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Daniel Jones | Power BI, 3 in 1 (2021) [EPUB] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52379.jpgsave_picture_52379.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:7733E79D07D2AA881FAB4459B7846F1C02DD2615
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52380.jpgsave_picture_52380.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:7733E79D07D2AA881FAB4459B7846F1C02DD2615
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52381.jpgsave_picture_52381.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:28F991CC81308BC20A63682CD7708C99B20E8A6C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52382.jpgsave_picture_52382.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:28F991CC81308BC20A63682CD7708C99B20E8A6C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52383.jpgsave_picture_52383.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Rhona Snelling | Speaking: A2 Pre-intermediate (2013) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52384.jpgsave_picture_52384.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:0A548FE9AC16D60D6E7A30FCC7C851236DD5B8D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52385.jpgsave_picture_52385.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Patti Hattu! - Cosmic Revolt (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52386.jpgsave_picture_52386.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:9A88ED5C022901535082737711085196F43FE3F9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52387.jpgsave_picture_52387.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:F1C72CAEA090E04A34A89260D65697AC0944EE2D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52388.jpgsave_picture_52388.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:EB716CEF81C6C49802F4CF68D9F6B63E39DAC353
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52389.jpgsave_picture_52389.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:28B01A93588235EC123F5FA0877EC13E92F54198
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52390.jpgsave_picture_52390.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Whispered Secrets 15: Cruise of Misfortune / Нашептанные секрет
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52391.jpgsave_picture_52391.jpg" />
 </div>
 
 

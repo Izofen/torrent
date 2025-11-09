@@ -6,7 +6,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184476.jpgsave_picture_184476.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:00CCAC1FA948727868FF21C759373B7617AD6ED2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184477.jpgsave_picture_184477.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ WSCC (Windows System Control Center) 7.0.7.2 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184480.jpgsave_picture_184480.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ PhotosRevive 1.3.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184481.jpgsave_picture_184481.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:1CFBF639FDFBD5A4FBE02204068DA44C37DDBDE7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184482.jpgsave_picture_184482.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Koan - Munchausen Trilemma (Side B) (2020) [AAC|~320 Kbps] <Ambient, Chillout, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184484.jpgsave_picture_184484.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ DNS Changer Fast&Secure Surf 1.2.8 Mod by ZackModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184486.jpgsave_picture_184486.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Auslogics File Recovery 11.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184487.jpgsave_picture_184487.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Aiseesoft Mac FoneLab for iOS 10.2.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184490.jpgsave_picture_184490.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ QuickMemoryTestOK 4.67 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184491.jpgsave_picture_184491.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Steel Prophet - The God Machine (2019) Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184492.jpgsave_picture_184492.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:942CBA5528B006C815F80E5F224E5460D2D08073
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184495.jpgsave_picture_184495.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ SnapMotion 4.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184496.jpgsave_picture_184496.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Dune Sea - 3 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184497.jpgsave_picture_184497.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ GoldWave 6.78 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184500.jpgsave_picture_184500.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:A16D3E9C672C2676B97DE1BFDED0B097AA1379F8
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184501.jpgsave_picture_184501.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Keyboard Maestro 9 v9.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184502.jpgsave_picture_184502.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:ABDF85114C28FE799082FFA0EE2463959CCCF9FE
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184505.jpgsave_picture_184505.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Iridient Developer 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184506.jpgsave_picture_184506.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:A06CF63695EAC289D42E98FDBD6C2A589BD2440B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184507.jpgsave_picture_184507.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:90849F666A2F5A0C495D4A4B048A91A7535E2C41
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184510.jpgsave_picture_184510.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:F01DF1B27313C0B698463A4A7B1B15B47860051A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184511.jpgsave_picture_184511.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Notebooks - Create Documents, Organize Files, Manage Tasks 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184512.jpgsave_picture_184512.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Them - Return To Hemmersmoor (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184514.jpgsave_picture_184514.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ start 4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184516.jpgsave_picture_184516.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:45280C61981FF4405CD452AAE8EEA31085A6391C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184518.jpgsave_picture_184518.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160797.jpgsave_picture_160797.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4446EF34415D2D678FE92459DE18F32FD0E7CF49
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160798.jpgsave_picture_160798.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Enterclass, Александра Чу | Линия и цвет (2023) WEB-DL [AD
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160799.jpgsave_picture_160799.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ ABBA - Voyage (2021) hand made, remastered [FLAC|44/16|tracks] <Pop, Dance, Euro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160800.jpgsave_picture_160800.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Rock Vivo! (2023) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160801.jpgsave_picture_160801.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:B05ECCB1CEDB15595B77817E190D1FBF2DEDF4F3
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160802.jpgsave_picture_160802.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Def Leppard - The Story So Fa (2018) Japanese Edition, 2 x CD, Compilation, Reis
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160803.jpgsave_picture_160803.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:C0CFAFC72D28E4F18FA9E3E10EF83FB9ECF8CCFE
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160804.jpgsave_picture_160804.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ ColorControl 9.7.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160805.jpgsave_picture_160805.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:2BF7B0C0E0B69EEE2097ABABDCBF7188C776B368
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160806.jpgsave_picture_160806.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:9354D4CC606737E8C23808EE0A86C31282751522
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160807.jpgsave_picture_160807.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ VA - My Playlist - Hammond organ blues, soul, jazz & funk music (2023) [MP3|320 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160808.jpgsave_picture_160808.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ NetLimiter 5.3.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160809.jpgsave_picture_160809.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:AC3E3202A0D83322D6976A4C5E766F507A56A534
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160810.jpgsave_picture_160810.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:DAFEA6FD9BF6D42AD479B8F708ECE07BC8F3B818
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160811.jpgsave_picture_160811.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ RarmaRadio Pro 2.75.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160812.jpgsave_picture_160812.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Def Leppard: Hits Vegas - Live at the Planet Hollywood (2020) BDRip [H.265/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160813.jpgsave_picture_160813.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Opera Crypto Browser 104.0.4944.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160814.jpgsave_picture_160814.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ FabFilter Total Bundle v.2023.11.31 U2B STANDALONE, VST, VST3, DPM, AU [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160815.jpgsave_picture_160815.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:F1A43A919563EBADC61BD57796C397A65754A84C
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160816.jpgsave_picture_160816.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:263300003A1FC8D040E1AB81B0C38383620A9C3A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160817.jpgsave_picture_160817.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Busuu - изучение языков 31.6.0(843845) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160818.jpgsave_picture_160818.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:66473F0EE05544EB111E896B9BC9EC3140A26929
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160819.jpgsave_picture_160819.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:5F80AC8247D793A5EAF2731B2E8F30B952917CB7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160820.jpgsave_picture_160820.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Little Snitch 5.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160821.jpgsave_picture_160821.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Psycho Diver: Mashou Bosatsu | Psycho Diver: Soul Siren | Психо-нырял�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160822.jpgsave_picture_160822.jpg" />
 </div>
 
 

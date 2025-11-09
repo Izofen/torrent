@@ -6,7 +6,7 @@ VA - Laid-Back Lounge: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206569.jpgsave_picture_206569.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Dominator 2023 (Voyage of the Damned) (2023) [MP3|320 Kbps] <Hardcore, Hard
 >>Hardstyle, Jumpstyle, Hardcore
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206657.jpgsave_picture_206657.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Depeche Mode - Sounds Of The Universe | The 12" Singles (2023) [FLAC|Lossless|WE
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207051.jpgsave_picture_207051.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Depeche Mode - Sounds Of The Universe | The 12" Singles (2023) [MP3|320 Kbps] <S
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207087.jpgsave_picture_207087.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Beheat Gorum de Mentheurd - The Voyage Of Life (2016) [FLAC|Lossless|image + .cu
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207503.jpgsave_picture_207503.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Aphex Twin - Blackbox Life Recorder 21f In A Room7 F760 (2023) [FLAC|Lossless|WE
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207652.jpgsave_picture_207652.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Prodigy - The Fat Of The Land 25th Anniversary - Remixes (2023) [FLAC|Lossle
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207701.jpgsave_picture_207701.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - BBC Radio One: Essential Mix (2022) [MP3|~245 Kbps (V0)] <House, Techno, Dr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207933.jpgsave_picture_207933.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Marco Rochowski - The Essential Collection (2023) 2CD [MP3|320 Kbps] <Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208239.jpgsave_picture_208239.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Marco Rochowski - Voyage Of Discovery (2023) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208275.jpgsave_picture_208275.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Armada Music - Ibiza 2023 [MP3|320 Kbps] <Progressive House, Deep House, Te
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208284.jpgsave_picture_208284.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Morning Mood: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208613.jpgsave_picture_208613.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Zardonic - Superstars (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Dru
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208802.jpgsave_picture_208802.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ W O L F C L U B (Wolfclub) - Desert Hearts (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208874.jpgsave_picture_208874.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Melodies of the Ocean: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209195.jpgsave_picture_209195.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Lemongrass - Mosaic (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209972.jpgsave_picture_209972.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Alphaville - First Harvest 1984-92 (1992) [FLAC|Lossless|tracks + .cue] <Synth-p
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210038.jpgsave_picture_210038.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Vocal Trance: London (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210364.jpgsave_picture_210364.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Silent Shore - Euphoric Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210403.jpgsave_picture_210403.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Tensnake - Stimulate (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210495.jpgsave_picture_210495.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Sex Music Zone - Orgasm after Orgasm: Seductive Chillout (2023) [FLAC|Lossless|W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210517.jpgsave_picture_210517.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Relaxing Melodies: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210668.jpgsave_picture_210668.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Cathy Burton - 30 Vocal Trance Hits (2023) [MP3|320 Kbps] <Trance, Vocal Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210699.jpgsave_picture_210699.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Jessi Frey - Warrior (2022) [MP3|320 Kbps] <Industrial Rock, Synthpop, Electroni
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210719.jpgsave_picture_210719.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Suanda Ibiza (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210741.jpgsave_picture_210741.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Nothing But... Trancetopia, Vol. 04 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210748.jpgsave_picture_210748.jpg" />
 </div>
 
 

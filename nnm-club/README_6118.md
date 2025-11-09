@@ -6,7 +6,7 @@ HTC Home 2.4.223.1 RePack by BELOFF [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192438.jpgsave_picture_192438.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Sackboy: A Big Adventure (2022) [Ru/Multi] (9806667/dlc) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192440.jpgsave_picture_192440.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B6CB54150F9B716E0CCA58AC8168504D14B3533E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192441.jpgsave_picture_192441.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Bayonetta 3 (2022) [Switch] [EUR] 14.1.2 [eShop / 1.1.0] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192442.jpgsave_picture_192442.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:04A7C4B48EBBDB3976455B04AE23FD51437981A5
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192443.jpgsave_picture_192443.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Slowdive - everything is alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192444.jpgsave_picture_192444.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:193EFAFB09211EAB33BFBE32D9C92ADDCD714E85
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192445.jpgsave_picture_192445.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:F12E4926E5EE2B221CFEF385A2D57709B0594554
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192446.jpgsave_picture_192446.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Andy McCoy - Too Much Ain't Enough (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192447.jpgsave_picture_192447.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:0BE16C61CBB84414735DA1FBAC1927212DAE29EA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192448.jpgsave_picture_192448.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:2663ECEF02CECD63424B6775087471650672E9F2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192449.jpgsave_picture_192449.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:6093E679929519C8D39893BF0595176641C6EBD0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192450.jpgsave_picture_192450.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Dying Fetus - Killing On Adrenaline (1998) 2022, Back On Black [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192451.jpgsave_picture_192451.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:CE4DBCEDD1BC4E93D3F1956CCB02EBB0269CE60A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192452.jpgsave_picture_192452.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:4D00BC0BA6A7CFF57530A6FCAA903CE39762A08F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192453.jpgsave_picture_192453.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:385C8AC6A3AD40ACC6850576F7D723D8346B3703
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192454.jpgsave_picture_192454.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:4758E91A34C5AF5C753A32BC3FB7E6B6D2C4BBFC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192455.jpgsave_picture_192455.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Enrico Pieranunzi - Parisian Portraits (1990) 2007, Egea [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192456.jpgsave_picture_192456.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:079C8BD61945ECFA7D725B68D8A63B642C324C91
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192457.jpgsave_picture_192457.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Mr. Hurley & Die Pulveraffen - Leuchtturm (2023) Captain's Edition, 2023, Affeni
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192458.jpgsave_picture_192458.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:C2B60B69BF80BB09A793642FC7F02AEE92D022A3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192459.jpgsave_picture_192459.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Mal Waldron Quartet - What It Is (1981) 1994, Enja [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192460.jpgsave_picture_192460.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ A Sickness Unto Death - Beyond (2018) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192461.jpgsave_picture_192461.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ FIFA 23 (2022) [Ru/Multi] (1.0.82.43747/dlc) Repack DjDI [Ultimate Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192462.jpgsave_picture_192462.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:1FC5D7DE54213DCC92D8CE2B2E4BBDCF7A2D2711
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192463.jpgsave_picture_192463.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:3F99D40F6A45CBEF5EE6BB88BC59E10F4BBEF821
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192464.jpgsave_picture_192464.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112063.jpgsave_picture_112063.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ K-Lite Codec Pack Update 18.2.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112064.jpgsave_picture_112064.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Rock Now Mixtape (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112065.jpgsave_picture_112065.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Toby Vetter - Illusions (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112066.jpgsave_picture_112066.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Ten Throne - Desolate Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112067.jpgsave_picture_112067.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:0B8AF1811E35DFABA02465D1524F2760F9A68709
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112068.jpgsave_picture_112068.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Life Hypothesis - Overdue to Evolve (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112069.jpgsave_picture_112069.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Kill The Kings - The Demo Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112070.jpgsave_picture_112070.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Leviathan Project - MCMLXXXII (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112071.jpgsave_picture_112071.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Alex Podymkin & Abraham Burton Quartet - Concert At Cobra Music Hall (2008) 2023
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112072.jpgsave_picture_112072.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Trifixion - The First and the Last Commandment (1995) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112073.jpgsave_picture_112073.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Transgressor - Ether for Scapegoat (1992) Reissue, 2015, Memento Mori [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112074.jpgsave_picture_112074.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:CCBDAAEAFDE45C85D0A65A04C17984AF78B3D886
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112075.jpgsave_picture_112075.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - Rock Fun & Happy Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112076.jpgsave_picture_112076.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Skype 8.116.0.213 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112077.jpgsave_picture_112077.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - A Taste of Chillout, Lounge & Lofi Music (2024) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112078.jpgsave_picture_112078.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:C34756CF03ED0AB2D9AFC9F81D9E2CD499036496
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112079.jpgsave_picture_112079.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:D2F7EDF6982830DF09D8D912A68B015129A07E02
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112080.jpgsave_picture_112080.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:FC270CA9CDBB99BC5C4A869E52E0F9AAA0E7BBA6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112081.jpgsave_picture_112081.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:6836C12BBC1DBEF135A9CA98437A0AE4CCBC1923
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112082.jpgsave_picture_112082.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ PhotoRoom v4.9.1 b1347 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112083.jpgsave_picture_112083.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:53420297804A15C203F09BB15EBA838F5F0DC004
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112084.jpgsave_picture_112084.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:CEE5E918415219E5B5528C725B830D2238911B64
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112085.jpgsave_picture_112085.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:CEE5E918415219E5B5528C725B830D2238911B64
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112086.jpgsave_picture_112086.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:D6189630CE1E39157F776EEC8EE102D74214B5B8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112087.jpgsave_picture_112087.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:36A95F5BF9A9C96D24946C2EA1559202501E3F0B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112088.jpgsave_picture_112088.jpg" />
 </div>
 
 

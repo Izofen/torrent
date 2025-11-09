@@ -6,7 +6,7 @@ Spotify 1.2.26.1180 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128166.jpgsave_picture_128166.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Kalacheva School, Вероника Калачева | Композиция си�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128167.jpgsave_picture_128167.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:A171CA8CE106E694F256E17012851707FC3A61A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128168.jpgsave_picture_128168.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:62226668CCB670AA91B624D5A748E8F6FB752F9D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128169.jpgsave_picture_128169.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ react.gg, ui.dev (ex. Tyler McGinnis) | The interactive way to master modern Rea
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128170.jpgsave_picture_128170.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:D8076B3CE2CC64A039C50E8CD62081A949EC815E
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128171.jpgsave_picture_128171.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Adobe Acrobat Reader 2023.008.20421.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128173.jpgsave_picture_128173.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:7E509C69BB19EBC43839A11713776278C9D0B744
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128174.jpgsave_picture_128174.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Alexunder Hess | Figma Pro Secrets (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128175.jpgsave_picture_128175.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:3AE8B5371D583D1220BFF2CE28703268925EA38A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128177.jpgsave_picture_128177.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:B71EC9F79BEE1480A31831D1732A7D21DA6F1E98
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128178.jpgsave_picture_128178.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:7261ED9E5C5671CB9AD367070B720BCD1C0DCDB2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128179.jpgsave_picture_128179.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Fit-Standard, Владимир Лапин | Техника выполнения 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128180.jpgsave_picture_128180.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:70A473D806DB4CEBE6B11AEF632E17871B476329
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128181.jpgsave_picture_128181.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:E8AFC08CCEC575EB545EA2CE6C4998301FD73A79
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128182.jpgsave_picture_128182.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ G.I. Joe: Бросок кобры 2 / G.I. Joe: Retaliation (2013) BDRip [H.264/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128183.jpgsave_picture_128183.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:4E8D876ADAB38A22BE22A00876B0C2E575CCB88C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128184.jpgsave_picture_128184.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Another World: 20th Anniversary Edition (2013) [Ru/Multi] (8516704) Repack dixen
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128185.jpgsave_picture_128185.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:187650C0E6F2C6F2DBA0AC0853884E1B30FE7344
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128186.jpgsave_picture_128186.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:96BCBF111F89649228FBD45A53546FB1984DB78D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128187.jpgsave_picture_128187.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:02A1DBB521DD36994C5E8F84024FBF647AF258AD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128188.jpgsave_picture_128188.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ TRAIL OUT (2022) [Ru/Multi] (2.9st/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128189.jpgsave_picture_128189.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:70C5056B861039DF35E70A51F3009ABB13A0FAE3
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128190.jpgsave_picture_128190.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:CC2FA1F430937CA97946F185010C779B84414447
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128191.jpgsave_picture_128191.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ MAGIX Vegas Pro 21.0 Build 208 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128192.jpgsave_picture_128192.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:7DA8EA8DFDC1E6C803DA14C6735958E31F49B6DB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128193.jpgsave_picture_128193.jpg" />
 </div>
 
 

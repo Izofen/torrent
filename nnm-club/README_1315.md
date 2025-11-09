@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34545.jpgsave_picture_34545.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34546.jpgsave_picture_34546.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.50.7200 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34547.jpgsave_picture_34547.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:ED2FB6743684A66F4EF2BD406D82A1A5CC32AE7A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34548.jpgsave_picture_34548.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Auslogics Driver Updater 2.0.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34549.jpgsave_picture_34549.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8490D5BC3BA948D236D032B49004B21CDEDAC6FB
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34550.jpgsave_picture_34550.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Collection Winter Chillout (2024) [MP3|320 Kbps] <Lounge, Downtempo, Chillo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34551.jpgsave_picture_34551.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F418BDF53D5449C8ADDDB003927415A4810E1378
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34552.jpgsave_picture_34552.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Love Lounge, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34553.jpgsave_picture_34553.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:332DA6CB506E3D4748D36D249154555022A3ECDB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34554.jpgsave_picture_34554.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ HTML Academy | Курс «введение в react» [Demo] (2024) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34555.jpgsave_picture_34555.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Capture One 23 Enterprise 16.5.2.2623 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34556.jpgsave_picture_34556.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:4ED3A94E91305FC188C4D9ECA8EC989ABCD0B191
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34557.jpgsave_picture_34557.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:ACEB7E3C3D2814C5675A60BFBD70BC89E000CFDB
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34558.jpgsave_picture_34558.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Legacy of Kain Soul Reaver 1-2 Remastered (2024) [Ru/Multi] (Build 16541638) Sce
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34559.jpgsave_picture_34559.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ StarCraft: Brood War (1998) [Ru] (1.16.1/dlc) Repack Ranger
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34560.jpgsave_picture_34560.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Acro Trip | Плохая поездка [2024, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34561.jpgsave_picture_34561.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:5AD2445C716BF99F44BB94CD0935CA7DBC74387F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34562.jpgsave_picture_34562.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:5AD2445C716BF99F44BB94CD0935CA7DBC74387F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34563.jpgsave_picture_34563.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ O&O ShutUp10++ 1.9.1440 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34564.jpgsave_picture_34564.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Jinn'sLiveUSB 11.4 - флешка с Windows 7, 8.1, 10 и 11 [Ru/En] [Авто�
 >>23
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34565.jpgsave_picture_34565.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Launcher for zapret 1.4 [Ru]
 >>10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34566.jpgsave_picture_34566.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Cinema 4D 2024.2 + Redshift 3.5.24 RePack by vacuum34 v1.1 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34567.jpgsave_picture_34567.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:1D0E777A41AD930812240202B4AE344053F6B02E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34568.jpgsave_picture_34568.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Cinema 4D 2023.2.2 + Redshift 3.5.13 RePack by vacuum34 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34569.jpgsave_picture_34569.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.2605 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34570.jpgsave_picture_34570.jpg" />
 </div>
 
 

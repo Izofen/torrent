@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249421.jpgsave_picture_249421.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Niramit | Атлантис. Миссия STS-136 (2021) [MP3, Николай К�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249422.jpgsave_picture_249422.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:BB32D2C0C680D744FB5F3249B85AA29685868E47
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249423.jpgsave_picture_249423.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ qBittorrent 4.4.2 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249424.jpgsave_picture_249424.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:6FA962A517BBB5805FD1413C4C1274202A904539
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249425.jpgsave_picture_249425.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9EA65A1646F65CBE0C67C1ED84EB8149D0D619D8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249426.jpgsave_picture_249426.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:C4D5CC420CAB56DD189116661FDE238465CBBAC5
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249427.jpgsave_picture_249427.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:648DBEB9E8972F2B3DFC63614994F383E445A852
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249428.jpgsave_picture_249428.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:6738C6A0A4B24CC45856C8CA146D6EDACADB0892
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249429.jpgsave_picture_249429.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Enterclass, Татьяна Каштальян | Нарциссы пастель�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249430.jpgsave_picture_249430.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:7AA5EDE0C5FD795EAC9D7C62AFEC5B7A293FF76D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249431.jpgsave_picture_249431.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:F8075130162C3E9AC0D4C9CDBCD8A79DE35F7A1C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249432.jpgsave_picture_249432.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:FC8AF711603423422125E55034A2E1382ED86F37
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249433.jpgsave_picture_249433.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:0636290756A9DEFD781BF5394BD088C8AF68973F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249434.jpgsave_picture_249434.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:9F5A8EEBA05E88C52515C6F0E826272AE70BC85F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249435.jpgsave_picture_249435.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Kylie Minogue - Дискография (20 releases) (1988-2020) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249436.jpgsave_picture_249436.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:86C5E4EC47AAD93064A322CF1FCED3B5BB454E96
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249437.jpgsave_picture_249437.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:607D44BB5319EF2964AB1E1DF836C837A1D0E521
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249438.jpgsave_picture_249438.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Turbo Play Free 2.4651 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249439.jpgsave_picture_249439.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:B0AE32B0EF05DC77014CD307AD5272192966961D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249440.jpgsave_picture_249440.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:7E1192C32E49ABC0DA9DE0E2F89D3108C87B7FFA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249441.jpgsave_picture_249441.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Adobe Substance 3D Designer 11.3.3 Build 5429 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249442.jpgsave_picture_249442.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Hangar 13 | Артбук по игре Мафия 3 / The Art of Mafia III (2016
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249443.jpgsave_picture_249443.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:A8C9B152927BB29E1494914503B23566ACC1E9E3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249444.jpgsave_picture_249444.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:0F49989A2EC6C0361FBB3041D662E266D2CA3612
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249445.jpgsave_picture_249445.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Die Apokalyptischen Reiter - Freie Republik Reitermania (2025) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249446.jpgsave_picture_249446.jpg" />
 </div>
 
 

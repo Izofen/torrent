@@ -6,7 +6,7 @@
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32517.jpgsave_picture_32517.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E12A6B7CC42E9D465D622FA0813BBAD446B00AA6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32518.jpgsave_picture_32518.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:28DD5FD72A73D7C0B5D8AA9931014CD6C99CDB4C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32519.jpgsave_picture_32519.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1AFF3FA8C5DD7AD608E0A95AEE787CA46621B6EA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32520.jpgsave_picture_32520.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Kamonohashi Ron no Kindan Suiri 2nd Season  | Безумные расследо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32521.jpgsave_picture_32521.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Caribbean Legend (2024) [Ru/En] (1.3.5/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32522.jpgsave_picture_32522.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C0FB7F430DC518E093A06562A03A752B780B4C2E
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32523.jpgsave_picture_32523.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:EEAD685E95648F2A2E37CD8873157806E20CFEA1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32524.jpgsave_picture_32524.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:9B0850841648A4740809B1B53963D20FFAE3C6AE
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32525.jpgsave_picture_32525.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Karing 1.0.37.498 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32526.jpgsave_picture_32526.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.4.11/dlc) Repack Let'sРlay [C
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32527.jpgsave_picture_32527.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:512FE30E5B0BDBABD5F9A987710315EF80B543E7
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32528.jpgsave_picture_32528.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:512FE30E5B0BDBABD5F9A987710315EF80B543E7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32529.jpgsave_picture_32529.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:607C60C89CA5DA2F976482CEDD2C9F4C5200B694
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32530.jpgsave_picture_32530.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:B2A98F5F0D343EC4812C74D34A24A7DE2D49AFD9
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32531.jpgsave_picture_32531.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:FEAB93C735A888DFC587FDAAF9E360076F1A1EC1
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32532.jpgsave_picture_32532.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:4F2D95B1753326036C53B4BBC9F0C57A5034B624
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32533.jpgsave_picture_32533.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:032198EEB7BD912FD9D8C58ABB31586565927255
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32534.jpgsave_picture_32534.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.28.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32535.jpgsave_picture_32535.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:9AB74394C9C67D08D1A04F36C5A9947B626A7A71
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32536.jpgsave_picture_32536.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:EE8B67FB6D33DCFACC9B8670369583DA08448383
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32537.jpgsave_picture_32537.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:1CEE3B32F6C6ECEFF86890945D0298C9E25E01CF
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32538.jpgsave_picture_32538.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:E109EF77EEE0A45C8CBC1889D7F1372F4F69A968
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32539.jpgsave_picture_32539.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:7C56552E2BD8D33BAA4F9336091973C80626266D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32540.jpgsave_picture_32540.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Youtube Downloader HD 5.9.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32541.jpgsave_picture_32541.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:B8A5BB11B6F7B09F7ED73DE3452B3CA72C7A5171
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32542.jpgsave_picture_32542.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MotoGP. Этап 09. Гран-при Великобритании. Спринт 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222250.jpgsave_picture_222250.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tony Mitchell - Radio Heartbeat (2023) [FLAC|Lossless|image + .cue] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222262.jpgsave_picture_222262.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Stray Gods - Olympus (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222268.jpgsave_picture_222268.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Odds - Crash The Time Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Pop, P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222273.jpgsave_picture_222273.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:91C95ADEB794A54CFD5FCBED48FF1D297275AE9D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222280.jpgsave_picture_222280.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Bill Wray - Seize The Moment (1983) Reissue, Remastered, 2023, Bad Reputation [F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222288.jpgsave_picture_222288.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kaj Pousar - Nine Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222299.jpgsave_picture_222299.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Twinky - Dead Generation (2023) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222311.jpgsave_picture_222311.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Ellereve - Reminiscence (2023) [FLAC|Lossless|WEB-DL|tracks] <indie rock, altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222319.jpgsave_picture_222319.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Crossfade - Innocent Days (2023) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222326.jpgsave_picture_222326.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Dymna Lotva - The Land Under The Black Wings: Blood (2023) [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222333.jpgsave_picture_222333.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Houston - Relaunch III (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222340.jpgsave_picture_222340.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Performance Index 64 Pro 4.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222349.jpgsave_picture_222349.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Soulkick - Hide the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222356.jpgsave_picture_222356.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Dryadel - Dreams of the Dead Forest (Сны мёртвого леса) (2023) [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222365.jpgsave_picture_222365.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Forest. - Parts Work (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222371.jpgsave_picture_222371.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:4A84FA89235A7DE1028274ECBFF45A670939FB66
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222376.jpgsave_picture_222376.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Nothingness - Supraliminal (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222423.jpgsave_picture_222423.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ GM CHM Reader Pro for Mac 2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222433.jpgsave_picture_222433.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Warhawk - Dambuster (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222441.jpgsave_picture_222441.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Hawaii Death - ...The Cult Still Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222448.jpgsave_picture_222448.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:E0F670FE93754CD16FC787E3EB1E88010B2815D6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222460.jpgsave_picture_222460.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:A7254F992084CF59527D6E706F5F8FB22B4ABE19
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222469.jpgsave_picture_222469.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Carthus - Images of Tyranny (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222477.jpgsave_picture_222477.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Horace Silver - Paris Blues (1962) 2002, Pablo [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222485.jpgsave_picture_222485.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Abyssos - Together We Summon the Dark (1997) [MP3|320 Kbps] <Melodic Black Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222493.jpgsave_picture_222493.jpg" />
 </div>
 
 

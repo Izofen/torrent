@@ -6,7 +6,7 @@ File List Export for Mac 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120081.jpgsave_picture_120081.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FE6D39B085AB98CB09FF79887D058AD637DD1753
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120082.jpgsave_picture_120082.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ ForkLift 4 v.4.0.7 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120083.jpgsave_picture_120083.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A30483DD2DCA49470014DF6091BE105F4C0966DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120084.jpgsave_picture_120084.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:EF71B1387A6E742915ECCDAAD0E83AF0DCA7F780
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120085.jpgsave_picture_120085.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ AudFree Spotify Music Converter for Mac 2.11.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120086.jpgsave_picture_120086.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Folder Hub for Mac 1.8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120087.jpgsave_picture_120087.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Sante DICOM Editor 10.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120088.jpgsave_picture_120088.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:C98B428723F6214CF59C42131895376A8330FDE2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120089.jpgsave_picture_120089.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Native Instruments Kontakt 7 for Mac v.7.8.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120090.jpgsave_picture_120090.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:274E9DE13228337AABFA60098A7CBF1850DC6326
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120091.jpgsave_picture_120091.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Amadeus Pro 2.8.13 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120092.jpgsave_picture_120092.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:7418BC1932232CD294FB46A569C104F75B9CEBD4
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120093.jpgsave_picture_120093.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:A30127F3D837324DE0A279EA7804E531CD465EE3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120094.jpgsave_picture_120094.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ C# - Me & 23 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120095.jpgsave_picture_120095.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ AltTab for Mac 6.65.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120096.jpgsave_picture_120096.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Gianluca De Palo - My Kind Of Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120097.jpgsave_picture_120097.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Project Arcadia - Of Sins And Other Tales (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120098.jpgsave_picture_120098.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Infuse PRO 7.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120099.jpgsave_picture_120099.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:7BB19789CC053ED32A8668554781298B53D232F3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120100.jpgsave_picture_120100.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Inertia - The Human Element (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120101.jpgsave_picture_120101.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Photo Lab PRO v3.12.89 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120102.jpgsave_picture_120102.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Ungoogled Chromium 121.0.6167.85-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120103.jpgsave_picture_120103.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:527741902F9622BE877AB1495503638B0B2B8675
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120104.jpgsave_picture_120104.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Privacy Eraser Free 6.3 Build 4831 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120105.jpgsave_picture_120105.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:B012F48D464711E9EF33A46587E1D7BA0EAC2E94
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120106.jpgsave_picture_120106.jpg" />
 </div>
 
 

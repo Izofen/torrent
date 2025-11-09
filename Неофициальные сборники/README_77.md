@@ -6,7 +6,7 @@ VA - Unknown 80's (part X) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142004.jpgsave_picture_142004.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Новогодняя Дискотека 50/50 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142007.jpgsave_picture_142007.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ VA - Музыка для машины Vol.42 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142034.jpgsave_picture_142034.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - The Death Therapy (2021) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142076.jpgsave_picture_142076.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ VA - George Michael - Best275z (1984 - 2014) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142120.jpgsave_picture_142120.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ VA - Kiss FM Top 40: December (2017) [MP3|320 Kbps] <House, Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142229.jpgsave_picture_142229.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Unknown 80's (part I) (2016) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142240.jpgsave_picture_142240.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Качай и слушай Vol 5 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142350.jpgsave_picture_142350.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Hits of My Soul Vol. 19 (2016) [MP3|320 кб/с]<Post Rock, Post Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142355.jpgsave_picture_142355.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - De Top 100 Aller Tijden 1974 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142400.jpgsave_picture_142400.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Empire Records - Classic Disco 2 (2017) [MP3|320 Kbps] <Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142421.jpgsave_picture_142421.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142434.jpgsave_picture_142434.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ VA - German Top 100 Single Charts 29.12.2017 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142443.jpgsave_picture_142443.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:4C85ED72959ED28B98AC7CCFE6DC815B5BDFD22B
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142445.jpgsave_picture_142445.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142455.jpgsave_picture_142455.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ VA - Top Hits (December - 2017) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142508.jpgsave_picture_142508.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142554.jpgsave_picture_142554.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - Best 50 New Year 2019 Edition (2018) Compiled by mCITY [MP3|320 Kbps] <Euro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142584.jpgsave_picture_142584.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Modern Beats: Electro House (2018) [MP3|320 Kbps] <Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142603.jpgsave_picture_142603.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142611.jpgsave_picture_142611.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142621.jpgsave_picture_142621.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Новая Русская Дискотека (Лучшие 3) (2016) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142624.jpgsave_picture_142624.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142632.jpgsave_picture_142632.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142641.jpgsave_picture_142641.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142653.jpgsave_picture_142653.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142665.jpgsave_picture_142665.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ AI Limit (2025) [Ru/Multi] (1.1.001/dlc) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6379.jpgsave_picture_6379.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6380.jpgsave_picture_6380.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversar
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6546.jpgsave_picture_6546.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (1.2.4546) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6574.jpgsave_picture_6574.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.2.3.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6699.jpgsave_picture_6699.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Warsim: The Realm of Aslona (2022) [En] (1.3.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6718.jpgsave_picture_6718.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Slayer: The Demon Haunted World (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6988.jpgsave_picture_6988.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Starfield (2023) [Ru/Multi] (1.15.222.0/dlc) Repack Wanterlude [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7165.jpgsave_picture_7165.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Survive the Fall (2025) [Ru/Multi] (1.1.4.2506/dlc) License GOG [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7166.jpgsave_picture_7166.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tales and Tactics / Tales & Tactics (2023) [Multi] (1.2 Build 19453510) Scene Te
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7352.jpgsave_picture_7352.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Everafter Falls (2024) [Multi] (2.1.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7579.jpgsave_picture_7579.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ False Skies (2022) [En] (1.12aa) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7583.jpgsave_picture_7583.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dragon Ruins II (2) (2025) [En] (250701) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7586.jpgsave_picture_7586.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Edge of Allegoria (2024) [Multi] (1.0.1.22) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7589.jpgsave_picture_7589.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Barony (2015) [En] (4.3.2-150625-hf2/dlc) License GOG [Blessed Addition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7604.jpgsave_picture_7604.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Scrapnaut (2021) [Ru/Multi] (1.6.17) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7736.jpgsave_picture_7736.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Ys X (10): Nordics (2024) [Multi] (1.0.9/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7776.jpgsave_picture_7776.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Ys: The Oath in Felghana (2012) [En] (2020.03.11) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7801.jpgsave_picture_7801.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.20.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7814.jpgsave_picture_7814.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Vagrus: The Riven Realms (2021) [En] (1.2100730/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7816.jpgsave_picture_7816.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Darkest Dungeon (2016) [Ru/Multi] (26186a/dlc) License GOG [Soundtrack Editon]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7817.jpgsave_picture_7817.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Chained Echoes (2022) [Multi] (1.344/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7819.jpgsave_picture_7819.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Avowed (2025) [Ru/Multi] (1.5.1.0/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7820.jpgsave_picture_7820.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Slormancer (2021) [Multi] (1.0.2c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7828.jpgsave_picture_7828.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (29915/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7916.jpgsave_picture_7916.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Warhammer 40,000: Space Marine (2025) [Multi] (4326/dlc) License GOG [Master Cra
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7960.jpgsave_picture_7960.jpg" />
 </div>
 
 

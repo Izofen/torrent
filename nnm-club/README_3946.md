@@ -6,7 +6,7 @@ Nesrallah Artuso Project - No Going Back (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123084.jpgsave_picture_123084.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:033D6D617A62A8AFC3AD42C9FE5D1EC416A2F953
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123085.jpgsave_picture_123085.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Neal Morse - The Restoration - Joseph: Part Two (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123086.jpgsave_picture_123086.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Alarm Clock Pro 15 v.15.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123087.jpgsave_picture_123087.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ VA - Armin van Buuren - A State Of Trance 1155 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123088.jpgsave_picture_123088.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Jim Peterik And World Stage - Roots & Shoots - Volume One (2024) [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123089.jpgsave_picture_123089.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Layla Zoe - Back to the Spirit of 66 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123090.jpgsave_picture_123090.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Russell - Guns (Jack Russell, Tracii Guns) - Medusa (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123091.jpgsave_picture_123091.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Temperance - Of Jupiter and Moons (2018) Japanese Edition, Avalon [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123092.jpgsave_picture_123092.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ SiteSucker Pro 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123093.jpgsave_picture_123093.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:7B6A201AC55F03679B7658B26CE6D79375EED478
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123094.jpgsave_picture_123094.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Damian Wilson and Adam Wakeman - Can We Leave The Light On Longer? (2024) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123095.jpgsave_picture_123095.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:004000A9AFC218BB5A158C858DF52942053F23AE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123096.jpgsave_picture_123096.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Chris Rea - The Road To Hell (1989) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123097.jpgsave_picture_123097.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ RSS Guard 4.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123098.jpgsave_picture_123098.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:ECAC097DF0627DF6A0547E94F598068766E63A52
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123099.jpgsave_picture_123099.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Ruthless - The Fallen (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123100.jpgsave_picture_123100.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Calming Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123101.jpgsave_picture_123101.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Emurasoft EmEditor Professional 23.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123102.jpgsave_picture_123102.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Lucky Patcher 11.1.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123103.jpgsave_picture_123103.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ EditPlus 5.7.0 build 4352 + EditPlus 5.7.0 patch 4581 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123104.jpgsave_picture_123104.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:485DC7F1A30CF95B0C3B0074BE65A12D4C400623
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123105.jpgsave_picture_123105.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Emil Bulls - Love Will Fix It (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal / 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123106.jpgsave_picture_123106.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Little Snitch 5.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123107.jpgsave_picture_123107.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Wondershare PDFelement Pro OCR 10.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123108.jpgsave_picture_123108.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:A9EAF70A3EF12F66C34181C4989016C595F44F9A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123109.jpgsave_picture_123109.jpg" />
 </div>
 
 

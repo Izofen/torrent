@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158624.jpgsave_picture_158624.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Eraser 6.2.0.2970 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158625.jpgsave_picture_158625.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Taylor Swift - Fearless (2008) Reissue, Platinum Edition, 2010, BIG Machine Reco
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158626.jpgsave_picture_158626.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Future - DS2 (Dirty Sprite 2) (2015) Deluxe Edition [FLAC|Lossless|tracks + .cue
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158627.jpgsave_picture_158627.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Starus Word Recovery 2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158628.jpgsave_picture_158628.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:437E81A70F826AF53B3D9175355672F3BFB1222F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158629.jpgsave_picture_158629.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Anvide Seal Folder 5.25 + Portable + Skins Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158631.jpgsave_picture_158631.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:E656706FAB55BE16027371095DF8A3C8A754B237
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158632.jpgsave_picture_158632.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Starus Photo Recovery 4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158633.jpgsave_picture_158633.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Starus File Recovery 3.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158634.jpgsave_picture_158634.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:FD79940B75A3B33E673910EC00BE831C7C4C2FEA
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158635.jpgsave_picture_158635.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:1956B8EBAD3028CC74BE187DE141C077B5BE0018
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158636.jpgsave_picture_158636.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Rolling Stones - 1989 Steel Wheels ● 1991 Flashpoint (2015) Mini LP Platin
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158637.jpgsave_picture_158637.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Best Of 2015 - Die Hits des Jahres (2015) [MP3|320 кб/с] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158638.jpgsave_picture_158638.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:1D19CA770B229132457D4C4D321AB7ED375FA8AC
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158639.jpgsave_picture_158639.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Super MP3 Converter 6.1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158640.jpgsave_picture_158640.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:E5932219DE875C64D238626C48C8615E94F40D49
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158641.jpgsave_picture_158641.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Starus NTFS Recovery 2.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158642.jpgsave_picture_158642.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:74A756DE25015DE7A1B1073C5ECEEFE9DDE2F325
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158643.jpgsave_picture_158643.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:93CB839AFE713081DD3247BBAAE64D0935B048C8
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158644.jpgsave_picture_158644.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Eurosynth - Сборник Треков (2011 - 2015) [MP3|320 кб/с]<Hi-NRG, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158645.jpgsave_picture_158645.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Alphaville - Afternoons In Utopia (1986) [FLAC|Image+cue] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158646.jpgsave_picture_158646.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:33CCC64EB3CC08E9F42C12FA898449A2D95F0EA4
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158647.jpgsave_picture_158647.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ iStatistica 1.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158648.jpgsave_picture_158648.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - Новогодняя вечеринка. Клубные новинки! (So
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158649.jpgsave_picture_158649.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:E0690C0ADB24224551C44E83A9105D3F89113D94
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158650.jpgsave_picture_158650.jpg" />
 </div>
 
 

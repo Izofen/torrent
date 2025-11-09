@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18552.jpgsave_picture_18552.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9EF5E7A068772BBB7AA28AC1CAF925607CF195CE
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18553.jpgsave_picture_18553.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TweakPower 2.073 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18554.jpgsave_picture_18554.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4B42C7D5A8A301E38428081335554CF6A77008AC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18555.jpgsave_picture_18555.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:49C51CC4320A7315603AB6D7B1D4566C722CBCF0
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18556.jpgsave_picture_18556.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1D946EEF1BF037EB05A57C4B863DFEB009AEEB77
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18557.jpgsave_picture_18557.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ HDRezka TV v1.3.1 Mod by App Rezka TV [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18558.jpgsave_picture_18558.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:2FC1B4ECE699C5E058FF48A297ADD970BCBE8657
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18559.jpgsave_picture_18559.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:64E4406F320764BFD4D19F6843554DF36680C42C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18560.jpgsave_picture_18560.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:CB55A11DBE58F875F6552DD2151936F9854B5188
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18561.jpgsave_picture_18561.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:89D0B932FBCDD6B678B2AE6EC5CFE04E9318A285
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18562.jpgsave_picture_18562.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ IrfanView 4.72 + Plugins [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18563.jpgsave_picture_18563.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:F8FB473115A16FCCD51EF33BC6DF21EF0857CE35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18564.jpgsave_picture_18564.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Tank Squad (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18565.jpgsave_picture_18565.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Codename: Ocean Keeper / Ocean Keeper: Dome Survival (2024) [Ru/Multi] (1.0) Rep
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18566.jpgsave_picture_18566.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:84C18099AC8F87301E319DA96170E0FC2A678A86
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18567.jpgsave_picture_18567.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Scene Rune [En
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18568.jpgsave_picture_18568.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:0F31B085F2035A148F1D724165D2A96AB7881473
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18569.jpgsave_picture_18569.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Builders of Greece (2024) [Ru/Multi] (1.0.0 build 18361871) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18570.jpgsave_picture_18570.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:F17A840765C17883D8DCFC829DDB44499ECD4C9D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18571.jpgsave_picture_18571.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:9F30CC473500599FB5A4C3E043FBCCF465799C5C
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18572.jpgsave_picture_18572.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:9F30CC473500599FB5A4C3E043FBCCF465799C5C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18573.jpgsave_picture_18573.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:210FBAFFB47B6A923126539FED698E3D96ADEC1B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18574.jpgsave_picture_18574.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:D2414AAD5870A45A5E0CDCCC803BB01F502F5F82
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18575.jpgsave_picture_18575.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Toon Boom Harmony Premium 24.0.1 Build 23019 (x64) RePack by PooShock [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18576.jpgsave_picture_18576.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:97C578396EEF2533706BBFAAF73476462D68A0E6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18577.jpgsave_picture_18577.jpg" />
 </div>
 
 

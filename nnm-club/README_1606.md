@@ -6,7 +6,7 @@ Vit Registry Fix Pro 14.9.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42113.jpgsave_picture_42113.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:71496195F0395B1C95389E37FB4A8B4F8F60C1BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42114.jpgsave_picture_42114.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ StartAllBack 3.8.10 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42115.jpgsave_picture_42115.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42116.jpgsave_picture_42116.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VirtualBox 7.1.2 Build 164945 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42117.jpgsave_picture_42117.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:175D576885A6954D71584DD1EA0A886B041F1B19
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42118.jpgsave_picture_42118.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:F39CFAD550EFE60F71C75771E4E907BD4CD39C6F
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42119.jpgsave_picture_42119.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:44B89797C94DAF42A0206093B1523572EE5AF606
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42120.jpgsave_picture_42120.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:87E593B82FB7B8740515D36FAE44092275979928
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42121.jpgsave_picture_42121.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:A8D543243D65E49309ED7D6C98622E4A36A9FF49
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42122.jpgsave_picture_42122.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:FB2BDC0103AF0B0487D56231F617276AD05A54F0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42123.jpgsave_picture_42123.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Make Heroine ga Oosugiru! / Too Many Losing Heroines! / Слишком мног�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42124.jpgsave_picture_42124.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Disney Epic Mickey: Rebrushed (2024) [Multi] (15745129/dlc) Scene FairLight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42125.jpgsave_picture_42125.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:1EBE0B5688C56786B472789C3FFAA4BD423C20E7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42126.jpgsave_picture_42126.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Disk Drill 5.6.913 Enterprise (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42127.jpgsave_picture_42127.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:2FAC75794670E0DA9E789BFCA5D412347B9575C2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42128.jpgsave_picture_42128.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Nige Jouzu no Wakagimi | The Elusive Samurai | Беглый самурай [2024
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42129.jpgsave_picture_42129.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.41.0/dlc) Repack Wanterlude
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42130.jpgsave_picture_42130.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42131.jpgsave_picture_42131.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Veeam Agent 6.2.0.121 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42132.jpgsave_picture_42132.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:C3AD77E0F4DA81736F71C28B3A5C44A2312656B3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42133.jpgsave_picture_42133.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Ravenswatch (2023) [Ru/Multi] (1.00.01.01.25883) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42134.jpgsave_picture_42134.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:BFA15CD2CF597A6429B67827A83FAFC58FEF1979
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42135.jpgsave_picture_42135.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:FAC8C5417B93416DB1EAEFA94E56568C06D243E8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42136.jpgsave_picture_42136.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:D26A0522107D28E3B58D159C82746CCF536243AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42137.jpgsave_picture_42137.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Tensui no Sakuna-hime | Sakuna: Of Rice and Ruin | Сакуна: Рис и ру�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42138.jpgsave_picture_42138.jpg" />
 </div>
 
 

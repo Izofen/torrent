@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245843.jpgsave_picture_245843.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:AD5DCCC7EF8A110D8B6D57D6B029D080A2D8FFC9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246203.jpgsave_picture_246203.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:0B68A5CEA24316C10D0E789D543E2C70EB496395
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246438.jpgsave_picture_246438.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:2ACF96582E65E7BA9A0B0FCE7AAA49FF8BEB69BA
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246553.jpgsave_picture_246553.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Chaos Software Ltd. | V-Ray 2.0 for 3ds Max [2010] [PDF]
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246662.jpgsave_picture_246662.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:27C1AC6F7C0C00406EFB0D38DF25B60B5C0C8D3F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246833.jpgsave_picture_246833.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:FFEFCC275E1C3FD58EA4874141AA944FB1810C1B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246854.jpgsave_picture_246854.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Dr. Nirali Dabhi, Dr. Dharmendra Patel, Dr. Atul Patel | Web Development Toolkit
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247034.jpgsave_picture_247034.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:EF73760ECD1B5CC1446D43493229162B02DAEE1C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247142.jpgsave_picture_247142.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:C68F803671E4A82A938B203F15144DA414EFE289
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247256.jpgsave_picture_247256.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:0FDE06A413C52B88528DA8111FA0448CDE6C44E2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247425.jpgsave_picture_247425.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:AC2D996BD46A013A4D0E765CA981BB6064CDB269
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247492.jpgsave_picture_247492.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:8EF626187D6E24FC9504762934E5514D9C55D496
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247506.jpgsave_picture_247506.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:2DC2A0EBBF13D199FC1B909F0BEED500A9A3BAE2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247550.jpgsave_picture_247550.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:44D0DE2AD284F54069099AEE2E1EFB2F74E2F0EF
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247551.jpgsave_picture_247551.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:C8825D182781E210A9AD0F339985E830404E53D1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247555.jpgsave_picture_247555.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:3D9CB54CCFC0B0D557EC421B7C4EEC31834EB8FD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247565.jpgsave_picture_247565.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Aймен Эль Амри | GPT-3. Программирование на Python 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247614.jpgsave_picture_247614.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:28F6310FF5759A9FCA276F44F6BB977F5B3AD6A2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247616.jpgsave_picture_247616.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:307E4E143A27B2735ED597547DAABFB0C52BBB24
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247680.jpgsave_picture_247680.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Umesh R. Hodeghatta и др. | Practical Business Analytics Using R and Python (
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247708.jpgsave_picture_247708.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Mitch Leeuwe | Mitch Leeuwe Tutorials / Учебные пособия Митча
 >>2D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247886.jpgsave_picture_247886.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:68AEEF30BA71DDB4FAA7C9816E59FEC0C08E8725
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248094.jpgsave_picture_248094.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:968A4B7CCCFB7A4C2E7B72DEC25C118E1688375C
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248099.jpgsave_picture_248099.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:E5A7A830267022CA7BC92B37EFFD6A6870703F0F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248333.jpgsave_picture_248333.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:481F584CB1A69F847995F521A2940BB7C6224F35
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248674.jpgsave_picture_248674.jpg" />
 </div>
 
 

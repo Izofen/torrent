@@ -6,7 +6,7 @@ Smart Launcher 6.3 build 008 patch 2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205082.jpgsave_picture_205082.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4D6D33D872876EF06F0B62240BA7DAE5EAEF430A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205083.jpgsave_picture_205083.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1AA8B4A5853C0BAF124E52FEAB07474248D013AF
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205084.jpgsave_picture_205084.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ YouTube ReVanced Extended 18.32.39 (RVP v2.188.1) Mod by Marat + Micro G [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205085.jpgsave_picture_205085.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B712846F82BB8A31453F3078DA9B25BCD61D46F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205086.jpgsave_picture_205086.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B31DC105B8A930A5A607CE939E78484F6F9712E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205087.jpgsave_picture_205087.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ AIMP 5.11 Build 2435 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205088.jpgsave_picture_205088.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:DF5440FAA2ADD4C14824EA751D01E1D3A16F9A8F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205089.jpgsave_picture_205089.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ ACE COMBAT 7: SKIES UNKNOWN (2019) [PS4] [EUR] 5.05 [HEN] [License / 2.20 / DLC]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205090.jpgsave_picture_205090.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:5B3059427B065DF732681C596BD52AB70B4D1DB5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205091.jpgsave_picture_205091.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:775BE0B12BE36A739AFDE2DF54B189B5C9DB9827
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205092.jpgsave_picture_205092.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:19668EF49DC7D5AC5CBDFFF82F6C9AFCCC765DF8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205093.jpgsave_picture_205093.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:6A62E9BD0E9B762848E4FA8487A616675B15EBDD
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205094.jpgsave_picture_205094.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:70C1668932AC4EDCD270B4ADEFC9D4F4E21D71D8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205095.jpgsave_picture_205095.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:E402256AB3C090D5CD9E9C3184DB477500CFB95D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205096.jpgsave_picture_205096.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Integrity Pro 12.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205097.jpgsave_picture_205097.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Uninstall Tool 3.7.1 Build 5695 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205098.jpgsave_picture_205098.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Mentally Defiled - Aptitude for Elimination (2014) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205099.jpgsave_picture_205099.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:B69861CB80801B94740531CFA8DEBEF75A7C0D88
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205100.jpgsave_picture_205100.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:B24A703368C0446B05FFF0B7950D910F57890738
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205101.jpgsave_picture_205101.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Lasso 1.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205102.jpgsave_picture_205102.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:64165A3B8073566BB3778134E116B04566258274
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205103.jpgsave_picture_205103.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ MotoGP. Этап 10. Гран-при Австрии. Гонка (20.08.2023) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205104.jpgsave_picture_205104.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:CAF8C14C725BEFC6C674FBCE8E556957F5F2C072
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205105.jpgsave_picture_205105.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:8F29B9EF9E9DD73A0256A9B461B7181C1C02BC27
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205106.jpgsave_picture_205106.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:055DBC4CEC81D1A7DF2B0220399550710C9F21F7
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205107.jpgsave_picture_205107.jpg" />
 </div>
 
 

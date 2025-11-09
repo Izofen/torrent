@@ -6,7 +6,7 @@ Fionn Legacy - Rise of the Windlord (2023) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120406.jpgsave_picture_120406.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Navicat for PostgreSQL on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120407.jpgsave_picture_120407.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Vipassi - Lightless (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Extreme Progress
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120408.jpgsave_picture_120408.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mel Torme - Two Darn Hot (1990) 2CD, 2002, Concord Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120409.jpgsave_picture_120409.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mel Torme & Carmen McRae - Ralph J Gleason's Jazz Casual (1962, 1964) 2001, Koch
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120410.jpgsave_picture_120410.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Greengoat - A.I. (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Stoner Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120411.jpgsave_picture_120411.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ JD Allen - Toys / Die Dreaming (2020) Savant [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120412.jpgsave_picture_120412.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Navicat for MongoDB on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120413.jpgsave_picture_120413.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Grey Wolf - The Icy Mountains (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120414.jpgsave_picture_120414.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Jim Capaldi - The Outside Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120415.jpgsave_picture_120415.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Hanne Boel - Norwegian Recordings (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, P
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120416.jpgsave_picture_120416.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Rage Of Light - Studio Albums (4 releases) (2016-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120417.jpgsave_picture_120417.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Navicat for SQL Server on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120418.jpgsave_picture_120418.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Rene Huard Project - Blues Calling (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120419.jpgsave_picture_120419.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:4A58436A237F9D3A4DF4494EFE184C6226172B8D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120420.jpgsave_picture_120420.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:B6FA866743DACABCBB5665DA7F8BD78FB703BB57
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120421.jpgsave_picture_120421.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Krooked Step - As the Crow Flies (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120422.jpgsave_picture_120422.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Mago De Oz - Alicia En El Metalverso (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120423.jpgsave_picture_120423.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Grey Wolf - Glorious Death (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120424.jpgsave_picture_120424.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Bobby Darin - Commitment (1969) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk-Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120425.jpgsave_picture_120425.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:5EF96CAFD8B701CFDFCB6647B03C033D1AE5DE14
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120426.jpgsave_picture_120426.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Hyloxalus - Make Me The Heart Of The Black Hole (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120427.jpgsave_picture_120427.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Grey Wolf - We Are Metalheads (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120428.jpgsave_picture_120428.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ In Flames - 2 Albums Singles Collection (2003-2004) 2xCD, EP [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120429.jpgsave_picture_120429.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Bobby Darin - Born Walden Robert Cassotto (1968) [FLAC 24/192|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120430.jpgsave_picture_120430.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Helgrindur - Helgrindur (2023) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120431.jpgsave_picture_120431.jpg" />
 </div>
 
 

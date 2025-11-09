@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234994.jpgsave_picture_234994.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0D3A283A47F22F5D977712943340CC29EA579A25
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234995.jpgsave_picture_234995.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Udemy, John Purcell | Java 11 For Complete Beginners (2020) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234996.jpgsave_picture_234996.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:F9D3445F6A3E93C08CE085BEAB543F947AC477C1
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234997.jpgsave_picture_234997.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Unit Converter Pro / Конвертер единиц Pro 2.2.36 Mod by Balatan [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234998.jpgsave_picture_234998.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:22568942A6FBEAB6AE6F4773522C2F4B7D73D4C7
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235001.jpgsave_picture_235001.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:45FDD0D95F11D9B9CDA8FBF08B5CE038FEFA4E3B
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235003.jpgsave_picture_235003.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Mort Weiss - Mort Weiss Meets Sam Most (2006) SMS Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235004.jpgsave_picture_235004.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:A3037172CF2513504D07862B74FEBAC431AFC67E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235006.jpgsave_picture_235006.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Niagara Launcher 1.9.9 Mod by Taz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235007.jpgsave_picture_235007.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:AE7C7839B41AD9DA33C2892332BFB62B96D8C944
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235008.jpgsave_picture_235008.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Sound Siphon 3.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235010.jpgsave_picture_235010.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:2F74F33C3D28EFB925906DDCB6777DDDF760EAF6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235011.jpgsave_picture_235011.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Zampolit | Неверный ленинец (Книга 1). Провокатор 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235014.jpgsave_picture_235014.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ BELOFF [dp] 2022.05.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235015.jpgsave_picture_235015.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Welcome to Holyland - Ominous (2023) [MP3|320 Kbps] <Doom Sludge, Stoner>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235018.jpgsave_picture_235018.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Viber 17.5.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235019.jpgsave_picture_235019.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Lucky Patcher 10.8.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235020.jpgsave_picture_235020.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v6.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235021.jpgsave_picture_235021.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Memoriam - War Rages On - Artefacts (2023) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235022.jpgsave_picture_235022.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Iris 1.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235023.jpgsave_picture_235023.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Advanced SystemCare Pro 15.6.0.274 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235024.jpgsave_picture_235024.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:A72AACC7EBC854EB8D04D38B0146A5C7D391E551
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235025.jpgsave_picture_235025.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Athentech Perfectly Clear Video for Mac 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235029.jpgsave_picture_235029.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:21B86262B2829B20903C9E0295C145C909199FC0
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235030.jpgsave_picture_235030.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:83F99A5022AC507E32CE55418169396F16C0FDF5
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235031.jpgsave_picture_235031.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Havoc - The Grip (1986) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3444.jpgsave_picture_3444.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ November - The Long Way Home (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3458.jpgsave_picture_3458.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bleeding Through - Nine (2025) [FLAC|Lossless|image + .cue] <Metalcore, Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3555.jpgsave_picture_3555.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Riffstone - Richard III (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3556.jpgsave_picture_3556.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:5C37076CA07102E9111EEB2DE6A3E0EC673D3009
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3589.jpgsave_picture_3589.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:B299213E55265A16C83174B0FE9E3D376D1E8366
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3591.jpgsave_picture_3591.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Another Saturday Night: Rock Until Dawn (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3695.jpgsave_picture_3695.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Blue Submarine - Reimagine (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3696.jpgsave_picture_3696.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Stan Bush - Born For Battle (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3698.jpgsave_picture_3698.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Degreed - The Leftovers, Vol. 1 (Deluxe Edition) (2025) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3702.jpgsave_picture_3702.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Steelpreacher - Gimme Some Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3707.jpgsave_picture_3707.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Rock - Lieder für jede Stimmung (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3721.jpgsave_picture_3721.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Missing You: Passionate Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3722.jpgsave_picture_3722.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Twist and Shout: Rock 'n' Roll Party Hits (2025) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3742.jpgsave_picture_3742.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Helloween - Helloween (2021) SHM-CD, 2XCD, Japanese Edition, Reissue, 2023, Vict
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3872.jpgsave_picture_3872.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Helloween - March Of Time (The Best Of 40 Years) (2025) 3 x CD, Compilation [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3887.jpgsave_picture_3887.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Violator - Unholy Retribution (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4045.jpgsave_picture_4045.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Slipknot - Slipknot (1999) 25th Anniversary Edition, Reissue, Remastered, 2025, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4069.jpgsave_picture_4069.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Primal Fear - Domination (2025) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4084.jpgsave_picture_4084.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Slipknot - Slipknot (1999) 25th Anniversary Edition, Reissue, Remastered, 2025, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4085.jpgsave_picture_4085.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Primal Fear - Domination (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4122.jpgsave_picture_4122.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Glenn Hughes - Chosen (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4127.jpgsave_picture_4127.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Queen - Under The Covers & Over The Moon (2025) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4168.jpgsave_picture_4168.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Queen - B-Sides (2025) Remastered, 2011, UME - Global Clearing House [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4285.jpgsave_picture_4285.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Julien-K - DRK|MODE (2025) [MP3|320 Kbps] <electronic rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4296.jpgsave_picture_4296.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Queen - Acoustic (2025) Remastered, 2011, UME - Global Clearing House [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4406.jpgsave_picture_4406.jpg" />
 </div>
 
 

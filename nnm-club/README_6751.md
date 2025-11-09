@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232231.jpgsave_picture_232231.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:600F989ABE6AEA701EC6A6E877E87F59ABEBE6CD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232232.jpgsave_picture_232232.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:94256A0B0AA84B248747031A5191CAFDB803F855
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232233.jpgsave_picture_232233.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Prometheo - Stupor Mundi Vol. I (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232235.jpgsave_picture_232235.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:FE5964C318CBAE80B527FC9C89DEAC6EFCE9C6E5
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232236.jpgsave_picture_232236.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Withering Scorn - Prophets Of Demise (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232237.jpgsave_picture_232237.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:2F6674BE7A4124F4B6A65EA568504910C12E6799
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232238.jpgsave_picture_232238.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Yusef Lateef - The Centaur And The Phoenix (1960, 1961) 1992, Original Jazz Clas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232240.jpgsave_picture_232240.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Skuggor - Skogshypnos (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232242.jpgsave_picture_232242.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:EECCE2DD381C1E5D7A53677C3CD94083858D6BAE
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232243.jpgsave_picture_232243.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:B9B2CF42EC403D14B3FE33070214FDF91D48DE24
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232244.jpgsave_picture_232244.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Accusator - Trial by Fire (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232246.jpgsave_picture_232246.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Windows 10 Manager 3.8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232247.jpgsave_picture_232247.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:7EF3CFE00BBFB42315EACDFDFA1B97759C38633A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232250.jpgsave_picture_232250.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:630FC0434B1555627CA0AAFF599F52CD615FEC78
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232252.jpgsave_picture_232252.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:9FA596EAD8BA1A7EA549F5DCEDA18DE17A12DF12
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232253.jpgsave_picture_232253.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:323133838DC9D5D942B5E95616364EC83C9E0CB8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232255.jpgsave_picture_232255.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Lesath - There is a profound sense in which we are isolated (2023) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232256.jpgsave_picture_232256.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ WinToUSB Technician 7.9 Release 1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232257.jpgsave_picture_232257.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:F47FF8B6BB0AB6535CF17AA7A5C963C3B788E8B0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232259.jpgsave_picture_232259.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Demon Project - Demon Project (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232260.jpgsave_picture_232260.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ GPU Shark 0.29.4.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232261.jpgsave_picture_232261.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ The Wealthy Hobos - Ticking Twelve (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232265.jpgsave_picture_232265.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:ECBDBCE193CEF908218E738119D5233BFC13407F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232266.jpgsave_picture_232266.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:89B004E6CB58C7537C6885D0A84DB2D831F8D155
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232268.jpgsave_picture_232268.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Lintver - The Worst Is Yet to Come (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232269.jpgsave_picture_232269.jpg" />
 </div>
 
 

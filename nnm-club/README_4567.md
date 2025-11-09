@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142937.jpgsave_picture_142937.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4C1BACBC35FF646D7979FBDE8BB8FF2093C46AB3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142938.jpgsave_picture_142938.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A1FC5B5593F5CC89153FDEF284EC96A7B7B3BE8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142940.jpgsave_picture_142940.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Stellarium 0.15.1 classic Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142941.jpgsave_picture_142941.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:B4F4F7F0613C2C9FFBE65A134CC8A4DA582B4844
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142942.jpgsave_picture_142942.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:671D3289E588BA98EE4084260DA6145808AC43C8
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142943.jpgsave_picture_142943.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ R-Studio 7.8 Build 160621 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142945.jpgsave_picture_142945.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:C12A9782C3792B972E863661D21937E5D1DD57B3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142946.jpgsave_picture_142946.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C57295E20777D01E540F82837494469C28556F2D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142948.jpgsave_picture_142948.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Kekkai Sensen & Beyond / Стражи Барьера и Загранье [ТВ-2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142949.jpgsave_picture_142949.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:8C4A343CAEB5E73C77E49ABFE62C8D2F981B1C5B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142950.jpgsave_picture_142950.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Kenzen Robo Daimidaler / Daimidaler the Sound Robot / Звуковой робо�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142952.jpgsave_picture_142952.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ The Kindeman Remedy (2023) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142953.jpgsave_picture_142953.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:9B52E3EE1656F103C86B306A19366EEA505EC273
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142954.jpgsave_picture_142954.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Freemake Video Converter 4.1.10.491 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142955.jpgsave_picture_142955.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Kerbal Space Program (2015) [Ru] (1.11.0.03045/dlc) Repack xatab (обновля
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142956.jpgsave_picture_142956.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:F18B36125C3D150487E74DE4DE5AB52E5C83B04A
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142958.jpgsave_picture_142958.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Toolroom Knights (Mixed By Forza) (26.11.2012) [MP3|320 кб/с]<Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142959.jpgsave_picture_142959.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Toolroom Knights (Mixed By Forza) (26.11.2012) [MP3|320 кб/с]<Progressiv
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142961.jpgsave_picture_142961.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - Vocal Chillout Music (2018) [MP3|320 Kbps] <Downtempo, ChillOut, NewAge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142962.jpgsave_picture_142962.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:C28BF7349BBB19AA30B39081367F7086EB941954
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142963.jpgsave_picture_142963.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:A042A39BCF5F5D9F56B2FDA4ACF066B7ADFB0590
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142964.jpgsave_picture_142964.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:0C52D0CFE3478334A99D27B25ECE8597E664927D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142965.jpgsave_picture_142965.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:0AE81DC747F9A0F9CFC1A3AF3ACFD26FC42D272E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142966.jpgsave_picture_142966.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:9BD169BDA9F8FC67A653B3BB3D44ABB6FF964CD4
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142967.jpgsave_picture_142967.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:9BD169BDA9F8FC67A653B3BB3D44ABB6FF964CD4
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142968.jpgsave_picture_142968.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Doro - Maximum Celebration - Strong and Proud (2023) EP, Promo [MP3|320 Kbps] <H
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165305.jpgsave_picture_165305.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:EE1D5BE4512CF479952CB68B8A296F3F082D3D40
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165306.jpgsave_picture_165306.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:13A9D34638CE540A804368919BEC6E558E855C1C
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165307.jpgsave_picture_165307.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ SoundSource 5.5.7 fc1 beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165308.jpgsave_picture_165308.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ TextMate 2 v2.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165309.jpgsave_picture_165309.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:174F08812EC19EA8703CBEF1370E6BAE661CEEF1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165310.jpgsave_picture_165310.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Ocenaudio 3.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165311.jpgsave_picture_165311.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Vented - Cruelty And Corruption (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165312.jpgsave_picture_165312.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:39EFD9E8E8AC9D155F4F286B3B14382A20C4AB5C
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165313.jpgsave_picture_165313.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Alfred 4 Powerpack 4.0.7 (build 1131) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165314.jpgsave_picture_165314.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:9BE9AA7A3F86839A8B563A9937DF48CF7A77C868
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165315.jpgsave_picture_165315.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:9CC9C08C2882CEE0D2A73FCAC29423E784F65889
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165316.jpgsave_picture_165316.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:9FE93BDADEC29FF386CF1E6C3C871B66D341F9C4
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165317.jpgsave_picture_165317.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dropzone 4 Pro v.4.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165318.jpgsave_picture_165318.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:87F0B514A748C33EDB5D4288C697E1C5F2E70B6C
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165319.jpgsave_picture_165319.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Movist Pro 2.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165320.jpgsave_picture_165320.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Athentech Perfectly Clear Video for Mac 4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165321.jpgsave_picture_165321.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Little Violet - Code Red (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz /Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165322.jpgsave_picture_165322.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Bartender 4 v4.0.33 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165323.jpgsave_picture_165323.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:CD417411807D3293DD665790B2A74CF488455AD2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165324.jpgsave_picture_165324.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ uBar 4 v.4.2.2  [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165325.jpgsave_picture_165325.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Vreid - Solverv (2015) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165326.jpgsave_picture_165326.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:605DDFC05FB26F1A7C34E6E96B509FFA801043A6
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165327.jpgsave_picture_165327.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - Nu Cool Covers 1: Pop Classics ReStyled (2017) [AAC|~337 Kbps] <Lounge, Nu 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165328.jpgsave_picture_165328.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ The Outer Worlds (2019) [Ru/Multi] (1.2.0.418) Repack xatab
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165329.jpgsave_picture_165329.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:326FBB0D7EE796DC0EC1BEFEC55D01DAE2264B18
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165330.jpgsave_picture_165330.jpg" />
 </div>
 
 

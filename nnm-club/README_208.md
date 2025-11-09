@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5476.jpgsave_picture_5476.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C1CB18EA2CCE7EFBC1FD09A5485C449179DF3952
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5477.jpgsave_picture_5477.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) Repack Wanterlude [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5478.jpgsave_picture_5478.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windows 11 PRO 24H2 26100.4946 Update 18 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5479.jpgsave_picture_5479.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 12.0.2062.0 RePack by KpoJIuK [
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5480.jpgsave_picture_5480.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Headless - Transitional Objects (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5481.jpgsave_picture_5481.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Manegarm - Edsvuren (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Viking-Black-F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5482.jpgsave_picture_5482.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:0F3F7C81D2EC1B7ED28C3231C1A4828529F9D493
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5483.jpgsave_picture_5483.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:D95433A7EF6D814E34EFC7392B96D029BDF00143
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5484.jpgsave_picture_5484.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:961ED192A23A923F4119F29916304F375DA49065
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5485.jpgsave_picture_5485.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Peter Tha Zouk & Bruno Marciano - Kashmira (2001) [FLAC|Lossless|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5486.jpgsave_picture_5486.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:F89DB2363B4BCE1AB55FBCD529C9E813C9FAEF91
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5487.jpgsave_picture_5487.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Suotana - Ounas II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5488.jpgsave_picture_5488.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:9ADCDB54C183A8F82A47A3C5ADA07FB7874E89C7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5489.jpgsave_picture_5489.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Asymmetric Universe - A Memory And What Came After (2025) [FLAC 24/48|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5490.jpgsave_picture_5490.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:B267948E80B263654D6111F995C64E3CD330F07B
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5491.jpgsave_picture_5491.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:C8F70401F22C4F32D118C9676609240343EF94F6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5492.jpgsave_picture_5492.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:D0B37D83489C11DB26A27C189576E891E9E801B1
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5493.jpgsave_picture_5493.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:36FC782F18F095A97BE39C7B66B3F462AC6ED96C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5494.jpgsave_picture_5494.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:6251D712D02F1CFEE067663CC6962DC5A82CBEDD
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5495.jpgsave_picture_5495.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:B54BE7DC95BDAF855641C5702C979ED64B9BFC9C
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5496.jpgsave_picture_5496.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:9DAFD47CCE7AE1AE44531BC57128EBFC18522A90
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5497.jpgsave_picture_5497.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:E1B90285680B6E0D95EB4AA2105EF3B44197B500
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5498.jpgsave_picture_5498.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:595FC66C7C69F393F7973767D3FB0A6CEAB55C4D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5499.jpgsave_picture_5499.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:F052ECCAF062A1349873FC7830E30EDAF81F8E46
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5500.jpgsave_picture_5500.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - 25 Years Of Anjuna Mixed by SØNIN (2025) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5501.jpgsave_picture_5501.jpg" />
 </div>
 
 

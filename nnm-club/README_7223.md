@@ -6,7 +6,7 @@
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247041.jpgsave_picture_247041.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6EBB2955F3EECCA25AB1CDF4E0290CC8B54E1C4E
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247042.jpgsave_picture_247042.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C5D73A0C2229E4C5C04A433BD0F8A225CB0E87B9
 >>Звездные врата / Stargate
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247043.jpgsave_picture_247043.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C53D267DF6AE020D837EB8A912898394F7AF0216
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247044.jpgsave_picture_247044.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Redout: Space Assault (2021) [Ru/Multi] (1.1.0) License GOG [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247045.jpgsave_picture_247045.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8E6959A73897F31412CDB2612E0E97DF764E9F57
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247046.jpgsave_picture_247046.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:991A4CE86D12C27B2DC9BC6531747C0C4F6C08F5
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247047.jpgsave_picture_247047.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:F571296E99D1DE5150AE5755E3D28EC2E6E86F8F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247048.jpgsave_picture_247048.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:22074D1AB75DBEFEADE7F7F93464B4AE765F118D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247049.jpgsave_picture_247049.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:C82BB67826FF8874D16CD0A6B60C44C517718FE8
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247050.jpgsave_picture_247050.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ UltraISO Premium Edition 9.7.6.3860 Retail [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247051.jpgsave_picture_247051.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:B06B1CF884C5E7FF9500E76DDE5A1CA2108215CE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247052.jpgsave_picture_247052.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:6B1E1D277DBD9C132D6E28C58095BAB08C6EB1F2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247053.jpgsave_picture_247053.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adobe Acrobat Pro 2023.003.20244 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247054.jpgsave_picture_247054.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:3BCEFEF72A5EF8DDF8C5F7A313BE38DB6F9B5D03
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247055.jpgsave_picture_247055.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Airborne Kingdom (2022) [Multi] (1.10.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247056.jpgsave_picture_247056.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:258ECE59FCFB63586D97C56F8E370BE0E3F8BB7E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247057.jpgsave_picture_247057.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:8C3B72DE322ED27B4C692BEDD1B8715009E4CCEB
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247058.jpgsave_picture_247058.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:59901AB88B3FB30B0A8E1913B0A9D7EE0937B55D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247059.jpgsave_picture_247059.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:5D3E0DACACB937E64C4736F70123BE0A281963CD
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247060.jpgsave_picture_247060.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ RiME (2017) [Ru/En] (1.04) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247061.jpgsave_picture_247061.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:B7EB8D2FC080FA12F5AAC371C2E1F1C9F5CAD12A
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247062.jpgsave_picture_247062.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Italian Best Shorts 6: Дом, милый дом / Italian Best Shorts 6 (2023) 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247063.jpgsave_picture_247063.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:517DB70D8A3E1295442D9C1243E2EE8DD17F9D43
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247064.jpgsave_picture_247064.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:B63A2855EA8B825E34E676B604E694157C6D5D30
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247065.jpgsave_picture_247065.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ R-Studio Network 9.2 Build 191166 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247066.jpgsave_picture_247066.jpg" />
 </div>
 
 

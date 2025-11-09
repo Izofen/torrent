@@ -6,7 +6,7 @@ Windows 7 Ultimate SP1 x64 VolgaSoft & Black Club v 2.0 [2012] [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82341.jpgsave_picture_82341.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 7 Ultimate SP1 x64 VolgaSoft & Black Club v 2.0 [2012] [Rus]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82344.jpgsave_picture_82344.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows 7 Ultimate SP1 x64 VolgaSoft & Black Club v 2.0 [2012] [Rus]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82346.jpgsave_picture_82346.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:562630A6B951B27FB3BDF60704100E4D0D85CF84
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82347.jpgsave_picture_82347.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Driver Genius Professional 11.0.0.1112 Update 10.03.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82348.jpgsave_picture_82348.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Driver Genius Professional - программа для управления др
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82349.jpgsave_picture_82349.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Driver Genius Professional - программа для управления др
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82352.jpgsave_picture_82352.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:23F37AB16CB0B4C34F19D5FEBF0C283C6CB6FE27
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82354.jpgsave_picture_82354.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:BDFBABDF4406B1F9C1E30FAB9D3EE3E4BB004656
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82355.jpgsave_picture_82355.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:721CD6C25DADE9343078A15580161A0D4FFB7BE3
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82356.jpgsave_picture_82356.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:3366C56368C9DAB9E807BBDCEF542D65F4F93E93
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82357.jpgsave_picture_82357.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:55FD5F8FBB187E99491A59D32050518B6C1355C2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82358.jpgsave_picture_82358.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ SolidWorks – система автоматизированного проек�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82360.jpgsave_picture_82360.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Ace of Spades (v0.75) (L) [En] 2011
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82361.jpgsave_picture_82361.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Cutting 3 v1.31 [Rus\Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82362.jpgsave_picture_82362.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Rise of Nations: Rise of Legends [Ru] (RePack) 2006 | Naitro
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82363.jpgsave_picture_82363.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Anonymous обещают отключить Интернет во всём ми�
 >>16
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82365.jpgsave_picture_82365.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Anonymous обещают отключить Интернет во всём ми�
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82366.jpgsave_picture_82366.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Lenovo b570e Windows 7 Максимальная SP1x64 7601 [rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82367.jpgsave_picture_82367.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Lenovo b570e Windows 7 Максимальная SP1x64 7601 [rus]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82371.jpgsave_picture_82371.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Lenovo b570e Windows 7 Максимальная SP1x64 7601 [rus]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82372.jpgsave_picture_82372.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Just Cause 2 Limited Edition + 9 DLC [Ru] (RePack/1.0.0.2) 2010 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82374.jpgsave_picture_82374.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Road Rash [En] (RePack) 1996 | Pilotus
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82375.jpgsave_picture_82375.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:A8D6F21A6F8CD73CFE1B7CD9848B0EC884DD6781
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82379.jpgsave_picture_82379.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Beegie Adair and David Davidson - Parisian Cafe (2009) [MP3|320 кб/с]<Jazz,In
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82380.jpgsave_picture_82380.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:AB1F6BE1FF0DAAC3012FD4334713C599010EFED4
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82381.jpgsave_picture_82381.jpg" />
 </div>
 
 

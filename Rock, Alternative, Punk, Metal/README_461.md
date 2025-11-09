@@ -6,7 +6,7 @@ Axty - Unbreakable (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242215.jpgsave_picture_242215.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ L'Ira Del Baccano - Cosmic Evoked Potentials (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242226.jpgsave_picture_242226.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nightrider - Nightrider (1979) Reissue, 1992, Musea Records [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242240.jpgsave_picture_242240.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pride Of Lions - Fearless (2017) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242244.jpgsave_picture_242244.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Hang Em High - Trailerpark Symphony (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242253.jpgsave_picture_242253.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Happy Days - En enfer, J'ai Regne (2023) [FLAC|Lossless|WEB-DL|tracks] <Depressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242261.jpgsave_picture_242261.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Phantomass - Phantomass (2014) [FLAC|Lossless|WEB-DL|tracks] <occult stoner doom
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242269.jpgsave_picture_242269.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Harvest Gulgaltha - Ancient Woods (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242280.jpgsave_picture_242280.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Reusmarkt - Эхо (2006) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242284.jpgsave_picture_242284.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hands of Attrition - Colder Places (2020) [FLAC|Lossless|WEB-DL|tracks] <Groove 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242289.jpgsave_picture_242289.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Brujeria - Pocho Aztlan (2016) [FLAC|Lossless|image + .cue] <Death Metal, Grindc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242293.jpgsave_picture_242293.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A68E1ACA4ABEE8E1804F8173178EE8455D579199
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242299.jpgsave_picture_242299.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Athlantis - Last But Not Least (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242305.jpgsave_picture_242305.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Cowboy Junkies - Songs Of The Recollection (2022) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242319.jpgsave_picture_242319.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Bob Oister - Die Hard (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242321.jpgsave_picture_242321.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sortilege - Apocalypso (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242338.jpgsave_picture_242338.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Finish Line - Just Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242354.jpgsave_picture_242354.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Gomorra - Dealer Of Souls (2022) [FLAC|Lossless|image + .cue] <Heavy, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242362.jpgsave_picture_242362.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Bong Corleone - Bong Corleone (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242364.jpgsave_picture_242364.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Lost Rachels - Bittersweet Taste of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242370.jpgsave_picture_242370.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Haken - Fauna (Deluxe Edition) (2023) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242382.jpgsave_picture_242382.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Pattern-seeking Animals - Only Passing Through (2022) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242385.jpgsave_picture_242385.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Electric Huldra - Electric Huldra (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242391.jpgsave_picture_242391.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Sandrider - Enveletration (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242395.jpgsave_picture_242395.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ GrimCurse - Serpent God (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242400.jpgsave_picture_242400.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ The Violent Inzident - This is Nu Metal! (2022) [FLAC|Lossless|WEB-DL|tracks] <N
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242412.jpgsave_picture_242412.jpg" />
 </div>
 
 

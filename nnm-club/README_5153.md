@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160716.jpgsave_picture_160716.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:083760FAB2B55CF41254B28E8C344F81A7C26016
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160717.jpgsave_picture_160717.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:D7F5C9BFFBE171F1940921EDBDACE14CB7BE1D44
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160718.jpgsave_picture_160718.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ HighFleet (2021) [Ru/En] (1.163d) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160719.jpgsave_picture_160719.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:CDED8906676B0DA53E777883AD08C6DA9367091A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160720.jpgsave_picture_160720.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:3C1AB1C337247DE12048D0791CA54A2E0170B6F5
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160721.jpgsave_picture_160721.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:B20A09D3DEB944AEB10C89D8E411C342F63B854B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160722.jpgsave_picture_160722.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:1A9FF6373802CA156D692C939FB0040C7E3E908F
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160723.jpgsave_picture_160723.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:095F622E0975B78B13D1B68848AE80080316CC5F
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160724.jpgsave_picture_160724.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:F30BC17481356020180B10A72905D86DA7AF4073
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160725.jpgsave_picture_160725.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:3420085120F4AE56BBCC2A627E5DC8490D0EB8B9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160726.jpgsave_picture_160726.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Parking Tycoon: Business Simulator (2023) [Ru/Multi] (2021.3.16.5719) Scene Teno
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160727.jpgsave_picture_160727.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ USBoNET 1.0.1.1793 Beta [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160728.jpgsave_picture_160728.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Fading Afternoon (2023) [Ru/Multi] (20231009) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160729.jpgsave_picture_160729.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:B6B52C579A23DB565FD583A0A3611DFCA8DF4758
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160730.jpgsave_picture_160730.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:AB7C9B99B941A1CBE61C2499DD2E24C8F05AA3B5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160731.jpgsave_picture_160731.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:3503A6D65665596AB795616202B775EEA1765716
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160732.jpgsave_picture_160732.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:214BC94F4DFFB47390E88549CEFA2C86305D28C4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160733.jpgsave_picture_160733.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Dr. Gabriel N. Schenker | The Ultimate Docker Container Book, 3rd Edition (2023)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160735.jpgsave_picture_160735.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Shingeki no Kyojin: The Final Season (2023) | Attack on Titan The Final Season (
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160736.jpgsave_picture_160736.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ One Eleven (2023) [Ru/En] (1.3/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160737.jpgsave_picture_160737.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160738.jpgsave_picture_160738.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:755EC97D09D62E6D3978C750E058E1E5A6F2F91B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160739.jpgsave_picture_160739.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:2CCECB80A76EC3BC24BFE3D2544200404E968DFE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160740.jpgsave_picture_160740.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ SIGNALIS (2022) [Ru/Multi] (1.2) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160741.jpgsave_picture_160741.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ podlodka.io | Podlodka Python. Асинхронность (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160742.jpgsave_picture_160742.jpg" />
 </div>
 
 

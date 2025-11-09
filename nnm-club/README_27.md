@@ -6,7 +6,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Let'sРlay [Digital Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_739.jpgsave_picture_739.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A1019DCC6E64612BA0B4B8E8833864200CE5EB10
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_740.jpgsave_picture_740.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:CB839476D4C7F8B1585962CB3CC9407348131732
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_741.jpgsave_picture_741.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Ori Uplift - Uplifting Only Episode 659 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_742.jpgsave_picture_742.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:E79D41B51CDFF0833BB6221BC37F2BE455940CEA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_743.jpgsave_picture_743.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:6134B9C1B540BF771CDEC3B9407873699B07B513
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_744.jpgsave_picture_744.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:AC5A0B3B95100CA7E21A06DA6DB1D5ABBE63095D
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_745.jpgsave_picture_745.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:7AE2E11593A1B00D3B824D4EEBDF7BA0EEF7759B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_746.jpgsave_picture_746.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:E3529B58E133154C7E8485AFC1FD73AAB8BBBA42
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_747.jpgsave_picture_747.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:C34C94BB13AB406BD4834AD798E13815F743F1F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_748.jpgsave_picture_748.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:C42D1D40FB68538F3B2329B5BD3E8D0C5EC1F1AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_749.jpgsave_picture_749.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:93A788B024F38B4F3DBE523E8286ADF3BB9C9CDC
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_750.jpgsave_picture_750.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:F581AF25E8BF3ABE76191571663CE127E42903BF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_751.jpgsave_picture_751.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Terra Atlantica - Oceans (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_752.jpgsave_picture_752.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:88FC09FB0F0588EF1F0C704DB3F9BA4B46295C2E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_753.jpgsave_picture_753.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ The Unarchiver 4.3.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_754.jpgsave_picture_754.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:DEA5B37F119AEB20C04F517BEC66D7F759F4F499
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_755.jpgsave_picture_755.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:731CB0FE9E25C75C749858727A155A6B538E1B1B
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_756.jpgsave_picture_756.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:FAB85D95447FFB32D8620129672219316A0076E0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_757.jpgsave_picture_757.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:169013FBCE9D6ADBD77A549E2DB17AAC375227E2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_758.jpgsave_picture_758.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:9E25A0AD5E77B4D2501EABAD8E18ABC61BCF8330
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_759.jpgsave_picture_759.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_760.jpgsave_picture_760.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - Armin van Buuren - A State Of Trance 1244 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_761.jpgsave_picture_761.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:7F35BDB06B8BB52E6C6816A7D2B583C2ED35A523
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_762.jpgsave_picture_762.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Vildhjarta - Studio Albums (5 releases) (2009-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_763.jpgsave_picture_763.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:E4E62E02E033361C36A90415F4E3A8220E249CE0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_764.jpgsave_picture_764.jpg" />
 </div>
 
 

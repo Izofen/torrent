@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110737.jpgsave_picture_110737.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Luxury Lifestyle Relaxing Lounge Chill Playlist (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110738.jpgsave_picture_110738.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wavesequencer - Theia 1.09 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110739.jpgsave_picture_110739.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:2A3BE5D38B460AE0BBB8A36D49C3AC52A3A42AE8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110740.jpgsave_picture_110740.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:CECC329965DCCA352264A8C20E206A34A46EA72B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110741.jpgsave_picture_110741.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Rock no Volante (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110742.jpgsave_picture_110742.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - The Rock Alternative (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110743.jpgsave_picture_110743.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:A58573BE81B4BDAC2F5CFE1AB0032A57CA033545
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110744.jpgsave_picture_110744.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:9B1C0E4875E387C2BC3FCFA4B2FCF36A6D1E32A6
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110745.jpgsave_picture_110745.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Perfectly Clear WorkBench 4.6.1.2656 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110746.jpgsave_picture_110746.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Eric Clapton - To Save a Child (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110747.jpgsave_picture_110747.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ TweakNow WinSecret Plus! 5.3.6 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110748.jpgsave_picture_110748.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:128CDF54488C35DF254CDD71794B4E0516E19177
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110749.jpgsave_picture_110749.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ VA - Armin van Buuren - A State Of Trance 1170 (Top 1000 2024: Top 50) (2024) [M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110750.jpgsave_picture_110750.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ R-Wipe & Clean 20.0.2453 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110751.jpgsave_picture_110751.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:95F38EA6C29845378178C5E1E8961C8D70E1908C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110752.jpgsave_picture_110752.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Diary Of Dreams & Philharmonie Leipzig - Under a timeless spell (2024) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110753.jpgsave_picture_110753.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:F54661796A4C4419D7855C591120FC6D5E22EFE3
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110754.jpgsave_picture_110754.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Google Chrome 124.0.6367.92 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110755.jpgsave_picture_110755.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - 11 Years Of Suanda Music (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110756.jpgsave_picture_110756.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:A28AFEF3520CC3965B7732271A424E12AA1A81B5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110757.jpgsave_picture_110757.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:D25304A1475F4B36AB763104EEF166798E2458AF
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110758.jpgsave_picture_110758.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ CudaText 1.214.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110759.jpgsave_picture_110759.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ MotoGP. Этап 04 из 21. Гран-при Испании. Спринт (27.04
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110760.jpgsave_picture_110760.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:C2796CEBDD836746432DC27AABAC92F4D6E08045
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110761.jpgsave_picture_110761.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Radiant Photo 1.3.1.435 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110762.jpgsave_picture_110762.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112336.jpgsave_picture_112336.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Corsair - The Golden Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112337.jpgsave_picture_112337.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8DE9700FF07EA71452129298A3BE988B5779213A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112338.jpgsave_picture_112338.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Tad Morose - Sender of Thoughts (1995) Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112339.jpgsave_picture_112339.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:853D1D991EA48A154B5218A17EEC08357818EF41
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112340.jpgsave_picture_112340.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:16796EBC1F84AE3113D3A29F43B753EE96E43647
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112341.jpgsave_picture_112341.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:6652521F4189910343CCCC658242F85DE46BCB59
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112342.jpgsave_picture_112342.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Hot Rod Frankie - God, Gasoline & Me (2013) [FLAC|Lossless|WEB-DL|tracks] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112343.jpgsave_picture_112343.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Integrity Pro 12.8.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112344.jpgsave_picture_112344.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:3DF52E87ADC44AFDBFAFC98CED0B5406230D1453
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112345.jpgsave_picture_112345.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:16AF25A79495CBEF490B85ED8A22E132CEC9332E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112346.jpgsave_picture_112346.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:3F35909A4E4C15F507C862E320A6457606C38698
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112347.jpgsave_picture_112347.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:9DCA7866B922285AC08D288AA0ABA041E65A2189
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112348.jpgsave_picture_112348.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:CD66985EC0A59ABA40F3997F88A176EBFF56F573
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112349.jpgsave_picture_112349.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Arch Enemy - Blood Dynasty (Expanded Deluxe Edition) (2025) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112350.jpgsave_picture_112350.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:86C3EE7133D6828E1B1647AE63F09C93A21E6CF6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112351.jpgsave_picture_112351.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Only Pop Bangers (2025) [MP3|320 Kbps] <Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112352.jpgsave_picture_112352.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:91202364202910177F710F9591B22B74A4352BC5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112353.jpgsave_picture_112353.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Neal Morse - The Restoration - Joseph: Pt. Two (2024) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112354.jpgsave_picture_112354.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Karpov.courses, Нерсес Багиян, Алексей Кожарин, Ник
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112355.jpgsave_picture_112355.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:2BAB2EA79A752FE3473EA18E685C2FDCC3F8A9E1
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112356.jpgsave_picture_112356.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:BE8B067E95F55FBE37AD9F458B6C78B5BE3F4B79
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112357.jpgsave_picture_112357.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Milk & Sugar House Nation Ibiza 2025 [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112358.jpgsave_picture_112358.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ All For The King - Darkest Before Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112359.jpgsave_picture_112359.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Absolum (2025) [Ru/Multi] (02 r34045) Repack Let'sРlay [Soundtrack Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112360.jpgsave_picture_112360.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:D4544BAFE3CB28DA9816CE9B554B677686D12A27
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112361.jpgsave_picture_112361.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27858.jpgsave_picture_27858.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:BB738E8AF2B7482703C413720D556CCC7ED528EF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27859.jpgsave_picture_27859.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:4A9E679C154423BD0CC9847F65C49D31935952FC
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27860.jpgsave_picture_27860.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ ALLPlayer 9.4.0 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27861.jpgsave_picture_27861.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:DD8295D810E0AFE1A019A0407A713ECCDED20C67
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27862.jpgsave_picture_27862.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:212C1B8CFFD68F7FC7C6F936801694D419CD7CF2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27863.jpgsave_picture_27863.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C5D180B7C5683936E344278E2961A5A90A868652
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27864.jpgsave_picture_27864.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.8.43 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27865.jpgsave_picture_27865.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.44.34823.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27866.jpgsave_picture_27866.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:DFE4005148A8948C2582B0D840DFDF5782267924
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27867.jpgsave_picture_27867.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Skillbox, Наталья Бондаренко, Юрий Новожилов | Л�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27868.jpgsave_picture_27868.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Skylum Aperty 1.2.0.920 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27869.jpgsave_picture_27869.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Dream Cage (2025) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27870.jpgsave_picture_27870.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:B029EAE19066F8D145B7CD542F0AA34027DFCE59
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27871.jpgsave_picture_27871.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:57700656C796BEE6F7DF0D20AD4FAE474C24219A
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27872.jpgsave_picture_27872.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Vanced Tube v5.3.80.132 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27873.jpgsave_picture_27873.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:F28562599BB02A268EA56FD630265757569F6BDC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27874.jpgsave_picture_27874.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ AnyDesk 9.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27875.jpgsave_picture_27875.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:A9317D8BD3025923F8FE34481F12BFA91731AEC9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27876.jpgsave_picture_27876.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:BAE6C55B8FAD4B429D02432DF3F3D673ED48E9BC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27877.jpgsave_picture_27877.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:4B2D7DDB025508A6DB5B151791BE630DBB0DB427
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27878.jpgsave_picture_27878.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:94ECB6784FED6377C43DA79A9F95DFE6BA17BC56
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27879.jpgsave_picture_27879.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:94ECB6784FED6377C43DA79A9F95DFE6BA17BC56
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27880.jpgsave_picture_27880.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ HDRezka TV v1.2.3 Mod by App Rezka TV [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27881.jpgsave_picture_27881.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:3AD646691940E6C100CBA932A7CE7571E3AD3F1C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27882.jpgsave_picture_27882.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:170AB73DF5A20596F691BCF64BEA43CA06055430
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27883.jpgsave_picture_27883.jpg" />
 </div>
 
 

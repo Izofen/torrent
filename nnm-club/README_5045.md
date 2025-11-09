@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157739.jpgsave_picture_157739.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Revo Uninstaller Pro 3.1.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157741.jpgsave_picture_157741.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DF017EEEE420DA659E57F569B507AAF822D76095
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157742.jpgsave_picture_157742.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:93EBE62180E45895708CC8A17607D117648622BA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157743.jpgsave_picture_157743.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:47A517120C7EF2F49F741D1C2C9307CB3DBEABF9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157744.jpgsave_picture_157744.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Cosmitorium - Broken Archetypes (2023) [MP3|320 Kbps] <Progressive Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157745.jpgsave_picture_157745.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:C5631C00FBFD3C06D15E34A3D449B744360348BA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157746.jpgsave_picture_157746.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:EA41906FD377E46DF856D74B8239142819BCFE39
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157747.jpgsave_picture_157747.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:A2D4B3F9E6409EF5A634A4A3E2DA213710146A88
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157750.jpgsave_picture_157750.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Q-Dir 10.4.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157752.jpgsave_picture_157752.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Unheilig - Phosphor (2001) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157753.jpgsave_picture_157753.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Rick Wakeman - Journey To The Centre Of The Earth (1974) Japanese Edition, Reiss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157754.jpgsave_picture_157754.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Parasite Eve 2 (2000) [Ru/En] (1.0) Repack Ma2012ks
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157755.jpgsave_picture_157755.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Adobe Animate CC 2017 (v16.0.1) RUS/ENG Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157756.jpgsave_picture_157756.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:9DF444038E1B8E7BEAFD1612B08ACC7072746CC7
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157758.jpgsave_picture_157758.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:491A874C59471AB7902111800BC283BE807ADA8E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157759.jpgsave_picture_157759.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:E401A82DD17F46737C5F02DF468D16BE5905FE66
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157760.jpgsave_picture_157760.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Unheilig - Frohes Fest (2002) [FLAC|Lossless|image + .cue] <Industrial Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157762.jpgsave_picture_157762.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:FE41ED0AD2A548D50702ACF0BA6CD52DC4924124
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157764.jpgsave_picture_157764.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:679E64EDED7D402D5EB7DE2F66336A2396BAC575
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157765.jpgsave_picture_157765.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Twisted Psykie - Washed Away (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, UK G
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157766.jpgsave_picture_157766.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Dies Irae - Ethereal (1998) Remastered-2019 [FLAC|Lossless|image + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157767.jpgsave_picture_157767.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Illingsworth - You're No Fun (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Unde
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157768.jpgsave_picture_157768.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:0F94C27C801288B25FCE85FCCD030378BA5722E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157769.jpgsave_picture_157769.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Things 3 v3.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157770.jpgsave_picture_157770.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:B331D8FC998B6045DFD84334B6854C41CB5F169C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157772.jpgsave_picture_157772.jpg" />
 </div>
 
 

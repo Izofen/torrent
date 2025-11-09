@@ -6,7 +6,7 @@ Apashe - Antagonist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Simphonic
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134852.jpgsave_picture_134852.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Ibiza Beach Merry XMAS: Winter Island Cafe Lounge Greatest (2012) [MP3|320 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134853.jpgsave_picture_134853.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ magnet:?xt=urn:btih:751AF8DD1369DAE8862E789367DAE10AFD05F16C
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134854.jpgsave_picture_134854.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ magnet:?xt=urn:btih:C451CCB36538AEB4EE4D6A9050FDCCB7126A3A89
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134855.jpgsave_picture_134855.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:D07F6C277E46112EEFF3171197F211F37FB350CF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134856.jpgsave_picture_134856.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Pride Of Lions - Immortal (2012) [MP3|320 кб/с]<Melodic Rock | AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134857.jpgsave_picture_134857.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Computer Desktop Wallpapers Collection (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134858.jpgsave_picture_134858.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Best HD Wallpapers Pack (23.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134861.jpgsave_picture_134861.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Robin Rogers - 2 альбома (2008, 2010) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134862.jpgsave_picture_134862.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:A5FECB5D06A42F0486BD83DFA636E7EC2C3C7598
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134863.jpgsave_picture_134863.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Fashion Cafe: A Journey Into Selected Lounge and Chillout Grooves (2012) [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134864.jpgsave_picture_134864.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Tears For Fears - Songs From The Big Chair (1985) Super Deluxe, 2014, UMC (Unive
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134865.jpgsave_picture_134865.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Музыка для машины Vol.45 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134867.jpgsave_picture_134867.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:9119311E8978F47340D4833399E7D3E67D979802
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134869.jpgsave_picture_134869.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Duolingo: изучай языки 5.129.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134871.jpgsave_picture_134871.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ New year wallpapers 2013 (22.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134872.jpgsave_picture_134872.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ FX Player Pro 3.7.2 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134873.jpgsave_picture_134873.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Waterfalls Wallpapers (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134874.jpgsave_picture_134874.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Square Home Launcher 3.0.5 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134875.jpgsave_picture_134875.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:A94571C5A4B705E54DECD21AD0C03856E41FC8E8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134876.jpgsave_picture_134876.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Smooth Live Jazz (2023) [MP3|320 Kbps] <Smooth Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134877.jpgsave_picture_134877.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Sunrises and sunsets Wallpapers (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134878.jpgsave_picture_134878.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Readiris Pro 17.1.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134879.jpgsave_picture_134879.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Танцевальный МегаХит (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134880.jpgsave_picture_134880.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Chicago - Chicago at Carnegie Hall - Complete (2021) Live [FLAC 24/192|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134881.jpgsave_picture_134881.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ WPS Office + PDF 18.4.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134883.jpgsave_picture_134883.jpg" />
 </div>
 
 

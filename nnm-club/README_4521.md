@@ -6,7 +6,7 @@
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141425.jpgsave_picture_141425.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Notepad++ 8.6.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141426.jpgsave_picture_141426.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:81895C4496DEB42700D5493CF0F5D9C87F57CD31
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141427.jpgsave_picture_141427.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:3912C607F5262FBE907E18ED1D177F747737C752
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141428.jpgsave_picture_141428.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:1788F9C28A4D9BFF03220C892018D837EB9588B9
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141429.jpgsave_picture_141429.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C31AC2DBE13CD666F8480D2DFB8DB079EE680688
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141430.jpgsave_picture_141430.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:B60F1317B22398FB9FCCEE6475F753A6EF24AD8B
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141431.jpgsave_picture_141431.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:2810A76E5CE665A647C08B4E05F39B8175C5C92D
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141433.jpgsave_picture_141433.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:6F0627AE317161B06E7FF8001AB3C29D995FEF00
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141434.jpgsave_picture_141434.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:B92B7C15C9CE8F9DA00B5171E535C35A52550B41
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141435.jpgsave_picture_141435.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ SamDrivers 17.18 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141437.jpgsave_picture_141437.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - 100 Greatest Indie: The Best Guitar Pop Rock (2019) [MP3|320 Kbps] <Indie, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141438.jpgsave_picture_141438.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Paul Hardcastle - The Jazzmasters 4 (2003) [FLAC|Lossless|tracks + .cue] <Smooth
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141439.jpgsave_picture_141439.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:D1644967C0DF5F8A0067D7236861458FAD412A7A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141440.jpgsave_picture_141440.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:82F4F6C11C55CB153C9725A2729911A6153766E3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141441.jpgsave_picture_141441.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:9C8828F6D7E708756D1F70C33717E932AD4B45A7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141442.jpgsave_picture_141442.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Desktop Calendar 2.3.98.5453 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141444.jpgsave_picture_141444.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Happy New Year Party 2019 (2018) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141445.jpgsave_picture_141445.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:63886F6F4CD055C4CFD09A8CA9A4A39C22DA4A51
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141446.jpgsave_picture_141446.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:CE44E31022752FAD4D220684BAC53DB25787967F
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141448.jpgsave_picture_141448.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:6FF73A2F616A90FBEF9D774D20A530F8AD73CA71
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141449.jpgsave_picture_141449.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:51C6911803D92CE7B59DD794627EBCB20FD5FA9A
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141450.jpgsave_picture_141450.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:45A06AD36CD11B97275B1F9F867CD16D39923E2C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141452.jpgsave_picture_141452.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Victorious: Taking the Lead [Wii] [PAL] [Eng] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141453.jpgsave_picture_141453.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ World of Psychology, Наталья Приймаченко | Тайм-менед
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141455.jpgsave_picture_141455.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - FSOE Fables: Best Of (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141456.jpgsave_picture_141456.jpg" />
 </div>
 
 

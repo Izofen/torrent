@@ -6,7 +6,7 @@ SiteSucker 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165331.jpgsave_picture_165331.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:3DC196076AAA83DD6DE0591ECEEA079D380146D7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165332.jpgsave_picture_165332.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ n-Track Studio Suite 10.0.0.8158 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165333.jpgsave_picture_165333.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:1A7BDAEB17C5B2E50329267884334A79EDC1A0EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165334.jpgsave_picture_165334.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Belsemora - Belsemora (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165335.jpgsave_picture_165335.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:1287E9C02B2DB95EA8C8F1AC8E0F561BA66E3C73
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165336.jpgsave_picture_165336.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:6C7F55DE64D3FF7D42C3463BB76424FDC840C693
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165337.jpgsave_picture_165337.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:2AF60428F6F1924395967DC9DC2FBDFD35690E41
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165338.jpgsave_picture_165338.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:19D44331A0464397CFEA2D2EDD029B6E37868708
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165339.jpgsave_picture_165339.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:83106F78611F2432C649474820908AB073342DD0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165340.jpgsave_picture_165340.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Larry Coryell & Philip Catherine - Jazz at Berlin Philharmonic XI: The Last Call
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165341.jpgsave_picture_165341.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:4C79BC16F471B4C7F3870F950964557E85AF8C60
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165342.jpgsave_picture_165342.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ DxO PhotoLab 4 ELITE Edition 4.1.1.47 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165343.jpgsave_picture_165343.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Dr. Stone / Доктор Стоун [2019, TV, 24 ep] WEB-DL 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165344.jpgsave_picture_165344.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Kelly Marie - 2 Albums (1976-1981) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165345.jpgsave_picture_165345.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - Deep Trance Showcase II (2023) [MP3|320 Kbps] <Trance, Progressive, Electro
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165346.jpgsave_picture_165346.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165347.jpgsave_picture_165347.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Tweak and Tuneup 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165348.jpgsave_picture_165348.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 12.2019
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165349.jpgsave_picture_165349.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:8ACED6D52A9D9DC8FC683A1591035324676B22DD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165350.jpgsave_picture_165350.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:2BBAFE25919C951DC41BBB22D7DEF32E2203F99A
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165351.jpgsave_picture_165351.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Disk Clean Pro 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165352.jpgsave_picture_165352.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ PlistEdit Pro 1.9.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165353.jpgsave_picture_165353.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Vladimir Putin Style (2019) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165354.jpgsave_picture_165354.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Angra - Cycles Of Pain (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165355.jpgsave_picture_165355.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ NCH ClickCharts Diagram Pro 5.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165356.jpgsave_picture_165356.jpg" />
 </div>
 
 

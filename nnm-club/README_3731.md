@@ -6,7 +6,7 @@ Brandon Agnew - Aquarius Moon (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117381.jpgsave_picture_117381.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Always Naked - Just Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117382.jpgsave_picture_117382.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Honeymoon Suite - Alive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117383.jpgsave_picture_117383.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:F580A0CF2DB7F1036C8ED3E170AFBC5B28C4ED7B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117384.jpgsave_picture_117384.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:BD35D06A767BCBC88376126AF86AB8BEB87E13C7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117385.jpgsave_picture_117385.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Magic Slim & John Primer  - Slow Blues - Magic Slim & John Primer  - Slow Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117386.jpgsave_picture_117386.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jack J Hutchinson - Battles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117387.jpgsave_picture_117387.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:4D418081E5D63FF53A07CE8BCEEB83C38A37FF4B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117388.jpgsave_picture_117388.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:AFA40B8DC698D34CCD06D920BDE6F62D80903E85
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117389.jpgsave_picture_117389.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ TinkerTool System 8 v.8.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117390.jpgsave_picture_117390.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Cesare Verdacchi - Psychotrip (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117391.jpgsave_picture_117391.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Valentina Studio Pro 13.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117392.jpgsave_picture_117392.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ SponsorBlock for YouTube 5.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117393.jpgsave_picture_117393.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Pocket cleaner Pro 1.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117394.jpgsave_picture_117394.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Air Printer - Printer Server Pro for Mac 5.2.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117395.jpgsave_picture_117395.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:F5A46F2EEDB03426DB22883176D56F3A8D5CAF56
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117396.jpgsave_picture_117396.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ The Twin Souls - Family & Friends (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117397.jpgsave_picture_117397.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Anthony Phillips - Private Parts & Pieces IX-XI (2018) 4CD [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117398.jpgsave_picture_117398.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Birds of Vale - Limbo (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117399.jpgsave_picture_117399.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ RazorSQL 10.5.3 iNTEL/ARM [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117400.jpgsave_picture_117400.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ KCNcrew Pack 02-15-24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117401.jpgsave_picture_117401.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Directory List & Print Pro 4.30 + Standalone [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117402.jpgsave_picture_117402.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:DA37F3EB14E4EC8194E5DA0B5F4B8AB189455440
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117403.jpgsave_picture_117403.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Perfectly Clear WorkBench 4.6.0.2639 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117404.jpgsave_picture_117404.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:1AAEC024C1A0A16AE317EC9B795979DB14338771
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117405.jpgsave_picture_117405.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Achilles - There Will Be Blood (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117406.jpgsave_picture_117406.jpg" />
 </div>
 
 

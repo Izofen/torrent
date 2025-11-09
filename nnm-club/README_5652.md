@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173987.jpgsave_picture_173987.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:09941E8F19E3BD9EBBB941B4E0F3688DA2B91370
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173988.jpgsave_picture_173988.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:999EE64A605C2BFA2EA9E35B81CFAF0DF740F5F9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173990.jpgsave_picture_173990.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VMware Workstation 16 Pro 16.1.0 Build 17198959 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173991.jpgsave_picture_173991.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3143620272DE2B9AAFDB311C068052259A9E8981
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173992.jpgsave_picture_173992.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Wondershare PDFelement 10.1.1.2495 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173993.jpgsave_picture_173993.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:42A6D1BD6A458B6739D7966B0D8A8D2F2B100D57
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173995.jpgsave_picture_173995.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Adobe Photoshop 2021 22.1.0.94 (x64) RePack by SanLex 2021 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173996.jpgsave_picture_173996.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VA - Rock Anthem Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173997.jpgsave_picture_173997.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:B1060CFBBE232AF482ADFCF8273686A2FA061890
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173998.jpgsave_picture_173998.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:242588977C2FEDB8FCD45E9D71F2DCC99BD86283
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173999.jpgsave_picture_173999.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ QOwnNotes 23.10.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174000.jpgsave_picture_174000.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:A291E3045767BBF7B371DCB10E33C3AAB0DC0705
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174001.jpgsave_picture_174001.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Windows 10 (60in2) Sergei Strelec x86/x64 20H2 (build 19042.685) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174002.jpgsave_picture_174002.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - Electro Swing Disco of the Alps (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174004.jpgsave_picture_174004.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:8134AE906353F767676E8D6EA097FEBBE8489E3B
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174005.jpgsave_picture_174005.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:9F7D42A119569372EEB74D510BE64DE7FE8BBCA9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174006.jpgsave_picture_174006.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - DMC Essential Hits 2022 UK & USA Number Ones (2022) CD, Compilation [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174007.jpgsave_picture_174007.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:14FFAF3C09D1579CBCB3B2CF689B2CDA280EE215
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174008.jpgsave_picture_174008.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:5854DBD4B4E09B5692D52747D90806E0C77FD272
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174009.jpgsave_picture_174009.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - DMC Essential Hits 2022 December (2022) 3CD, Compilation [MP3|320 Kbps] <Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174011.jpgsave_picture_174011.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:62401F00FE9F09E554BD6F438DBAA485F3A1D2E1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174012.jpgsave_picture_174012.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:74CE317C895D6CA270DABC7D64FF04CD3EAE5C84
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174013.jpgsave_picture_174013.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:3C11552658AC0F81489DB7A2FDD9CBFC45D13AC8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174014.jpgsave_picture_174014.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ DOOM Eternal (2020) [Switch] [EUR] 10.2.0 [NSP] [License / 1.2 / DLC] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174015.jpgsave_picture_174015.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Photo Supreme 2023.2.0.5052 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174016.jpgsave_picture_174016.jpg" />
 </div>
 
 

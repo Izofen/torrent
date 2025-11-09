@@ -6,7 +6,7 @@ VA - Anjunabeats pres. Summer House 01 (DJ Mix) (2024) [MP3|320 Kbps] <Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105503.jpgsave_picture_105503.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Essential Selection Ibiza 2024 (2024) [MP3|320 Kbps] <Progressive House, Me
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105506.jpgsave_picture_105506.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Nahawand: Best of Emotional Trance (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105508.jpgsave_picture_105508.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Eric De Vries - My Battle (2024) [MP3|~245 Kbps (V0)] <Industrial, Rhythmic Nois
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105510.jpgsave_picture_105510.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ DJ Love (Sherwin Tuna) - Budots World (Reloaded) (2024) [FLAC|Lossless|WEB-DL|tr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105537.jpgsave_picture_105537.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Conscience - 3 Albums (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, electro-po
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105560.jpgsave_picture_105560.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Magnavolt - 3 Albums: Stellar Gun (2023-2024) [FLAC|Lossless|WEB-DL|tracks] <Dar
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105561.jpgsave_picture_105561.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Nahawand: Best of Vocal Trance (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105563.jpgsave_picture_105563.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Areal Kollen - 4 Albums (2023-2024) [MP3|320kbps|tracks] <EBM, Industrial, Aggro
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105565.jpgsave_picture_105565.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Top June 2024 Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105566.jpgsave_picture_105566.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Summer Collection 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105567.jpgsave_picture_105567.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Braille - Triple Transit (2024) [FLAC|Lossless|WEB-DL|tracks] <experimental, ele
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105568.jpgsave_picture_105568.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Nahawand: Best of Progressive Trance (2024) [MP3|320 Kbps] <Trance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105569.jpgsave_picture_105569.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Eric Prydz presents [CELL.], Hï Ibiza, Spain (2024-07-22) [MP3|320 Kbps] <Progr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105573.jpgsave_picture_105573.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Three Drives - Three Drives On A Vinyl Mini Mix 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105602.jpgsave_picture_105602.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Erasure - Wild! (1989) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105630.jpgsave_picture_105630.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - EDM Deejay Compilation 2024 (Summer Edition) (2024) [MP3|320 Kbps] <Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105682.jpgsave_picture_105682.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ A-Mase - Summer Holidays (2024) [MP3|320 Kbps] <Deep House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105684.jpgsave_picture_105684.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Ibiza Tranquil Beats: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105685.jpgsave_picture_105685.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Limahl - Never Ending Story (2006) [WavPack|Lossless|image + .cue] <Synth Pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105742.jpgsave_picture_105742.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Electronica Confessions, Vol. 16 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105785.jpgsave_picture_105785.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - 40 Dance Summer Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105786.jpgsave_picture_105786.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Electronica Confessions, Vol. 15 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105790.jpgsave_picture_105790.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Open Seas (Ibiza Island Mood), Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105792.jpgsave_picture_105792.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Electronica Confessions, Vol. 12 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105794.jpgsave_picture_105794.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Electronica Confessions, Vol. 11 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105795.jpgsave_picture_105795.jpg" />
 </div>
 
 

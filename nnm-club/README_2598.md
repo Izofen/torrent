@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68298.jpgsave_picture_68298.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Spring Emotions (2025) [MP3|320 Kbps] <Progressive House, Melodic House & T
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68299.jpgsave_picture_68299.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - Armin van Buuren - A State Of Trance 1219 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68300.jpgsave_picture_68300.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:CA49590FD4725C134AFE75822F3B4AA359511B36
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68301.jpgsave_picture_68301.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Larry Carlton - Plays The Sound Of Philadelphia (2010) [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68302.jpgsave_picture_68302.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Nightwish - Elan (2015) (Singles) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sympho P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68303.jpgsave_picture_68303.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - Ori Uplift - Uplifting Only Episode 634 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68304.jpgsave_picture_68304.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Tornado - Black President (2025) [FLAC|Lossless|image + .cue] <Thrash, Glam>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68305.jpgsave_picture_68305.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Thornhill - Bodies (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68306.jpgsave_picture_68306.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Mudhens - Mudhens (1996) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68307.jpgsave_picture_68307.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Fear Factory - Soul of a New Machine (1992) [FLAC|24/192|tracks|Vinyl-Rip] <Deat
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68308.jpgsave_picture_68308.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:1775CC07957D90414BDE74C7A396FCD909571E90
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68309.jpgsave_picture_68309.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:E9FF8EDA1BCB8C6795C65120768CB91F55F83A93
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68310.jpgsave_picture_68310.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:05ED9EA47F3AB9AF95CA4FC5C30DD5FAC512C2D7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68311.jpgsave_picture_68311.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:DAC807C5E1937874AFC628A90756B1EC39D6207F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68312.jpgsave_picture_68312.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:A90495DA956C431CCB100303F90CD853FF0103D2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68313.jpgsave_picture_68313.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Juusenki L-Gaim II: Farewell My Lovely + Pentagona Dolls | Heavy Metal L-Gaim II
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68314.jpgsave_picture_68314.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:E9864FEABA65E05B7061425AF49E01BB2E1F8593
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68315.jpgsave_picture_68315.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:F4679990012292437BB1C6207B27E1B89D1A88BA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68316.jpgsave_picture_68316.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - DJ MIX (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68317.jpgsave_picture_68317.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Tablacus Explorer 25.4.4 Portable [Multi/Ru] (Pre-release)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68318.jpgsave_picture_68318.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - Melon Top 100 K-Pop Singles Chart (22-03-2025) [MP3|320 Kbps] <K-Pop, Dance
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68319.jpgsave_picture_68319.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:BB960E0FE7C0181B2AAE47BBEF1E17F97F63B57C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68320.jpgsave_picture_68320.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:FBA508D5D0AFE7B19BA54EFB227A410575D93402
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68321.jpgsave_picture_68321.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:179697E6E9C9D4CE71D3DFF7EC563D260D0DB0A3
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68322.jpgsave_picture_68322.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:7ACB8A0570A14E03EAD3363EA5B4E4C258FC22A4
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68323.jpgsave_picture_68323.jpg" />
 </div>
 
 

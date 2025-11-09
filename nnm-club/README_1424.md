@@ -6,7 +6,7 @@ Joe's Basement - First Dance (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37379.jpgsave_picture_37379.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kacee Clanton - Ashes to Eden (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37380.jpgsave_picture_37380.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Julia Vo - Rebound Roulette (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37381.jpgsave_picture_37381.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:B9444AAD07430DBD9A794605DD495D4CB8FE8ED0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37382.jpgsave_picture_37382.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:D0984F9F7F4CB9C6E852D6954D891B58678F38A8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37383.jpgsave_picture_37383.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ GIF Maker - GIF Editor v3.0.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37384.jpgsave_picture_37384.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Microsoft Visual Studio 2022 Enterprise 17.12.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37385.jpgsave_picture_37385.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:9108F02DD530D4D75064875AA822CCEE5E16F2A9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37386.jpgsave_picture_37386.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:CB7FA19226A6F3A82B39BC3EB9E6FB3F1F3E59B2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37387.jpgsave_picture_37387.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:A740257397BECB1CC1BE486ED34A25739DFE9DF5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37388.jpgsave_picture_37388.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.42 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37389.jpgsave_picture_37389.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Destiny Star Girlfriend (2023) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37390.jpgsave_picture_37390.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:8FAD6106D2180D2B2835BC76299297EF0A7B9049
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37391.jpgsave_picture_37391.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:BBA07B8305B67EB59FAC1D7034BA01314C5FE743
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37392.jpgsave_picture_37392.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Новые хитовые песни 2024, Часть 11 (2024) [FLAC|Lossl
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37393.jpgsave_picture_37393.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - OST Ласковый май (2009) Саундтрек к кинофильм
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37394.jpgsave_picture_37394.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:36A14C76C9A08E19820D3C7FE969CCA3EDDAC70A
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37395.jpgsave_picture_37395.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Exif Pilot 6.26 + Batchplugin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37396.jpgsave_picture_37396.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Chillout Lounge 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37397.jpgsave_picture_37397.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ STEEZY Studio - Learn To Dance v5.0.0 Mod by youarefinished [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37398.jpgsave_picture_37398.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:888A2CF77CBD7FDCDA12F162998E20E7026EA5ED
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37399.jpgsave_picture_37399.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Autumn In the Mirror (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37400.jpgsave_picture_37400.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:FC7DFACCFB0A4455D0DE798F8036694DE953393A
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37401.jpgsave_picture_37401.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Google Chrome 131.0.6778.70 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37402.jpgsave_picture_37402.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:B7B0387ED687D2642B5772CB5998F156292E61D2
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37403.jpgsave_picture_37403.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Opera One 114.0.5282.185 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37404.jpgsave_picture_37404.jpg" />
 </div>
 
 

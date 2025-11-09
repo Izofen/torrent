@@ -6,7 +6,7 @@ VA - Compilation part 122 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42919.jpgsave_picture_42919.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4751A8F951A4F5F7DAEEF33B9B7441D58CC97118
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42920.jpgsave_picture_42920.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sweet - Full Circle (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42921.jpgsave_picture_42921.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:343BBA737583845352D16E1D1AD3624750F22810
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42922.jpgsave_picture_42922.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:2041B07C813C8D483D803358D84FFD6FC89625E3
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42923.jpgsave_picture_42923.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:0EF60920FE5A71F534B36BF782E236422127888A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42924.jpgsave_picture_42924.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:0F48F6FDFE761C5E90BBD4ED90EEC3BD7C6BAC91
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42925.jpgsave_picture_42925.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Queens of the Stone Age - Compilation (2024) [MP3|320 Kbps] <Hard Rock, Stoner R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42926.jpgsave_picture_42926.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VA - Progressive Beats (2024) [MP3|320 Kbps] <Progressive House, Melodic House &
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42927.jpgsave_picture_42927.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:83729D3C98968EF2707EB83CC84A49E63F93B4B4
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42928.jpgsave_picture_42928.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:AFFFCAEF19AD8D458BB2A2CC5ADEF97DC81599D7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42929.jpgsave_picture_42929.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:8B2E958BD785D8B773C94B5839A576D2AC498E5C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42930.jpgsave_picture_42930.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - DJ Hits Vol. 5858 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42931.jpgsave_picture_42931.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - Soft Background Chillout Music for Bars, Hotels & Restaurants (2024) [FLAC|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42932.jpgsave_picture_42932.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:5D360F1EE779E5F3279F5C0B6170358E83937BF6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42933.jpgsave_picture_42933.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:958D875794A14ECBBC5B0C553F4368C9A994A1EC
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42934.jpgsave_picture_42934.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Krilloan - Return Of The Heralds (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42935.jpgsave_picture_42935.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VA - Armin van Buuren - A State Of Trance 1191 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42936.jpgsave_picture_42936.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:C7407614EF0E962FD37F0EDBED0F5D7101FDFAB5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42937.jpgsave_picture_42937.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:AE52B1DA6A1075FB6DA44CEE69F451EF54C1BF25
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42938.jpgsave_picture_42938.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ SteelCity - Reverence (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42939.jpgsave_picture_42939.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:2F0BD3DCDF011179CB5A57E644DD01BB00EC82D5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42940.jpgsave_picture_42940.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:0A01C43F9B5748D8683721EDF00D3723F3C21A62
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42941.jpgsave_picture_42941.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:0A01C43F9B5748D8683721EDF00D3723F3C21A62
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42942.jpgsave_picture_42942.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:E5AEBB7B7BD38F893CC4C47A124926429491E6BE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42943.jpgsave_picture_42943.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ XnConvert 1.101.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42944.jpgsave_picture_42944.jpg" />
 </div>
 
 

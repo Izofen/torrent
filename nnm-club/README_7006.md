@@ -6,7 +6,7 @@ Roadwolf - Midnight Lightning (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240317.jpgsave_picture_240317.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Power Quest - Master Of Illusion (2008) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240318.jpgsave_picture_240318.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Crucifliction - Heresy (2013) 2022, Re-recording and Re-imagining [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240319.jpgsave_picture_240319.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ BurnAware Professional 16.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240320.jpgsave_picture_240320.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Rule Number On Dancehall Mixtape (2023) [MP3|320 Kbps] <Reggae, Dub, Danceh
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240321.jpgsave_picture_240321.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:47BE447F6C275EA4136D89E7B0ED0C5F4988FB1B
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240322.jpgsave_picture_240322.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:47BE447F6C275EA4136D89E7B0ED0C5F4988FB1B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240323.jpgsave_picture_240323.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ WinUtilities Professional 15.86 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240324.jpgsave_picture_240324.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Mia for Gmail 2.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240325.jpgsave_picture_240325.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Capra - In Transmission (2021) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240326.jpgsave_picture_240326.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Weapon - New Clear Power (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240327.jpgsave_picture_240327.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:AEF41E5BDE90D83EE026894EED05F641CA2160E1
 >>Космос
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240328.jpgsave_picture_240328.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Blood Red Throne - Imperial Congregation (2021) [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240329.jpgsave_picture_240329.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Movist Pro 2.10.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240330.jpgsave_picture_240330.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:E01D72FB49BF5276717EDA6FB9AEF0BC4B135FDC
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240331.jpgsave_picture_240331.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:6D98CAD9CBE1FBF07CBAD21297486A3EC28C522A
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240332.jpgsave_picture_240332.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Lonewolf - Division Hades (2020) 2xCD [MP3|320 Kbps] <Heavy Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240333.jpgsave_picture_240333.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Locust Toybox - When We Implode (2021) [FLAC|Lossless|WEB-DL|tracks] <Leftfield,
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240334.jpgsave_picture_240334.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Google Chrome 112.0.5615.121 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240335.jpgsave_picture_240335.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ SoundSwitch 6.6.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240336.jpgsave_picture_240336.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Lost Tribes Of The Moon - Chapter II: Tales of Strife, Destiny, and Despair (202
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240337.jpgsave_picture_240337.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Dave Matthews Band - Walk Around The Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240338.jpgsave_picture_240338.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:AD4964720F5B77C11E17CD2760CE8146DAA543D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240339.jpgsave_picture_240339.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:501093A553EF5C0CD84F6199EC7632A2ABE0BC6F
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240340.jpgsave_picture_240340.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Bomber Goggles - Gyreland (2018) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240341.jpgsave_picture_240341.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ CareUEyes 2.2.2.1 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240342.jpgsave_picture_240342.jpg" />
 </div>
 
 

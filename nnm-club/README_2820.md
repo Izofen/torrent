@@ -6,7 +6,7 @@ Snap - Greatest Hits (2008) [MP3|320 кб/с]<Electronic,Techno,Hip Hop,Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81465.jpgsave_picture_81465.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:54380544841C588D330795BE931D7D8D2524FAC8
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81467.jpgsave_picture_81467.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:974516872D781635ED152626487C3D1D5C8D4DEC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81476.jpgsave_picture_81476.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pino D'Angio - The Best Of (2CD) 2011 (ZYX Records ZYX 5469) [FLAC|Lossless]<Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81478.jpgsave_picture_81478.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ magnet:?xt=urn:btih:ED241F15313D061A55C65614DE6B1D8438C63FE9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81481.jpgsave_picture_81481.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ magnet:?xt=urn:btih:6D5A838BC70E82FCD9DB78B7950BFDEB88854C81
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81482.jpgsave_picture_81482.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:A9CEF10325986D2617CF29C5F9A8498320DEA6A8
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81485.jpgsave_picture_81485.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ magnet:?xt=urn:btih:DE862F0F3912516240691C19E4F0A31FC54C86F4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81486.jpgsave_picture_81486.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Lost Horizon [Ru] (RePack) 2010 | LandyNP2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81487.jpgsave_picture_81487.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:E95CD534BB627A99533420D8710697E3CB385341
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81488.jpgsave_picture_81488.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:E95CD534BB627A99533420D8710697E3CB385341
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81489.jpgsave_picture_81489.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:6B5205C874D79F314D79A1D280445B1606D2ADD6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81493.jpgsave_picture_81493.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Comice OS 4 Beta 2 [[i386 + x86_64]] (2xCD)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81495.jpgsave_picture_81495.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:1332B89C80D388BF01728A2F0A3A617CAF0963E0
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81501.jpgsave_picture_81501.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:27337726CE9DDF91AC0323FF44F84CC63A06AEB0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81502.jpgsave_picture_81502.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ NNM | Кулинарная книга NNM (объединенная) [2007-2011]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81503.jpgsave_picture_81503.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:A1D6CE003E308ADA2201A7EAFF97C9767DB6A25B
 >>Архив Авто
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81504.jpgsave_picture_81504.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:3E8959DF7F196CA202AAFA0890DAFC1ED99A1121
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81507.jpgsave_picture_81507.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:5D1DFDBF11A0EAF11BEACD4EB514AA185B38CEBF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81508.jpgsave_picture_81508.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Playboy: разденьте девушку / Undress a Woman (10.03.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81510.jpgsave_picture_81510.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:79D7EB6C151A871DB6BE7616BA37E4F0D8898401
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81511.jpgsave_picture_81511.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:B9005F9F920F85C663C5C3EA0E69A894C656ADEF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81512.jpgsave_picture_81512.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:91A8E802FEC94E251000FA6FAADD2359FA67C2D1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81514.jpgsave_picture_81514.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ MCS Drivers Disk v.9.0.40.450 revision 111220 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81516.jpgsave_picture_81516.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ MCS Drivers Disk v.9.0.40.450 revision 111220 [Русский]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81517.jpgsave_picture_81517.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:531100A41CBDD2BB2F7F8E6CEC1F9021DDB36F9B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81520.jpgsave_picture_81520.jpg" />
 </div>
 
 

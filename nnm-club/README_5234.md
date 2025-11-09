@@ -6,7 +6,7 @@ Rod Stewart - The Tears of Hercules (2021) Japanese Edition [FLAC|Lossless|image
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162854.jpgsave_picture_162854.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:91E980F98115268D75DA8FDE1FFE0BE6B6B31740
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162855.jpgsave_picture_162855.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Microsoft Edge 96.0.1054.57 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162857.jpgsave_picture_162857.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:5187326DE86388964996682DFABE49795E27FF81
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162858.jpgsave_picture_162858.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:5ED767A3BE2B980E8482EB96602E9211FABCC69F
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162859.jpgsave_picture_162859.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:641292A96ED375A75BD1848961D35D0B807251A5
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162860.jpgsave_picture_162860.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:349302FC4129717B8CFE34FEA825792F71BA0C0E
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162861.jpgsave_picture_162861.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:0CB0E5B02350F452A6221AAAD80356A90726E333
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162862.jpgsave_picture_162862.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - Незабытые танго (2010) [APE|Lossless]<Retro>
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162863.jpgsave_picture_162863.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:D888CE025ACB37DA05BA7D04D4062CADE2B99F8A
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162864.jpgsave_picture_162864.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Opera 82.0.4227.33 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162865.jpgsave_picture_162865.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:DCDA2C0252B8417226511CA064734244D6DA59DB
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162866.jpgsave_picture_162866.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ NoMachine 7.0.208_4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162867.jpgsave_picture_162867.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:86C3A5619F37754A401F058E59D373D805A3CBBA
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162868.jpgsave_picture_162868.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Anthologie Du Twist Francais 1961-1962 (2017) 3CD [MP3|320 Kbps] <Rock, Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162869.jpgsave_picture_162869.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:DFBEC3185CC1B2F508A8E56CA58E129751782FAA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162870.jpgsave_picture_162870.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:6FD875187E4A75D7CEA4BB4F515C7BB159EA252B
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162871.jpgsave_picture_162871.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:6739E92C965D9744B62EB3139A1D4B7F6BF125B1
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162872.jpgsave_picture_162872.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Transcend SSD Scope 4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162873.jpgsave_picture_162873.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VA - Для тебя, Рио-Рита! (2007) [FLAC|Lossless]<Ретро>
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162874.jpgsave_picture_162874.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:1AAA21AAC1E93B2980B014B421C01CB60080B3D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162875.jpgsave_picture_162875.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:1C846AE4695D7BADF44F606FA2C99281ACC7D359
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162876.jpgsave_picture_162876.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Nagagutsu o Haita Neko | The Wonderful World of Puss 'n Boots | Кот в сап
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162877.jpgsave_picture_162877.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:16D65A8AEAD69D15420B94A64FF75F07AD8AA191
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162878.jpgsave_picture_162878.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ BusyContacts 1.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162879.jpgsave_picture_162879.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:FA35B2FAD1B34460E24FC76B5D45FF358B362BBA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162880.jpgsave_picture_162880.jpg" />
 </div>
 
 

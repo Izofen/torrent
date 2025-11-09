@@ -6,7 +6,7 @@ LazyMedia Deluxe v3.406 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2819.jpgsave_picture_2819.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Antioma (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2820.jpgsave_picture_2820.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SoftPerfect RAM Disk 25.8 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2821.jpgsave_picture_2821.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Infestation: Origins (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2822.jpgsave_picture_2822.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Hard Disk Sentinel PRO 6.30.3 Build 13402 Beta RePack (& Portable) by elchupacab
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2823.jpgsave_picture_2823.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2A72DD078556AE5BABE1C85F95BB84C210A8DDB4
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2824.jpgsave_picture_2824.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Dream Engines: Nomad Cities (2024) [Ru/Multi] (1.0.547) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2825.jpgsave_picture_2825.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ NVIDIA GeForce Desktop Studio 581.29 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2826.jpgsave_picture_2826.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Stepik, Даниил Беликов | Первая работа в IT. Стра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2827.jpgsave_picture_2827.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:0F81C270DBDC898EB4FC2D8E8EA6625E9CF7BFFD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2828.jpgsave_picture_2828.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Auslogics Anti-Malware Pro 1.23.0.2 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2829.jpgsave_picture_2829.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:E15693A65378E59BFA3EBD938125F3D01F528B03
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2830.jpgsave_picture_2830.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Luminar Neo 1.24.7.15515 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2831.jpgsave_picture_2831.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ IPTV Pro v9.1.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2832.jpgsave_picture_2832.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:17B0A9499B2975507A38AB30EB27998C43FA91C8
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2833.jpgsave_picture_2833.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Metro Simulator 2 (2022) [Ru/Multi] (1.6.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2834.jpgsave_picture_2834.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ X-Morph Defense (2017) [Ru/Multi] (SVN_29109.TC_129.DATA_12/dlc) Repack Let'sРl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2835.jpgsave_picture_2835.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:7E8CBF5B73424122AD889E78D339D717A502C7C7
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2836.jpgsave_picture_2836.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Gloomy Eyes (2025) [Multi] (1.0.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2837.jpgsave_picture_2837.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Cinema 4D 2026.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2838.jpgsave_picture_2838.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28561) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2839.jpgsave_picture_2839.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Technobabylon (2015) [En] (3.6) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2840.jpgsave_picture_2840.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:8B5120041613D2892EFFA1DBF9CA3C1CB020C276
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2841.jpgsave_picture_2841.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:107CEB5E09CB29A6B68C2DB3F8FA221D9756D8DD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2843.jpgsave_picture_2843.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:11E8A3B3EBA04DF6A27308F3FAB4E37FD301645A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2844.jpgsave_picture_2844.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:5C65B45F524CFAA350BB73A3D45DD5BDDC9E9A0D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2845.jpgsave_picture_2845.jpg" />
 </div>
 
 

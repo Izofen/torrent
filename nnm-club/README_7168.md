@@ -6,7 +6,7 @@ Tiesto - Tomorrowland Friendship Mix (2021-02-18) [MP3|320 Kbps] <House, Future 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245321.jpgsave_picture_245321.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tribute - Breaking Barriers (1986) Reissue, 2013, Sireena Record [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245322.jpgsave_picture_245322.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:3659A1B1159DEF836114E613E9207301D9F0235A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245323.jpgsave_picture_245323.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C1938FD51E60D8DE392AFDD0AB71A40E502BBB7D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245324.jpgsave_picture_245324.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:B67FE4F50039E8F8B14D90EF54B3D3E849FB6562
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245325.jpgsave_picture_245325.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Icon Of Coil - Machines Are Us (2004) [MP3|320 Kbps] <Electronic, Industrial>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245326.jpgsave_picture_245326.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Archie Shepp - Essential Best (2009) Venus Records [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245327.jpgsave_picture_245327.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:6D1EF0CA3B82BCC7425634A85DBA8D242C3E5AA2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245328.jpgsave_picture_245328.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:BB9B079CDB5FB6BC0A3AB2B5B8A4F460440E2C40
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245329.jpgsave_picture_245329.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:A553A9A4331B6E43B1616AF44F3BB36D582CFBE3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245330.jpgsave_picture_245330.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:1965DEB77988D4380E84ACE3A22B16D01D2427D9
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245331.jpgsave_picture_245331.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:1B1848F6AC39CC561AE08A76E1195ADB403D9634
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245332.jpgsave_picture_245332.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Glary Disk Cleaner 5.0.1.285 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245333.jpgsave_picture_245333.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ WiFiSpoof 3.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245334.jpgsave_picture_245334.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ WhatsApp 2.2226.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245335.jpgsave_picture_245335.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Ninja - Invincible (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245336.jpgsave_picture_245336.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Ghosts of Sunset - Breathe (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245337.jpgsave_picture_245337.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ BetterZip 5 v5.2 b1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245338.jpgsave_picture_245338.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:CB8180C4003CEA0F7A17D4B118A4574FAB105449
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245339.jpgsave_picture_245339.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ The Birthday Massacre - Fascination (2022) [FLAC|Lossless|WEB-DL|tracks] <Indust
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245340.jpgsave_picture_245340.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:A70D72C075A32BF66F68D462E134C8313B7F56C1
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245341.jpgsave_picture_245341.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:3E18D9597DAFCF88B66E3FD5C34B0424F5C0915E
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245342.jpgsave_picture_245342.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ DxO ViewPoint 3 v3.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245343.jpgsave_picture_245343.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Black Label Society - Doom Crew Inc. (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245344.jpgsave_picture_245344.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:593F4F9AA874B2B9A75C485ED31BDFC101CC0A43
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245345.jpgsave_picture_245345.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Tania Maria - It's Only Love (2007) 2010, BHM[FLAC|Lossless|image + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245346.jpgsave_picture_245346.jpg" />
 </div>
 
 

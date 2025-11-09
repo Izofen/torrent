@@ -6,7 +6,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208643.jpgsave_picture_208643.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:36428CE3A33CFC5D07264AF2001D0C47F389A148
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208646.jpgsave_picture_208646.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Hetman Uneraser Home / Office / Unlimited Edition 6.8 RePack (& Portable) by Try
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208647.jpgsave_picture_208647.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:2EB2A5B5F5137B2F5EAC6498DA14154861D7B296
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208648.jpgsave_picture_208648.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - Музыка для машины Vol.33 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208650.jpgsave_picture_208650.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:04404F6D65A41AF876BBA96FAE3096522F862A97
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208652.jpgsave_picture_208652.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ SpaceX отправила на орбиту 54 последних спутник
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208653.jpgsave_picture_208653.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Topaz Video AI 3.3.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208656.jpgsave_picture_208656.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Papa's Freezeria Deluxe (2023) [En] (1.0.3) Repack NotDaMazzlov
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208658.jpgsave_picture_208658.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Udemy, Michael Pogrebinsky | Distributed Systems & Cloud Computing with Java (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208660.jpgsave_picture_208660.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:E432E435FB075BEFBE8B0B049243465F19E0B469
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208662.jpgsave_picture_208662.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:C884FFDCC99BF7E4607548C4AF44D592D6BDFB7A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208665.jpgsave_picture_208665.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:E5AC79482F72991488D209E49B16A97F5D28F3A9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208666.jpgsave_picture_208666.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Blues: It's Only Love (2023) [MP3|320 Kbps] <Blues, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208668.jpgsave_picture_208668.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:F661ADF3904CC49CC379E054ADBE950BF2BB2816
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208670.jpgsave_picture_208670.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ fx-Calc 4.9.4.0 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208672.jpgsave_picture_208672.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Калина красная 22-Песни, спетые сердцем (201
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208673.jpgsave_picture_208673.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.90.6500 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208676.jpgsave_picture_208676.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:82C4880DB8D911072DDBB47DBE303308182A087D
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208679.jpgsave_picture_208679.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:54AAF172600DECF03319FF0F9486DBCFE2477B19
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208680.jpgsave_picture_208680.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ JUG Ru Group | Mobius 2023 Spring. Конференция для мобильн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208682.jpgsave_picture_208682.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:93C38EB34A82C06377FFA964A4A66D75BD1F38F6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208684.jpgsave_picture_208684.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:4D249287FC94E8F764F7A37267B2F477E194D648
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208686.jpgsave_picture_208686.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:AE89309B87FAFD2A51D287185A5F419DE1B3F33C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208688.jpgsave_picture_208688.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:64A8B5A9D3D2479297DD3DF831D15AAB5961FE8C
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208691.jpgsave_picture_208691.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Glary Utilities Pro 5.208.0.237 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208693.jpgsave_picture_208693.jpg" />
 </div>
 
 

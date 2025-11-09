@@ -6,7 +6,7 @@ L’Homme Absurde - Stranger (2023) [FLAC|Lossless|image + .cue] <Black Metal, B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232741.jpgsave_picture_232741.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A3A1A186AFE0A2E6B375FE38ED22A45005844C09
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232747.jpgsave_picture_232747.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:44F70096132DCD19F6040C9A782CB8AFD811A80F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232961.jpgsave_picture_232961.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:B423C5F4DE69C387BBD94F9B7EEBAAC17E9B51CD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233318.jpgsave_picture_233318.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Saphath - Ascension Of The Dark Prophet (2022) [FLAC|Lossless|image + .cue] <Dea
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233332.jpgsave_picture_233332.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:70317F9F21FBD47878ADC4A5224BED3ACF58C948
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233378.jpgsave_picture_233378.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:778844FB2432D9098DBC8AAF5EF868C4D129B97B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233405.jpgsave_picture_233405.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:65411C0C521BF2629C8BEF88F8A3ABC7A01415B4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233418.jpgsave_picture_233418.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:3F3C2A75F3FCE19E95408A9DF233E6525BC3ACBB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233468.jpgsave_picture_233468.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:09AF9C47AA9BAA8C29DC12065EDE51CB9E94379C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233574.jpgsave_picture_233574.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Gorky Park - Moscow Calling (1992) Reissue, Remastered, 2023, Moroz Records [FLA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233882.jpgsave_picture_233882.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Egor Lappo - Naturealism (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234453.jpgsave_picture_234453.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dig Me No Grave - Under The Pyramids (2020) [FLAC|Lossless|image + .cue] <Death 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234706.jpgsave_picture_234706.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:6183053DC104622C3EC483E03BADAFD9DAE02571
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234859.jpgsave_picture_234859.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Concrete Age - Bardo Thodol (2023) [FLAC|Lossless|image + .cue] <Thrash, Death M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234899.jpgsave_picture_234899.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:F9E6A6B5EB73A9E721CFD76B397708E2D4009385
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234902.jpgsave_picture_234902.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Nemezida - Война. Голод (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234964.jpgsave_picture_234964.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Loengreen - Огненные цветы (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235223.jpgsave_picture_235223.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Koldovstvo - Ни Царя, Ни Бога (2021) [FLAC|Lossless|Web-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235530.jpgsave_picture_235530.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Melancholy - Чернъ (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235540.jpgsave_picture_235540.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Woab - Для этого мира (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235605.jpgsave_picture_235605.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Nuclear Cthulhu - Desecration (2016) [FLAC|Lossless|WEB-DL|tracks] <Black Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235613.jpgsave_picture_235613.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Electric Crown - Prophecy of Doom (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235744.jpgsave_picture_235744.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:BB52638BB6954DABB228E016542AD32A73CD2967
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236446.jpgsave_picture_236446.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ WastedSky - Стая (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Nu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236504.jpgsave_picture_236504.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Autumn Rain Melancholy - Seven Steps to Infinity (2004) 2022, Autumn Rain Melanc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236513.jpgsave_picture_236513.jpg" />
 </div>
 
 

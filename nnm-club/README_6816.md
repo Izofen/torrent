@@ -6,7 +6,7 @@ BimmerCode for BMW and MINI 4.13.2-11165 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234383.jpgsave_picture_234383.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PDF Extra - сканнер, редактор v9.1.1456 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234384.jpgsave_picture_234384.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234385.jpgsave_picture_234385.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:CE04BBF685EE059C6630228533A5AF9F1E1A83DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234386.jpgsave_picture_234386.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Igor Fedotov - Believe in Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234387.jpgsave_picture_234387.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Alunah - Strange Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234388.jpgsave_picture_234388.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ The Drifter Kings - Devil in my Kitchen (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234389.jpgsave_picture_234389.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:C8EAD618B83B0DA384487210275D1B5C58DC3FDE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234390.jpgsave_picture_234390.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Cx Проводник 1.8.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234391.jpgsave_picture_234391.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:3F48B6C645DE8AA856CFAD851A76C8824F6FB3FB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234392.jpgsave_picture_234392.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Saturna & Electric Monolith - Turned to Stone Chapter 4: Higher Selves (2022) [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234393.jpgsave_picture_234393.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Revo Uninstaller Pro 5.1.4 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234394.jpgsave_picture_234394.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ FonePaw Android Data Recovery for Mac 5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234395.jpgsave_picture_234395.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Nemesis - False Reality (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234396.jpgsave_picture_234396.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:34768687AF41DE12F0A59780B6BF1696BAB80962
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234397.jpgsave_picture_234397.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:8470762C192BD12E92E2586C1BD26E332CBD8833
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234398.jpgsave_picture_234398.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:D501B6A573A9E946ED5FCC791C257F874A7FA48F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234399.jpgsave_picture_234399.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ uTorrent Pro 6.8.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234400.jpgsave_picture_234400.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ WinTools.net Premium / Professional / Classic 23.5.1 RePack (& Portable) by Doda
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234401.jpgsave_picture_234401.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Roberto Gatto - Replay (2012) Parco Della Musica Records [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234402.jpgsave_picture_234402.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Royal Thunder - Rebuilding The Mountain (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234403.jpgsave_picture_234403.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - Assorted rock, blues rock compilation part  26 (2023) [MP3|320 Kbps] <Rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234404.jpgsave_picture_234404.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:0CF07594C69569DEAADF2C9109211371F2F6C2FA
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234405.jpgsave_picture_234405.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:0341F8986A7FA1518A91E713A9F2831D9C775A0C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234406.jpgsave_picture_234406.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:50B3F48B708D0F83B22BAF7F7E9572F44291961A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234407.jpgsave_picture_234407.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ SILKYPIX Developer Studio Pro 11E v.11.0.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234408.jpgsave_picture_234408.jpg" />
 </div>
 
 

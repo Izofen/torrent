@@ -6,7 +6,7 @@ Ink Inside (2024) [Multi] (1.0.2) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32415.jpgsave_picture_32415.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.0.1.1f/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32653.jpgsave_picture_32653.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Only Up 2! (2023) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32727.jpgsave_picture_32727.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Only Up! Skibidi Together (2024) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32738.jpgsave_picture_32738.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Viscera (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32775.jpgsave_picture_32775.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Exographer (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32954.jpgsave_picture_32954.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Nine Sols (2024) [Ru/Multi] (202412161711) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33195.jpgsave_picture_33195.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Kong: Survivor Instinct (2024) [Multi] (1.0.4) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33218.jpgsave_picture_33218.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ashes of the Union (2024) [Ru/Multi] (0.3.5 Hotfix 2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33534.jpgsave_picture_33534.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tekken 8 (2024) [Ru/Multi] (1.10.01/dlc) Repack FitGirl [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33622.jpgsave_picture_33622.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ No More Snow (2023) [Multi] (1.2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33810.jpgsave_picture_33810.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ TRANSFORMERS: Galactic Trials (2024) [Multi] (1.0) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34089.jpgsave_picture_34089.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.3.0.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34139.jpgsave_picture_34139.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tales of Kenzera: ZAU (2024) [Multi] (1.5.45551) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34249.jpgsave_picture_34249.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Kong: Survivor Instinct (2024) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34575.jpgsave_picture_34575.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Chasm (2018) [Multi] (1.093) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34762.jpgsave_picture_34762.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Disney Epic Mickey: Rebrushed (2024) [Multi] (1.0.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34974.jpgsave_picture_34974.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ South Park: Snow Day! (2024) [Multi] (1.0.6/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35282.jpgsave_picture_35282.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ One Boss One Fight (2024) [Ru/Multi] (1.10) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35381.jpgsave_picture_35381.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ GigaBash (2024) [Ru/Multi] (1.5.2/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35650.jpgsave_picture_35650.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ GigaBash (2024) [Ru/Multi] (1.5.2/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35767.jpgsave_picture_35767.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Muppet Monster Adventure (2000) [Ru] (1.0.0.1) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36022.jpgsave_picture_36022.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Beat Hazard Ultra (2010) [Multi] (1.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36036.jpgsave_picture_36036.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36123.jpgsave_picture_36123.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ It's Only Money (2023) [En] (1.0.0-9254/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36164.jpgsave_picture_36164.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Valkyrie of Phantasm (2022) [Multi] (1.04) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36268.jpgsave_picture_36268.jpg" />
 </div>
 
 

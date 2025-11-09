@@ -6,7 +6,7 @@ Ulbi TV, Тимур Ульби | Продвинутый Frontend. В Production 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252055.jpgsave_picture_252055.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ JUG Ru Group, JPoint и Joker | Конференция для опытных Jav
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252178.jpgsave_picture_252178.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Amigoscode, Mama Samba Braima Nelson | PROFESSIONAL Full Stack Developer (2023) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252190.jpgsave_picture_252190.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Red Group, htmllessons, Максим Шушвал | Все интенсивы (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252193.jpgsave_picture_252193.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ QA Studio | Ручное тестирование ПО (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252195.jpgsave_picture_252195.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Alexcode, Алексей Леонов | Разработчик 1С с нуля (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252220.jpgsave_picture_252220.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ CyberYozh Academy, Евгений Ивченков | Комплексная на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252237.jpgsave_picture_252237.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Diodov.net, Дмитрий Забарило | Программирование �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252280.jpgsave_picture_252280.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:50700D3F5207B0767709F77504844C7C6C6BFBF4
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252282.jpgsave_picture_252282.jpg" />
 </div>
 
 

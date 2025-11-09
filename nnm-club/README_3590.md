@@ -6,7 +6,7 @@ Soulver 3 v.3.10.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113715.jpgsave_picture_113715.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Houwitser - Sentinel Beast (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113716.jpgsave_picture_113716.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DB-Text 1.12.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113717.jpgsave_picture_113717.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TG Pro (Temperature Gauge Pro) 2.91 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113718.jpgsave_picture_113718.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Daes - D1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113719.jpgsave_picture_113719.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ QuickLinks 3.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113720.jpgsave_picture_113720.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Bookends 15.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113721.jpgsave_picture_113721.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Pantheist - Kings Must Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113722.jpgsave_picture_113722.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Rocket Typist Pro 3.0.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113723.jpgsave_picture_113723.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Video Converter X2 for Mac 1.3.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113724.jpgsave_picture_113724.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:8816BE0E33C587827DBF9113B9B3FDD1F3C718DD
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113725.jpgsave_picture_113725.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Wondershare PDFelement Pro OCR 10.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113726.jpgsave_picture_113726.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ K-Lite Codec Pack Update 18.1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113727.jpgsave_picture_113727.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Into The Tempest - Black Is All (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113728.jpgsave_picture_113728.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Blocs 5.2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113729.jpgsave_picture_113729.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Aiseesoft iPhone Cleaner 1.0.30 [Multi/Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113730.jpgsave_picture_113730.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ MotoGP. Этап 01 из 21. Гран-при Катара. Спринт (09.03.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113731.jpgsave_picture_113731.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Saint Renascence - Saint Renascence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113732.jpgsave_picture_113732.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:C3D3D79084CFAB9416539C40B395863EA92EE046
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113733.jpgsave_picture_113733.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ MotoGP. Этап 01 из 21. Гран-при Катара. Гонка (10.03.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113734.jpgsave_picture_113734.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:6031219241B667B582BE2ADE1E03608939D6B398
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113735.jpgsave_picture_113735.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - Rage Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113736.jpgsave_picture_113736.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ DJ Mix Pads 2 - Remix Version 6.0.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113737.jpgsave_picture_113737.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:6ED5CACDE012A9F369902E049D2ADB2232C70187
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113738.jpgsave_picture_113738.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:B81DBFD293287BDE67543883396F6D17C2586263
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113739.jpgsave_picture_113739.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:6313C5E0153FEC3D760D03E660F155D9CF995BD8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113740.jpgsave_picture_113740.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87398.jpgsave_picture_87398.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7375952E69C98FB3AA58F2046363124D113188DF
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87399.jpgsave_picture_87399.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9D8EEC4B7F9F55E054AB9C5964FCC2CB5D72AC69
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87400.jpgsave_picture_87400.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:614F07EB225F8AF0385D2C5EA181A82CB9198202
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87401.jpgsave_picture_87401.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:614F07EB225F8AF0385D2C5EA181A82CB9198202
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87403.jpgsave_picture_87403.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:4BB8C0412D3AC64CBDC9D155A09D134174CDA5FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87404.jpgsave_picture_87404.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:4BB8C0412D3AC64CBDC9D155A09D134174CDA5FD
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87405.jpgsave_picture_87405.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:855AE382ECCB45DCFD4926779D2D555C2B6C0061
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87408.jpgsave_picture_87408.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:BDCFEFE1CEB1640C7C7FE9693648E4A14FCA226F
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87409.jpgsave_picture_87409.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Comfort On-Screen Keyboard Pro 5.1.4.0 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87411.jpgsave_picture_87411.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Comfort On-Screen Keyboard - приложение, отображающее ун
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87412.jpgsave_picture_87412.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:F0D1E22CF33BCD7F06A0CD6919D945E754A4C419
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87413.jpgsave_picture_87413.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:83C073ACE51EEA27B3737A8761B5ABB7D4ED0F99
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87418.jpgsave_picture_87418.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:C452076C01FD70AB2E2E5DE45FEEC9225A72E0EF
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87420.jpgsave_picture_87420.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Aaron Crane: Paintings Come Alive / Аарон Крэйн. Картины ожи
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87421.jpgsave_picture_87421.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Tacis (Тасис) | Как разработать бизнес-план [1996] 
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87422.jpgsave_picture_87422.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Scorpions - 2 альбома (1974-1975)  [FLAC 2.0 24/192 | tracks (VinylRip)]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87423.jpgsave_picture_87423.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:2CB315CD2F2FB1839040EE4CCCCAD22B83C2C343
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87429.jpgsave_picture_87429.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Stray Souls: Dollhouse Story. Collector Edition / Заблудшие души. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87431.jpgsave_picture_87431.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:1EDBF442AE2EEF4E11A9CA3D5594BFE4ADCFF80D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87432.jpgsave_picture_87432.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:A6E6F66D96C467FCFCDA60712A3448E488035A78
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87434.jpgsave_picture_87434.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:697F2761F02F2EC3875C9D72CA1DD3AFEC9B6B8A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87435.jpgsave_picture_87435.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:1270A1D48BA6EBB5DDA004F36F4043F5CD64DCCC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87442.jpgsave_picture_87442.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:0F7D7E2F0CCECA66BDAAAA0EC2BF9AB1B7254CC6
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87444.jpgsave_picture_87444.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Bomber-Mario (P) [En] 2010
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87445.jpgsave_picture_87445.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:7BC4218B3E84DFD5E7CD3A3D71525BCB60E80C3B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87446.jpgsave_picture_87446.jpg" />
 </div>
 
 

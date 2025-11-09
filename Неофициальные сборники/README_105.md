@@ -6,7 +6,7 @@ GAYAZOVS BROTHERS - Синглы и ремиксы (2015 - 2022) [MP3|320 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191893.jpgsave_picture_191893.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Queen + Freddie Mercury - Best of [Compiled by Firstlast] (2021) [MP3|192-320 Kb
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191998.jpgsave_picture_191998.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - In Mood Styles Dance (2022) [MP3|320 Kbps] <Electropop, Synthpop, Hands Up,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192003.jpgsave_picture_192003.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Freddie Mercury - 100% Freddie Mercury (2020) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192021.jpgsave_picture_192021.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VA - Music News vol.225 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192042.jpgsave_picture_192042.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - Music News vol.224 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192043.jpgsave_picture_192043.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ VA - Halloween Party 2022 (Powered By Xtreme Sound) (2022) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192119.jpgsave_picture_192119.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Car Music Mix 2 (2022) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192242.jpgsave_picture_192242.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Rock & Pop Ballads Collection от ALEXnROCK Часть 2 (2022) [MP3|320 K
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192246.jpgsave_picture_192246.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Colin James - Compilation (2022) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192362.jpgsave_picture_192362.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Oriental Deep 3 (2023) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192581.jpgsave_picture_192581.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Shazam Хит-парад World Top 200 Август (2023) [MP3|320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192839.jpgsave_picture_192839.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - В машине с музыкой Vol.315 (2022) MP3 [320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192858.jpgsave_picture_192858.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Trance In Motion Vol.364 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192973.jpgsave_picture_192973.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Death And The Labyrinth (folk metal) (2023) 2CD [MP3|320 Kbps] <Metal, Paga
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193000.jpgsave_picture_193000.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - ЕвроХит Топ 40 Europa Plus 28.10.2022 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193165.jpgsave_picture_193165.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Rock & Blues Part 9 (2022) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193228.jpgsave_picture_193228.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - В машине с музыкой Vol.314 (2022) MP30 [320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193231.jpgsave_picture_193231.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Now That's What I Call 12 70s (2022) MP3[320 Kbps] <Hip-Hop, Rock, Funk, So
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193258.jpgsave_picture_193258.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Anything and everything assorted part 4 (2025) [MP3|320 Kbps] <Electronic, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193273.jpgsave_picture_193273.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Anything and everything assorted part 5 (2025) [MP3|320 Kbps] <Electronic, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193285.jpgsave_picture_193285.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Anything and everything assorted part 6 (2025) [MP3|320 Kbps] <Electronic, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193286.jpgsave_picture_193286.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Anything and everything assorted part 7 (2025) [MP3|320 Kbps] <Electronic, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193287.jpgsave_picture_193287.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Anything and everything assorted part 8 (2025) [MP3|320 Kbps] <Electronic, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193402.jpgsave_picture_193402.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Musical kaleidoscope part 59 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193404.jpgsave_picture_193404.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Jumanov - Favorites Collection (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193612.jpgsave_picture_193612.jpg" />
 </div>
 
 

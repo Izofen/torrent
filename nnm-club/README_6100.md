@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191961.jpgsave_picture_191961.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Stellarium 1.1.1 (0.22.4.0-1.22.4.0) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191962.jpgsave_picture_191962.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BE684D0494DC9F2F5E1C5A9F2A19D7CAD622092D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191963.jpgsave_picture_191963.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ LDPlayer 9.0.27 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191964.jpgsave_picture_191964.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Freddie Mercury - 6 albums, 2 Box-set, 19 CD (1985-2019) [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191965.jpgsave_picture_191965.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ AIDA64 Extreme Edition  6.80.6204 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191966.jpgsave_picture_191966.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:368B61007B56E767C30BB26A905F742133A3F174
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191967.jpgsave_picture_191967.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Dark City 7: International Intrigue / Мрачный город 7: Междун�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191968.jpgsave_picture_191968.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ XYZ School, Кирилл Золовкин | Пайплайн разработк�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191969.jpgsave_picture_191969.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:4DE5ACD8537C6D16E7E384E97EE142D28B941FB7
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191970.jpgsave_picture_191970.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:40E2B7FF483E1D7A05C22C6987E47F7E3C8F996A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191971.jpgsave_picture_191971.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:40E2B7FF483E1D7A05C22C6987E47F7E3C8F996A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191972.jpgsave_picture_191972.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:6F564A920D8B11A2BCD3BB98606FAE051BC6226E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191973.jpgsave_picture_191973.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ronnie Montrose - Territory (1986) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191974.jpgsave_picture_191974.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:9C2ECB1A4E68A9AA920216258EDA61DFC5983EBF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191975.jpgsave_picture_191975.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:52E8D6E78C38BF643272DF41745B8BE56097AC4B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191976.jpgsave_picture_191976.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:F0688221E198917DECB84A90101CB2AB27F2F0AF
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191977.jpgsave_picture_191977.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:1424788D0AC53E7E9C6C084E0A83AB541EC0AB3F
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191978.jpgsave_picture_191978.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:117046B53E691D292AE937DC06BBA7CDD3B62BA4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191979.jpgsave_picture_191979.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:AA7DCAAE02707E31D3ECDA27DB85C409E415EF11
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191980.jpgsave_picture_191980.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Space Engineers / Космические инженеры (2019) [Ru/Multi] (1.2
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191981.jpgsave_picture_191981.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:C422B3FCB7C1391CF7061C15EB0D991F120CE38E
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191982.jpgsave_picture_191982.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:FF5311ABCF7BF94A85C447DCDCAFE51C0A886362
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191983.jpgsave_picture_191983.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:28DCC885E5E2DE4F0A7D5B58C2CBB76D08B018E1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191984.jpgsave_picture_191984.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:6B72CB4A2A314C193205DA51280DBE8226484E98
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191985.jpgsave_picture_191985.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:E812D2EB27C12442C3CA10ABE6B998883FCD1962
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191986.jpgsave_picture_191986.jpg" />
 </div>
 
 

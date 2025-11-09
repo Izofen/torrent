@@ -6,7 +6,7 @@ Carach Angren - Death Came Through A Phantom Ship (2010) Reissue, 2013, Season O
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69312.jpgsave_picture_69312.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ D'OR - Antiheroes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69313.jpgsave_picture_69313.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Pvris - White Noise (2014) 10 Year Anniversary Edition, 2025, Rise Records[FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69314.jpgsave_picture_69314.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:4BB5459B317987C0F091496E2217BA0020724CB3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69315.jpgsave_picture_69315.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Overdrivers - Glory or Nothing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69316.jpgsave_picture_69316.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:1F266D0155D64166EE23F8CF3C2022242A9367B5
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69317.jpgsave_picture_69317.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:56EC93C6A36B352911147DF5CEA17CF7D89F2C1E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69318.jpgsave_picture_69318.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ David Rose - Sun Dance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Latin Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69319.jpgsave_picture_69319.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69320.jpgsave_picture_69320.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Yuridia - Sin Llorar (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69321.jpgsave_picture_69321.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ ZZ Ward - Liberation (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69322.jpgsave_picture_69322.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:16908F827D9EDD64AB68F29367017514B065DAC8
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69323.jpgsave_picture_69323.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:12FE07456843D9CAB499F7E2A4BE5DAAFA549F1F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69324.jpgsave_picture_69324.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - Sirup Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69325.jpgsave_picture_69325.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Exx Muzik Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69326.jpgsave_picture_69326.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Glowhax - The Sun Forgot to Shine (2025) [MP3|320 Kbps] <Dark Electro, Synthwave
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69327.jpgsave_picture_69327.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ David Rose - My Only One (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69328.jpgsave_picture_69328.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Coheed and Cambria - The Father of Make Believe (2025) [MP3|320 Kbps] <Alternati
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69329.jpgsave_picture_69329.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:52EF9D379933E9BA9A968FFD16D551E4588B6594
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69330.jpgsave_picture_69330.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Swallow The Sun - Studio Albums (10 releases) (2003-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69331.jpgsave_picture_69331.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:C43FC1B90DBC99B4E9153207DA5894F9AB1C1352
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69332.jpgsave_picture_69332.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Confidence Man - 4AM (LA LA LA) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Te
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69333.jpgsave_picture_69333.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Streetlight - Night Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69334.jpgsave_picture_69334.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:688CB34508C75185FB54705BE54BE744A1C52671
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69335.jpgsave_picture_69335.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:AB116EF87FA13CFFF348BAEE86E6041523F62458
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69336.jpgsave_picture_69336.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ magnet:?xt=urn:btih:E7BB377454D9F153AB9F6F0382B885500793E2C1
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69337.jpgsave_picture_69337.jpg" />
 </div>
 
 

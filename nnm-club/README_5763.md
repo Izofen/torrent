@@ -6,7 +6,7 @@ WinTools.net Premium 23.10.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178794.jpgsave_picture_178794.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:964C051368AE611E5F143C0771FC5B18855093FB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178797.jpgsave_picture_178797.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:690E57A176936752C3131EA34F9C8A8997F083C5
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178798.jpgsave_picture_178798.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Fleetwood Mac & friends Compilation (2023) [MP3|320 Kbps] <Rock, Soft Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178801.jpgsave_picture_178801.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Maunra - Monarch (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Post-Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178803.jpgsave_picture_178803.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Rob Rock - Garden Of Chaos (2007) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178806.jpgsave_picture_178806.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Windows Update Viewer 0.5.24.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178807.jpgsave_picture_178807.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Joe Bonamassa - Blues Deluxe (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178809.jpgsave_picture_178809.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Kenton Presents Bob Cooper, Bill Holman & Frank Rosolino (1954 - 1961) 4CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178811.jpgsave_picture_178811.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Rob Rock - Eyes Of Eternity (2003) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178814.jpgsave_picture_178814.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:FBD735273794C934187A3B070708809DD12DE0AF
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178815.jpgsave_picture_178815.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:2596EEC36C1C71DBB6308CACDFAEFC2BDDD8D2A3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178817.jpgsave_picture_178817.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Mag - Mag II - Pod Krwawym Księżycem (2022) [FLAC 2.0|48/24|tracks] <Doom meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178819.jpgsave_picture_178819.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:3FF7E35BF7A7AF82473DABBA48BF2C09489B4208
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178822.jpgsave_picture_178822.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ In Vinum - Vinum Et Occultismum (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178823.jpgsave_picture_178823.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ PDF24 Creator 11.14.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178825.jpgsave_picture_178825.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Behind Our Reflections - Infinity (2022) [FLAC|Lossless|WEB-DL|tracks] <MetalCor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178826.jpgsave_picture_178826.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Rob Rock - Holy Hell (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178829.jpgsave_picture_178829.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Imagine 1.3.0 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178831.jpgsave_picture_178831.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:A92E66BFA6AE40954600A61FAD76E4683A08C9C9
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178833.jpgsave_picture_178833.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Mag - Mag (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom metal, Sludge, Stoner>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178835.jpgsave_picture_178835.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:41D88A2AF8E3254A99C10F4C7C9ACD6FD51D4654
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178837.jpgsave_picture_178837.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:6A9BDD4984FE368309C46444E5797FF76DB11A22
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178838.jpgsave_picture_178838.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Mag - Mag II - Pod Krwawym Księżycem (2022) [FLAC|Lossless|WEB-DL|tracks] <Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178841.jpgsave_picture_178841.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ KStars 3.6.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178842.jpgsave_picture_178842.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:0DF6E2955B7EC29A6781609C59EF2A6F6BD59517
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178845.jpgsave_picture_178845.jpg" />
 </div>
 
 

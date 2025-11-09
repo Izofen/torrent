@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105381.jpgsave_picture_105381.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B625608FF664134AB6E4998C3FE9B5FA3A434B7A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105382.jpgsave_picture_105382.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:482F47E6DE0A3376A7B58EEAD7D881BB43595B7C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105383.jpgsave_picture_105383.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Ansambel ''Vitamiin'' - Ансамбль ''Витамин I'' (1983) [FLAC 2.0|4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105384.jpgsave_picture_105384.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:67E1C65C1F5E494A5DF63AB8C119E5601604869A
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105385.jpgsave_picture_105385.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Foster The People - Paradise State of Mind (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105386.jpgsave_picture_105386.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Frank Sinatra - Sinatra Session (1999) 2CD, Castle Pie [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105387.jpgsave_picture_105387.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Cold Chisel - 50 Years - The Best Of (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105388.jpgsave_picture_105388.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Dark Tranquillity - Endtime Signals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105389.jpgsave_picture_105389.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:D95D38DE048ED22AF13673FB77DC94B39EEB29DB
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105390.jpgsave_picture_105390.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Edwin Starr - H.A.P.P.Y. Radio (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105391.jpgsave_picture_105391.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Jimmy James - Dancin' Till Dawn (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105392.jpgsave_picture_105392.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Markus Schulz - Global DJ Broadcast World Tour: Untold Festival 2024 + Reflectio
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105393.jpgsave_picture_105393.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ The Red Moon Macabre (Renzo Tellez) - 13 Albums (2021-2024) [MP3|320 Kbps] <Goth
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105394.jpgsave_picture_105394.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:8E4CA78F8923A0AA15A633929654A56B7EBCE2B6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105395.jpgsave_picture_105395.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Eisregen - Abart (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Black, Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105396.jpgsave_picture_105396.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ All India Radio - 2006 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Do
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105397.jpgsave_picture_105397.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Hail Darkness - Death Divine (2024) [FLAC|Lossless|WEB-DL|tracks] <Occult Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105398.jpgsave_picture_105398.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Nat King Cole - More Historical Recordings (1990) Conquistador [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105399.jpgsave_picture_105399.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Per Wiberg - The Serpent’s Here (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105400.jpgsave_picture_105400.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Extinction A.D. - To The Detested (2024) [MP3|320 Kbps] <Thrash Metal, Crossover
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105401.jpgsave_picture_105401.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Dwell in Doom - 2 Albums (2023-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Goth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105402.jpgsave_picture_105402.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Kayas - By the Moon and the Stars (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105403.jpgsave_picture_105403.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Jormungand: Perfect Order | Ёрмунганд [ТВ-2] [2012, TV, 12] BDRemux 1
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105404.jpgsave_picture_105404.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Creed - Human Clay (1999) Deluxe Edition, 2024, [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105405.jpgsave_picture_105405.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ magnet:?xt=urn:btih:3608EB2DFFF0399A0792B20D78C3222FED1BE7D6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105406.jpgsave_picture_105406.jpg" />
 </div>
 
 

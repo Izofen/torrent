@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127045.jpgsave_picture_127045.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:028EE68EA65B551D1CAF8F3526C79A7751395A97
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127046.jpgsave_picture_127046.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:CB0D4E99FE97229789E2ED24B3A0B8B6FB3E61DD
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127047.jpgsave_picture_127047.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:355306F364B07CFFA52FED5A3DE683F7EC3CDE70
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127048.jpgsave_picture_127048.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:2FC86CDC2DF78EB6639C095EFAAD15CD8BA50705
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127049.jpgsave_picture_127049.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8FB952D74B99334DE3012ECC30A9894455CF335D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127050.jpgsave_picture_127050.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:B26AD6D3292471F08593952C153FB47847CBE3FB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127051.jpgsave_picture_127051.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:AB918395300B3DD69E54E0B14295E5C685474F7A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127052.jpgsave_picture_127052.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Niovel - Never Strangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127053.jpgsave_picture_127053.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:57023A56A6532511D6FAA0AF71EE7FDF7F5AC461
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127054.jpgsave_picture_127054.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Dusk - Dissolve into Ash (2023) [MP3|320 Kbps] <Doom Metal, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127055.jpgsave_picture_127055.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:2F160DCEA9EEF032D7574B9F42A8F1168A3E85B5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127056.jpgsave_picture_127056.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:189BBE76E6F3E3D77227F3A0E175F4D22B9D4B8D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127057.jpgsave_picture_127057.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Demon - The Unexpected Guest (1982) Japanese Edition, Reissue, Remastered, 2020,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127058.jpgsave_picture_127058.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Dusk - Epoka (2018) [MP3|320 Kbps] <Industrial Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127059.jpgsave_picture_127059.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:3B7DFF0B65212922135E87DDD8642532B78A6FEF
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127060.jpgsave_picture_127060.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:B72617D295430DD1096010C5E7EAE22398E45D1F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127061.jpgsave_picture_127061.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:5715DCD4E6C1FFF6D7A8E98E90AF3BA6B2030970
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127062.jpgsave_picture_127062.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ CudaText 1.205.5.2 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127063.jpgsave_picture_127063.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:ACAC4DCB50B3E8A561FA87E17E4D05BB4A0AD8A5
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127064.jpgsave_picture_127064.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ RTG. Животный мир Командорского архипелага (20
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127065.jpgsave_picture_127065.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:87E26752D547AE19EC8B338C5ADC42977719FA72
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127066.jpgsave_picture_127066.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ FreeFileSync 13.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127067.jpgsave_picture_127067.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:6230A72B3001C02D8470269263C527B6653A4DA3
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127068.jpgsave_picture_127068.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Chasys Draw IES 5.29.01 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127069.jpgsave_picture_127069.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Dr. Arthur Krause - Best of (2003-2016) Compilation Album [MP3|320 Kbps] <Goth R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127070.jpgsave_picture_127070.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Mirillis Action! 4.36.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205350.jpgsave_picture_205350.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:A88F8FBA6AF8FC1453E3377EBFBF4A1EDDC0F0C8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205353.jpgsave_picture_205353.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:861E269BEDBF2D1566E8415A42BDC07074EF11B1
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205355.jpgsave_picture_205355.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Ibiza House Classics - Armada Music (2023) [MP3|320 Kbps] <Funky, Club Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205357.jpgsave_picture_205357.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:1EB57D0D4097421939F10FBCB13456A5EB50471F
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205358.jpgsave_picture_205358.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:4CB1568BDBECAC0B8FE10B00131A78C01658980C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205361.jpgsave_picture_205361.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ PeaZip 9.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205362.jpgsave_picture_205362.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:32ADD28159D91823E2B9B85D1F9B27694D441650
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205364.jpgsave_picture_205364.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ ZEDGE 8.14.4 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205367.jpgsave_picture_205367.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:51A6263DBABF9478894EBD9BE6ED48B15C39BEC6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205368.jpgsave_picture_205368.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:488E1B5E1C74417E741B013D3718DE8EFE29C9F7
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205370.jpgsave_picture_205370.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ HWiNFO 7.61 Build 5180 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205372.jpgsave_picture_205372.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ ZEDGE 8.15.7-beta Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205373.jpgsave_picture_205373.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Warlock - Burning the Witches (1984) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205374.jpgsave_picture_205374.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - 10 Years Of Suanda Music - Mixed by Ahmed Helmy (2023) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205375.jpgsave_picture_205375.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:F69F15145BF498A8A1A084F9B85253D4BF50C83F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205378.jpgsave_picture_205378.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:5D2678551C54A94DBB938B4822EF578FC5D8ADA6
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205380.jpgsave_picture_205380.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:C5A3DE3B9285D038CB1CD23289B84FED11700DB3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205382.jpgsave_picture_205382.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Phineas Newborn, Jr. - Back Home (1976) 1998, Original Jazz Classics [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205384.jpgsave_picture_205384.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Swinsian 3.0 Preview 8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205386.jpgsave_picture_205386.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Node Video - Pro Video Editor 6.4.1 Mod by ImanAlien [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205388.jpgsave_picture_205388.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Dash 7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205390.jpgsave_picture_205390.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Artstudio Pro 5.1.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205392.jpgsave_picture_205392.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ CaptureGRID 4 v.4.27 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205394.jpgsave_picture_205394.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Softorino YouTube Converter PRO for Mac 5.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205396.jpgsave_picture_205396.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Kairi - My Light, My Flesh (2011) [FLAC|Lossless|image + .cue] <Funeral Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205398.jpgsave_picture_205398.jpg" />
 </div>
 
 

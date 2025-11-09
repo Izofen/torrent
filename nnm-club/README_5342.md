@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165733.jpgsave_picture_165733.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:853EB3876E464B156DB65D57EF02E31FD878AD92
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165734.jpgsave_picture_165734.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2CFE966C82E87BC8E6E83BA43BFF4C8323950188
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165735.jpgsave_picture_165735.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DE6611AF0B6F1E7E5F087B075D8A592B4E53E9FC
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165736.jpgsave_picture_165736.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:00603C45A6BA3B06B0A8E7848481429D20A48473
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165737.jpgsave_picture_165737.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:2453E92FE2F4C705C26D8A8F0AA93557C99A9158
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165738.jpgsave_picture_165738.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ PotPlayer 221215 (1.7.21859) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165739.jpgsave_picture_165739.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:0D26EEB4BC77F6586AD451D7ACF5F6FC2B44D612
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165740.jpgsave_picture_165740.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ COMSOL Multiphysics 5.6.0.280 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165741.jpgsave_picture_165741.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Antivirus Removal Tool 2022.12 (v.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165742.jpgsave_picture_165742.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ CSoft PlanTracer Техплан Pro 8.0.3016.1703.825 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165743.jpgsave_picture_165743.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:3BCF8392659D4F9DA0A34CAA9062095CC4C6F11B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165744.jpgsave_picture_165744.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:FDEBBECAEBA83A236C8F4E8FF5AE786258935CEF
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165745.jpgsave_picture_165745.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:B3EF30DD568DA8B5ACC649F36B52FEB3ADCD47F2
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165746.jpgsave_picture_165746.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:E60B1F0B8742289AC393DCF3CEEC40BFF791B54E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165747.jpgsave_picture_165747.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:36B04DC275041FB0B92F1B0DC02E18B894E9F127
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165748.jpgsave_picture_165748.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:22133C5260B718D0CFC0B1064AA1F4293EE97AF0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165749.jpgsave_picture_165749.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:92AD61FC4F93412018429424EF899CDBB74B7496
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165750.jpgsave_picture_165750.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:D5AAAAC100D3B875A3FC8CFCA65AE11681B46D6D
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165751.jpgsave_picture_165751.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:C20DEA39A3DC03F5D2D4B8AA42411947A7804AA0
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165752.jpgsave_picture_165752.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ TCM Security, Heath Adams | Open-Source Intelligence (OSINT) Fundamentals (2020)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165753.jpgsave_picture_165753.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:78513B3DE914768C8DF2A10BAD15419F4B3A825F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165754.jpgsave_picture_165754.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:95E1F4F2B9D725366A40597D3E7A774527309A8F
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165757.jpgsave_picture_165757.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:28F53A4D188AEDBE1E2D65D1E9BAC2B44CEB1FAF
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165758.jpgsave_picture_165758.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Legacy: Witch Island 4 Last Bastion (2022) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165759.jpgsave_picture_165759.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Onyx & Snowgoons - SnowMads (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Hardc
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165760.jpgsave_picture_165760.jpg" />
 </div>
 
 

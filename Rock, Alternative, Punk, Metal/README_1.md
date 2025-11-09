@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2705.jpgsave_picture_2705.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Vhäldemar - XX Anniversary - Live at BEC Barakaldo (2025) 2XCD, Japanese Editio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2735.jpgsave_picture_2735.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Prospective - The Weight Of What I've Become (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2738.jpgsave_picture_2738.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Dark Angel - Extinction Level Event (2025) [MP3|320 Kbps] <Thrash, Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2743.jpgsave_picture_2743.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Combichrist - RISE (2025) Single [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2745.jpgsave_picture_2745.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Nightwish - Over The Hills And Far Away (2001) Japanese Edition, Reissue, 2022, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2771.jpgsave_picture_2771.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Various - Bat Head Soup - Tribute To Ozzy (2000) Japanese Edition, 2023, TOCP, C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2772.jpgsave_picture_2772.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sean David Leland - Hear Me Roar (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2777.jpgsave_picture_2777.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Judas Kiss - The Mirror Crack'd (2025) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2912.jpgsave_picture_2912.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Exelerate - Hell For The Helpless (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2922.jpgsave_picture_2922.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Carter The Unstoppable Sex Machine - Worry Bomb (1995) Remaster, 2025, Chrysalis
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2923.jpgsave_picture_2923.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Silverstein - Pink Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2924.jpgsave_picture_2924.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Lethernal Utopia - Illusion Of Time (2025) [MP3|320 Kbps] <Black, Death, Doom, H
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2925.jpgsave_picture_2925.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Heavy Metal Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2977.jpgsave_picture_2977.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Stargazer - Stone Cold Creature (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3143.jpgsave_picture_3143.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ KDRR - Неживое. Спецпроекты (2025) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3144.jpgsave_picture_3144.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:D3649BA995DA23FC9337C21048001B195A06CA5E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3151.jpgsave_picture_3151.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:EAEE6750713D157EC88FBB0A142B15AD637EDA35
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3153.jpgsave_picture_3153.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:4C9A293382D2B9AE5F4245C18168A725334D518E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3158.jpgsave_picture_3158.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:C2EA9C57926AA9808E44D2E3166DEFBA7A10261F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3161.jpgsave_picture_3161.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Hearts on Fire - Signs & Wonders (2025) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3301.jpgsave_picture_3301.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ J.R. Richards - My Darkest Hour (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3303.jpgsave_picture_3303.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:F5AC103E79882A687A32FBD72648F58324EDDB45
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3307.jpgsave_picture_3307.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:EBBB352267EB4BAE6F0836049567295044D7FFE2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3317.jpgsave_picture_3317.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:8B19BBAEF07EEAFF9AB02CF25A961E5F947B5485
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3359.jpgsave_picture_3359.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ The Angels - Go For Broke (Live) (2025) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3441.jpgsave_picture_3441.jpg" />
 </div>
 
 

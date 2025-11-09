@@ -6,7 +6,7 @@ Madis - Live in Krakow (2023) [MP3|320 Kbps] <Electronic Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114521.jpgsave_picture_114521.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:DFF73D55A0DA1B231E4A83F9A9121BD7151D81D8
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114522.jpgsave_picture_114522.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Lachy Doley Group - Compiliation 2013-2019 (2024) [MP3|320 Kbps] <Hammond, B
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114523.jpgsave_picture_114523.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Topaz Video AI for Mac 4.2.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114524.jpgsave_picture_114524.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:28B3C4FF826CCDC73EEF49FBFF55C4A8AA2BECDA
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114525.jpgsave_picture_114525.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:1E2F1247437953DB8767773EC681C7EE3D2BC245
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114526.jpgsave_picture_114526.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:4FAD97CADF0637ADA8655A7B57EFEE3AF1AC8EFF
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114527.jpgsave_picture_114527.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:F35DCDBCCF6375FA9B794E7C0C480A07E058675D
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114528.jpgsave_picture_114528.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:22E382863BA5C5E3A0929450D1DE5238D7A92097
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114529.jpgsave_picture_114529.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:6AF4B4012AACE3E1CC64F0CE74648DF8DF722BB9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114530.jpgsave_picture_114530.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:5B57C9A7FB32158507A5CC50590AC819F03800D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114531.jpgsave_picture_114531.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Chris Norman - Junction 55 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114532.jpgsave_picture_114532.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:68D947233CDF1234E89E155A233423766DEE45C7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114533.jpgsave_picture_114533.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:9FEC2413FBBE61777293403EBF2691A458ABBCEA
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114534.jpgsave_picture_114534.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:E83512823CE8DDD00C9C90884A413A269452E8D8
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114535.jpgsave_picture_114535.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:F58B55FCFD2C5AB7E42F8601C3E3D3CCC36EB4F6
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114536.jpgsave_picture_114536.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:34DEFF62453DBA1509B47787F90322909062C0DF
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114537.jpgsave_picture_114537.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Paul Davies и др. | Артбук по играм Deus Ex / The Art of Deus Ex
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114538.jpgsave_picture_114538.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:6949243FCF7E43EBC92D8538E6CEB4FDA555471E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114539.jpgsave_picture_114539.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:01A89D2ADA78320815CB693B1CD88933CEB9B101
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114540.jpgsave_picture_114540.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Big Adventure: Trip to Europe 7 (2024) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114541.jpgsave_picture_114541.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:C1B4C261547FAD6579DD907C399412074DF6B73A
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114542.jpgsave_picture_114542.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:976902AFA0CC001F986E7B5F06D51D64A279B5F5
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114543.jpgsave_picture_114543.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ OfficeSuite Pro + PDF v14.3.51248 Extra Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114544.jpgsave_picture_114544.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Eidos Montreal | Артбук по игре Deus Ex: Mankind Divided / Deus Ex: 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114545.jpgsave_picture_114545.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Eidos Montreal | Артбук по игре Deus Ex: Human Revolution / Deus Ex:
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114546.jpgsave_picture_114546.jpg" />
 </div>
 
 

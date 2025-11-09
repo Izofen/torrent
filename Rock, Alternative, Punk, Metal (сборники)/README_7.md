@@ -6,7 +6,7 @@ Middle of the Road - 20 Greatest Hits (1971-73) Remaster SMRP, Russia, 2020, De-
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158090.jpgsave_picture_158090.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Рок Марафон: Выпуск 12 (2015) [MP3|192-320 кб/с] <Rock, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158213.jpgsave_picture_158213.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Rock Dawn: Selected Rockin' Hits (2015) [MP3|320 кб/с] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158471.jpgsave_picture_158471.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Pop Rock Hits! 100 Colours (2015) [MP3|320 кб/с] <Alternative, Indie, Me
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158612.jpgsave_picture_158612.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - The Gates Of The Future (2023) [MP3|320 Kbps] <Rock, Progressive>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159282.jpgsave_picture_159282.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Alannah Myles - Compilation (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161238.jpgsave_picture_161238.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Say Nothing: Indie Pop Rock Selection (2020) [MP3|320 Kbps] <Indie, Pop Roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162095.jpgsave_picture_162095.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Alice Cooper - Compilation (1969-2025) [MP3|320 Kbps] <Shock rock, Hard rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162437.jpgsave_picture_162437.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Rock Legends 70s от ALEXnROCK часть 2 (2021) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163323.jpgsave_picture_163323.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - The True Story (2020) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164170.jpgsave_picture_164170.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Not Dead Yet: Modern Rock Compilation (2019) [MP3|320 Kbps] <Rock, Alternat
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164482.jpgsave_picture_164482.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Blues Rock Collection (2021) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166572.jpgsave_picture_166572.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Acoustic Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167706.jpgsave_picture_167706.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Alternative Rebel Rock (CD.03) (2021) [MP3|320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167814.jpgsave_picture_167814.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Buste And Flow: Feery Compilation (2021) [MP3|320 Kbps] <Metal, Hard Rock, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167825.jpgsave_picture_167825.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Rebel Rock Box: Punk & Progressive Mix (CD.02) (2021) [MP3|320 Kbps] <Rock 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167888.jpgsave_picture_167888.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Raise Your Flag: Rock Worlds Fest (Vol.02) (2021) [MP3|320 Kbps] <Progressi
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167899.jpgsave_picture_167899.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Mastiff: Hard Rock Music (2019) [MP3|320 Kbps] <Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168209.jpgsave_picture_168209.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - The Message Of The Dark Angel (2023) [MP3|320 Kbps] <Death, Black, Heavy Me
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168966.jpgsave_picture_168966.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Doc Holliday - Compilation (2022) [MP3|320 Kbps] <Rock, Southern Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169096.jpgsave_picture_169096.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Guns N’ Roses - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169565.jpgsave_picture_169565.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Rock For All Times (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171672.jpgsave_picture_171672.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Workout, Beast Mode, Aggressive (2023) [MP3|320 Kbps] <Rock, Hard Rock, Oth
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172255.jpgsave_picture_172255.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - 900 Days (2020) [MP3|320 Kbps] <Alternative, Indie, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175035.jpgsave_picture_175035.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Rock part  12 Compilation (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175487.jpgsave_picture_175487.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Ana Popovic - Compilation (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176033.jpgsave_picture_176033.jpg" />
 </div>
 
 

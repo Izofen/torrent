@@ -6,7 +6,7 @@ Macrorit Partition Expert 8.6.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100876.jpgsave_picture_100876.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Telegram Desktop 6.1.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100903.jpgsave_picture_100903.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Floorp Browser 12.2.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100979.jpgsave_picture_100979.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Soft Organizer Pro 10.32 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100980.jpgsave_picture_100980.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ MAX Desktop 25.12.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100994.jpgsave_picture_100994.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Reg Organizer 9.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101003.jpgsave_picture_101003.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Reg Organizer 9.87 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101005.jpgsave_picture_101005.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Internet Download Manager 6.42 Build 49 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101007.jpgsave_picture_101007.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Internet Download Manager 6.42 Build 49 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101011.jpgsave_picture_101011.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Reg Organizer 9.87 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101014.jpgsave_picture_101014.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ DocuFreezer 7.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101065.jpgsave_picture_101065.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ SplitCam 10.8.60 (x64) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101083.jpgsave_picture_101083.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ FastStone Capture 11.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101596.jpgsave_picture_101596.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ FastCopy Pro 5.11.0 [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101599.jpgsave_picture_101599.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ MAX Desktop 25.12.2 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101607.jpgsave_picture_101607.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Internet Download Manager 6.42 Build 50 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101618.jpgsave_picture_101618.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Notepad++ 8.8.6 Final + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101624.jpgsave_picture_101624.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Internet Download Manager 6.42 Build 49 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101628.jpgsave_picture_101628.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ FastStone Capture 11.1 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101629.jpgsave_picture_101629.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 02.10.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101633.jpgsave_picture_101633.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Any Video Downloader Pro 9.6.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101638.jpgsave_picture_101638.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Internet Download Manager 6.42 Build 50 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101639.jpgsave_picture_101639.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ R-Wipe & Clean 20.0.2529 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102693.jpgsave_picture_102693.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Ant Download Manager Pro 2.14.1 Build 88711 (x32) / Build 88710 (x64) Portable b
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103783.jpgsave_picture_103783.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Tor Browser Bundle 14.5.8 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104365.jpgsave_picture_104365.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ SoftPerfect RAM Disk 25.10 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104386.jpgsave_picture_104386.jpg" />
 </div>
 
 

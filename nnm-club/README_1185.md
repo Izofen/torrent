@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31165.jpgsave_picture_31165.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:749726486C1CDCAA0DD8A910D56D21A92C24CFF3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31166.jpgsave_picture_31166.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4046D85FF3C4ACADB9102986618C225770A9985C
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31167.jpgsave_picture_31167.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ O&O DiskImage Professional 20.1 Build 330 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31168.jpgsave_picture_31168.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Record Super Chart 11.01.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31169.jpgsave_picture_31169.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:7E4A52552CFD8B33F73BC8B385C51402CCC31B74
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31170.jpgsave_picture_31170.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Calibre 7.24.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31171.jpgsave_picture_31171.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ AIMP 5.40.2653 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31172.jpgsave_picture_31172.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:76D2A9D6146C800B411EE0650B4E3F8C0DDFF001
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31173.jpgsave_picture_31173.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31174.jpgsave_picture_31174.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:7AD8374214052A5B98B1B2B6EE5C5CA0D24E5402
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31175.jpgsave_picture_31175.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:0CDAB08C3E0A535065B0C15EF1D7B3633FA69805
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31176.jpgsave_picture_31176.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:F2BAAB638FE70241C83AB335540C6C7252CD1C21
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31177.jpgsave_picture_31177.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:E69DEB41EF4F5A3B68C1E10A920402CE6215386A
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31178.jpgsave_picture_31178.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ AR Plan 3D: Линейка, Рулетка v4.8.18 Mod by srajawwal09 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31179.jpgsave_picture_31179.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ DJ Polkovnik - compilation 2 (2025) [MP3|320 Kbps] <Electronic, Instrumental, Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31180.jpgsave_picture_31180.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:F6068C8E38EB4E65B94B0C9B7CC685228C2884C9
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31181.jpgsave_picture_31181.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:AD7D51CE5AC980F67AF4BD7116A104D0290501F4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31182.jpgsave_picture_31182.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:09A809FBC0A2C4916EA6A7922C7CE9FA813F5D41
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31183.jpgsave_picture_31183.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31184.jpgsave_picture_31184.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:41875B29D3CA83B82CC06C6BFD60F057D5180CFC
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31185.jpgsave_picture_31185.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31186.jpgsave_picture_31186.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:4E79AB563C4CCF83F1EF5BE842BC3CED2E74E490
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31187.jpgsave_picture_31187.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:520DF9F1AC8E6AF9A2517F6D8512F8C367DAF3BC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31188.jpgsave_picture_31188.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ YT Downloader 9.11.18 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31189.jpgsave_picture_31189.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:B27B3042F3523FCB2880B757F2A604ECAD42C657
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31190.jpgsave_picture_31190.jpg" />
 </div>
 
 

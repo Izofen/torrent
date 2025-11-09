@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146875.jpgsave_picture_146875.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:38E8C3B51E3A1F45D50AEA518EA8DE5037E2471C
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146876.jpgsave_picture_146876.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D75054B758C295CD34F24F597B0623A85E527F58
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146877.jpgsave_picture_146877.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Wink VOD ATV 1.23.1 v2.3 Mod  [Ru] (обновляемая)
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146879.jpgsave_picture_146879.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Captain Ivory - No Vacancy (2016) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146880.jpgsave_picture_146880.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:307DA7B89087552B1DEB8E301FB79DAB589D8546
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146881.jpgsave_picture_146881.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:D13949728CE926EB82090F6B33B2D44D8A60B937
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146882.jpgsave_picture_146882.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:D13949728CE926EB82090F6B33B2D44D8A60B937
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146883.jpgsave_picture_146883.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:ACA6618C4C5DAD37844BBF6E49C1D26AE5756D02
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146884.jpgsave_picture_146884.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:D1A833707C86F69BCC8EB32D1A72E7528993187C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146885.jpgsave_picture_146885.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ BBC. Настоящий доктор Живаго / The Real Doctor Zhivago (201
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146886.jpgsave_picture_146886.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:B34F732DC4F385EC2C45CF9B1F50035E4F53B7AB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146887.jpgsave_picture_146887.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Internet Download Manager 6.36 Build 1 RePack by KpoJIuK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146888.jpgsave_picture_146888.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:F6517BC654283CD36F82D6BE36388AD49C8ACC2C
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146889.jpgsave_picture_146889.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Fallout: New Vegas Ultimate Edition [Ru] [WineSkin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146890.jpgsave_picture_146890.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Fallout: New Vegas Ultimate Edition [Ru] [WineSkin]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146891.jpgsave_picture_146891.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:FB35ACCC41911F29836EBAF19F123E0A09839063
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146892.jpgsave_picture_146892.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:051485DC5E485285109B6679846FF42515A20D13
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146893.jpgsave_picture_146893.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ High Score Girl II | Девчонка не промах [ТВ-2] [2019, TV, 9] H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146894.jpgsave_picture_146894.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:ED272E6B13D032D114B5F7CD24CD9324F7970CC1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146895.jpgsave_picture_146895.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Nikolai Baskov - Christmas Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146896.jpgsave_picture_146896.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:7EC91F61D47127A3060545C0625D1D210DF820BC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146897.jpgsave_picture_146897.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ NG: Майкл Пэйлин в Северной Корее / North Korea: Michae
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146899.jpgsave_picture_146899.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:9AA9391324F1E352B4EEF2B98AC2B5667EE0DAEF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146900.jpgsave_picture_146900.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье "Ч�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146901.jpgsave_picture_146901.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - $uper DISCOteka 70s/80s (2015) 5CD [MP3|320 кб/с] <Disco, Pop, Dance, Ba
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146902.jpgsave_picture_146902.jpg" />
 </div>
 
 

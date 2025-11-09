@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246989.jpgsave_picture_246989.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246990.jpgsave_picture_246990.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:880222474DE57AD3E208F0E557EBCF4D33D5C6EA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246991.jpgsave_picture_246991.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9087B1EC4148AFFC4A36BB36BBAD48F45F3FC453
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246992.jpgsave_picture_246992.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9087B1EC4148AFFC4A36BB36BBAD48F45F3FC453
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246993.jpgsave_picture_246993.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A00A2077E0701ADC34DF7038F1DD7C4F1AD1FB22
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246994.jpgsave_picture_246994.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:ADD58614243E1A19BAB54EF95FB78E87CCD27D20
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246995.jpgsave_picture_246995.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Astra Linux Special Edition 1.7.4 UU1 [amd64] 3xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246996.jpgsave_picture_246996.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:58A9717595F704BE6C6AD3AA59E5D83B3D9084F4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246997.jpgsave_picture_246997.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:FCEE84C31807469B4B9028402D2E2B14558557EA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246998.jpgsave_picture_246998.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:76C0CA8F8466C23A67F9B238D63A790011F6E164
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246999.jpgsave_picture_246999.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Vinland Saga Season 2 | Сага о Винланде 2 [2023, TV, 24 из 24] WE
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247000.jpgsave_picture_247000.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:2EF5832D4F7DC0FD65C09959B7CDF4B33F2496BA
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247001.jpgsave_picture_247001.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Industry Giant 2 / Промышленный гигант 2 (2002) [Ru/Multi] (2.
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247002.jpgsave_picture_247002.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:A5AD6AF61E6F891FADEB72599820BB730510D9B8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247003.jpgsave_picture_247003.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:B155ED509190AAA4683126CFE1908F847465D34F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247004.jpgsave_picture_247004.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5404.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247005.jpgsave_picture_247005.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:11FBA7676E691CB366566AE2A3D27ED2623FC5C1
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247006.jpgsave_picture_247006.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Warhammer 40,000: Dawn of War II (2010-2011) [Ru/En] (2.6.0.62/3.19.1.49/dlc) Li
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247007.jpgsave_picture_247007.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Windows 11 22H2 (22621.1992) x64 (3in1) by Brux [Ru/En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247008.jpgsave_picture_247008.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:E86B0155C00E092447A6E3D8F2FE9783A4CBE36B
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247009.jpgsave_picture_247009.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:82FAF8881F761F5E738260E92385C7AB2613FFE2
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247010.jpgsave_picture_247010.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ FontExpert 2023 19.0 Release 1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247011.jpgsave_picture_247011.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Windows 10 22H2 x64 Rus by OneSmiLe [19045.3208]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247012.jpgsave_picture_247012.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:5FD5CAB6501EDA7D04D0BC3E39D8933F007C3320
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247013.jpgsave_picture_247013.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:A74A800AF681FABD3512BB2E0407AA71D3856F0F
 >>Новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247014.jpgsave_picture_247014.jpg" />
 </div>
 
 

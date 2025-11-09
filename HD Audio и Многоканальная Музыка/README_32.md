@@ -6,7 +6,7 @@ Opeth - The Last Will And Testament (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36557.jpgsave_picture_36557.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Xandria - Universal Tales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphoni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36560.jpgsave_picture_36560.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Widespread Panic - Hailbound Queen (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36566.jpgsave_picture_36566.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Emmy Meli - Hello Stranger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36569.jpgsave_picture_36569.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Alexander Aruca - October Wind (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36570.jpgsave_picture_36570.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ As the Sun Falls - Studio Albums (4 releases) (2020-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36573.jpgsave_picture_36573.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ludivine issambourg - Above the Laws (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36575.jpgsave_picture_36575.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Straviado - Weird (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36576.jpgsave_picture_36576.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Marilyn Manson - One Assassination Under God - Chapter 1 (2024) [FLAC 24/96|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36581.jpgsave_picture_36581.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Jazz Romantica, Sexual Music Collection - Jazz Room of Seduction (2024) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36589.jpgsave_picture_36589.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Dan T. and the Crew - LEGACY (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36657.jpgsave_picture_36657.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sandy Hall - Full Circle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36659.jpgsave_picture_36659.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Luke Watt - Luke Watt (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36683.jpgsave_picture_36683.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Golden Metal Ballads №1+№2 (1994) Compilation, Unofficial Release [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36723.jpgsave_picture_36723.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Fritz Kalkbrenner - Third Place (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Te
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36764.jpgsave_picture_36764.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Garage Bluesband - Seven Shades of the Blues (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36767.jpgsave_picture_36767.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Wheeler Walker Jr - Ram (Deluxe Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36865.jpgsave_picture_36865.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Steve Vai, Generation Axe, Brian May, Zakk Wylde, Nuno Bettencourt, Yngwie Malms
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36977.jpgsave_picture_36977.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Poppy - Negative Spaces (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37172.jpgsave_picture_37172.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Sodom - Tapping The Vein (1992) Super Deluxe Edition, 2024, SPV [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37183.jpgsave_picture_37183.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ The Guess Who - American Woman (1970) Remastered, 2024, SMCMG [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37186.jpgsave_picture_37186.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Rockets - The Final Frontier (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Space
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37202.jpgsave_picture_37202.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Gwen Stefani - Bouquet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37205.jpgsave_picture_37205.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Linkin Park - From Zero (Expanded Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37213.jpgsave_picture_37213.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Godsmack - IV (2006) Reissue, 2024, Universal Records [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37231.jpgsave_picture_37231.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Grey Attack - Back to Greysland (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37269.jpgsave_picture_37269.jpg" />
 </div>
 
 

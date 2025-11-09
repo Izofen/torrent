@@ -6,7 +6,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116133.jpgsave_picture_116133.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Moon+ Reader Pro v9.1 build 901001 Mod by Balatan + Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116134.jpgsave_picture_116134.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ RC Revolution (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116135.jpgsave_picture_116135.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:D7B5AFE109B8F6FA907273242259B889CFDF5312
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116136.jpgsave_picture_116136.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:C754B43913862A22F393D1AA9D8D683AF577A09A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116137.jpgsave_picture_116137.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:5F60920695AEBC80CFFAD5531F9C2BF6C4515112
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116138.jpgsave_picture_116138.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:8A495DEF25FD0FBF4B8DB540FFC513654AC45E39
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116139.jpgsave_picture_116139.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:AF44012FE62FAAC9EF754307FBDCFF11DC8490A9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116140.jpgsave_picture_116140.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:110BA1F52528B8221D5533B709B0A7BFDE3707DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116141.jpgsave_picture_116141.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Malwarebytes Premium 5.0.17.99 RePack by xetrin [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116142.jpgsave_picture_116142.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:0B9A18B29EA7B16C8E849877F9EE3F3A24AA24FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116143.jpgsave_picture_116143.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:D83C18150D8AEBAE01A67533A2AC10E001DB5182
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116144.jpgsave_picture_116144.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:83A1EA907707240A7F26B4424EA3F17107C2393D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116145.jpgsave_picture_116145.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:FCFB6EDD164DEE1E2A9CA653A0253433650C3597
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116146.jpgsave_picture_116146.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:B325F5C8551DAF3D23E77508ED569DE7B6CEB84F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116147.jpgsave_picture_116147.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:26A48183D04BC58BF9089ED9E9A1E3D97B99107F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116148.jpgsave_picture_116148.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:047BCAEF14058FEEDBAC2596949C9A47A7F622A7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116149.jpgsave_picture_116149.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:690B9B292774E71A9DE6A891ABA7DC893609C84F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116150.jpgsave_picture_116150.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Stepik, Аватар пользователя Руслан Клуб дедов-�
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116151.jpgsave_picture_116151.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Wallpaper Engine 2.4.70 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116152.jpgsave_picture_116152.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:D5AA1AF480E1E2185442A93EB9BDE873D1415A74
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116153.jpgsave_picture_116153.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:6B40F3AEDE53B9E0E75141BD75B24099A9F0A943
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116154.jpgsave_picture_116154.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:77C4D7A797AC45A226D4E177A269BEC03E3DC547
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116155.jpgsave_picture_116155.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0.20230706_1126/dlc) Repack Dece
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116156.jpgsave_picture_116156.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Marian McPartland - In Concert (1951, 1953) 1993, Savoy Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116157.jpgsave_picture_116157.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:9232F39D65DBDB50537E404EFCB8568B6918BC3C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116158.jpgsave_picture_116158.jpg" />
 </div>
 
 

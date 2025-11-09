@@ -6,7 +6,7 @@ VA - Serenity Sexy Lounge & Chill Out Pearls Vol 1 (2015) [MP3|320 кб/с] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156943.jpgsave_picture_156943.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:10AE3A2AAB4B452325A5FA1150A00DB5614EE719
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156944.jpgsave_picture_156944.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:6C9E757C71A403E6045FBFAA75B6C04B08BB846A
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156945.jpgsave_picture_156945.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:81E5F77BA86FDAB16BA0EC6F46581FACC199C2C7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156947.jpgsave_picture_156947.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Dynamic Chord | Динамический аккорд [2017, TV, 12] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156948.jpgsave_picture_156948.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:4147EF4C07399EB07FA7D87DD3FD3D157B98BE65
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156950.jpgsave_picture_156950.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Casiopea - Dramatic (1993) Village[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156951.jpgsave_picture_156951.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:2E8A93C15412916CED0DC2C829BB8C366699F143
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156953.jpgsave_picture_156953.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Dharmendra Giri | Learn and Master IN Nuke X VFX (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156954.jpgsave_picture_156954.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:42F355922CECDD996CFA2ED753B2E14C0925E8F7
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156955.jpgsave_picture_156955.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:B1F103A5A89AB770F10825D6CEC69E83096928F3
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156956.jpgsave_picture_156956.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:6C250F4D1940E695CA5FB74958399BCD01C3A666
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156957.jpgsave_picture_156957.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Redemption Cemetery 11: One Foot In The Grave / Кладбище искупле�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156958.jpgsave_picture_156958.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Glary Utilities Pro 5.157.0.183 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156960.jpgsave_picture_156960.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:3A26E0E9CB3CB14A983ED3BAAC263B84CDFD8700
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156961.jpgsave_picture_156961.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - Horizon In Blue (Selected Chill Out & Lounge), Vol. 1 - 4 (2023) [MP3|320 K
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156962.jpgsave_picture_156962.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:CD879016E368EEF9A333C4A607A5D6DA03FC197C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156963.jpgsave_picture_156963.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Pastebot 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156964.jpgsave_picture_156964.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Chris de Burgh - Beautiful Dreams (1995) [FLAC|Lossless|tracks + .cue] <Acoustic
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156965.jpgsave_picture_156965.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:CBC2F373C277BBFB651BBA7627E1E73AF20F3B7B
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156966.jpgsave_picture_156966.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Hank Crawford & Jimmy McGriff - Crunch Time (1998), Fantasy[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156967.jpgsave_picture_156967.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:763D0F6061F1A1B6B315D92B6403036133164338
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156968.jpgsave_picture_156968.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:B74698604398D13F02FB182174CA1E98E27ED3F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156969.jpgsave_picture_156969.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ WinX DVD Ripper Platinum 8.9.0.208 Build 13.12.2018 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156970.jpgsave_picture_156970.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:BAEA46486CC5DF03538E573187B8CB4DBCB506F5
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156971.jpgsave_picture_156971.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:8ED7E4722D5F02315C4E2E7235127FADFB737E8C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156972.jpgsave_picture_156972.jpg" />
 </div>
 
 

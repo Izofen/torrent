@@ -6,7 +6,7 @@ From Ashes to New - Blackout (2023) Deluxe, 2024, Better Noise Music [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108283.jpgsave_picture_108283.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Quantic - Dancing While Falling (2023) Deluxe Edition, 2024, [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108292.jpgsave_picture_108292.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tanerélle (Tanerelle) - Electric Honey (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108293.jpgsave_picture_108293.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nightwish - Perfume Of The Timeless (2024) Single [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108306.jpgsave_picture_108306.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Issa - Another World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Rock, T
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108313.jpgsave_picture_108313.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Darko Us - Starfire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <progressive me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108324.jpgsave_picture_108324.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Half Heard Voices - Moon Burial (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108326.jpgsave_picture_108326.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Cactus - Temple Of Blues: Influences And Friends (2024) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108335.jpgsave_picture_108335.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ DarWin - Five Steps On The Sun (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108342.jpgsave_picture_108342.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Bubblegum Is Back (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108345.jpgsave_picture_108345.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Chorus and Orchestra of Teatro Communale, Firenze, cond. E. Ghili - Bizet – Ca
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108346.jpgsave_picture_108346.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Kreator - Terrible Certainty (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108380.jpgsave_picture_108380.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Channel Zero - Studio Albums (8 releases) (1992-2017) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108392.jpgsave_picture_108392.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Young Acid - Murder At Maple Mountain (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108403.jpgsave_picture_108403.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Barock Project - Time Voyager (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108415.jpgsave_picture_108415.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Deicide - Banished by Sin (2024) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108417.jpgsave_picture_108417.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ The Acid Machine - 3 Albums (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Brazil
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108418.jpgsave_picture_108418.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Suffering Souls - An Iconic Taste Of Demise (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108421.jpgsave_picture_108421.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Dark Sarah - Studio Albums (5 releases) (2015-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108461.jpgsave_picture_108461.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Emika - Haze (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Garage, Futu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108463.jpgsave_picture_108463.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Metal Massacre 10 (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Deat
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108467.jpgsave_picture_108467.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Metal Massacre 14 (2016)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108468.jpgsave_picture_108468.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Potatohead People - Eat Your Heart Out (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108474.jpgsave_picture_108474.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Priest - Dark Pulse (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <EBM>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108476.jpgsave_picture_108476.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Asena Akan - Asık (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108477.jpgsave_picture_108477.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ magnet:?xt=urn:btih:34488097EE9D0522E31F65803100A33C5B3BEE58
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108478.jpgsave_picture_108478.jpg" />
 </div>
 
 

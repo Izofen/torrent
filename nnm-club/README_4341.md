@@ -6,7 +6,7 @@ Third Party & Kryder - Live @ FUTURE x RELEASE, Ministry Of Sound London (2023-1
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134955.jpgsave_picture_134955.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Just jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134957.jpgsave_picture_134957.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:BB003CA7E3B9CE6CCAA4190B8E3F3F95DEE52E4C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134959.jpgsave_picture_134959.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Hedons - Tomb Of Stars (2012) [MP3|320 кб/с]<Stoner Rock / Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134960.jpgsave_picture_134960.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ VA - Uplifting Only Top 15: November 2023 (Extended Mixes) (2023) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134961.jpgsave_picture_134961.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Sexy Girls Pack Wallpapers (23.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134962.jpgsave_picture_134962.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - Armin van Buuren - A State Of Trance 1148 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134963.jpgsave_picture_134963.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Best HD Wallpapers Pack (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134964.jpgsave_picture_134964.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Block of Flats - No Hope For The Hopeless (2023) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134965.jpgsave_picture_134965.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ nuTXT 3.30 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134966.jpgsave_picture_134966.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:A57D1CD2CDBCBDAB230BD626E560B0AFAD3BE8FD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134967.jpgsave_picture_134967.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Soft Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134968.jpgsave_picture_134968.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Deaf Dealer - Keeper Of the Flame (1986) Reissue, 2023, Cult Metal Classics [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134969.jpgsave_picture_134969.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ King Buffalo - Live At Burning Man (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134970.jpgsave_picture_134970.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Ecocide - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134972.jpgsave_picture_134972.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Gilrs Wallpaper (24.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134973.jpgsave_picture_134973.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Bookends 14.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134974.jpgsave_picture_134974.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Amadeus Pro 2.8.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134976.jpgsave_picture_134976.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ HQ Wallpapers Perfect Women (22.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134977.jpgsave_picture_134977.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Sexy Girls Wallpapers (23.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134979.jpgsave_picture_134979.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Liberation Melody (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134981.jpgsave_picture_134981.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Sexy Girls Pack Wallpapers (24.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134982.jpgsave_picture_134982.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:9B1E53B64BB980F0EF8E70BF16BECF448BBD5099
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134983.jpgsave_picture_134983.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Gilrs Wallpaper Collection (24.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134984.jpgsave_picture_134984.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:E0A27D8B0F1ACCABCA65BB85B3EDA7051A1997A6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134985.jpgsave_picture_134985.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Ultra.Trance: 5 (2005) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134986.jpgsave_picture_134986.jpg" />
 </div>
 
 

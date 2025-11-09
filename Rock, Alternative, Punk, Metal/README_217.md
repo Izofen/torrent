@@ -6,7 +6,7 @@ History Of Life - It's Time (2020) [MP3|320 Kbps] <Progressive Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137626.jpgsave_picture_137626.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ WastedSky - 18 20 (2020) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137633.jpgsave_picture_137633.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:207EF04AA421267E6439A1CA4641B5E4ED263547
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137691.jpgsave_picture_137691.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:BD11F93E9DDA5687A3DFBD4DDE92F342C991A3FA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137702.jpgsave_picture_137702.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Devil’s Train - 3 Studio Albums (2012-2022) 3xCD [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137713.jpgsave_picture_137713.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Roy Orbison & The Royal Philharmonic Orchestra - Unchained Melodies (2018) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137752.jpgsave_picture_137752.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Minus One - Red Black White (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137765.jpgsave_picture_137765.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ magnet:?xt=urn:btih:E81E8A5F81B0FEEEB3A69DCBAC14EE99FDFF2503
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137773.jpgsave_picture_137773.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Rockets - Time Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Space Rock, Synth-p
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137798.jpgsave_picture_137798.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Alta Reign - Upon the Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137804.jpgsave_picture_137804.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Scorpions - Return To Forever (2015) (Japanese Premium Edition) [MP3|320 кб/с
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137832.jpgsave_picture_137832.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Paul Carrack - These Days (2018) Mike & The Mechanics [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137877.jpgsave_picture_137877.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Camel - Discography: 37 аlbums, 70 CD (1973-2019) [FLAC|Lossless|image + .cue |
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137887.jpgsave_picture_137887.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Toro y Moi - Outer Peace (2019) [FLAC|Lossless|WEB-DL|tracks + .cue] <Indie Pop,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137892.jpgsave_picture_137892.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:A9EC386872AB93F2C6AE705806E66CAD453AA143
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137894.jpgsave_picture_137894.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - The Ultimate Led Zeppelin Tribute - 2CD (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137931.jpgsave_picture_137931.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Drive by Wire - Spellbound (2018) [FLAC|Lossless|tracks + .cue] <Psychedelic, St
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137941.jpgsave_picture_137941.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Devil's Hand - Devil's Hand (Ft. Slamer - Freeman) (2018) [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137983.jpgsave_picture_137983.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ William Shatner - Shatner Claus (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137992.jpgsave_picture_137992.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:E5E5EA8F4F5D11944584D131D6FF3ADD87315400
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138031.jpgsave_picture_138031.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Rakoth - Superstatic Equilibrium (1998) 2xCD, Reissue, Remastered, 2020, OldWise
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138065.jpgsave_picture_138065.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Anthrax - For All Kings (2016) Deluxe Edition [MP3|320 кб/с] <Heavy Metal, Sp
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138245.jpgsave_picture_138245.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Neptunian Maximalism - 2 Albums (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Avant
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138281.jpgsave_picture_138281.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Health - UNLOVED (2023) EP [FLAC|Lossless|tracks] <Noise Rock, Electronic Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138304.jpgsave_picture_138304.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ High Spirits - Safe on the Other Side (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138315.jpgsave_picture_138315.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Kingdom Come - The Best Of Kingdom Come (2003) 20th Century Masters The Millenni
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138319.jpgsave_picture_138319.jpg" />
 </div>
 
 

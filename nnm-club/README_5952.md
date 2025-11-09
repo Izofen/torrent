@@ -6,7 +6,7 @@ English-Russian Dictionary v3.4.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187412.jpgsave_picture_187412.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ CpuFrequenz 4.24 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187413.jpgsave_picture_187413.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:308EEF0606DFAD8E70870CE1E816152ADDABFCD2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187414.jpgsave_picture_187414.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:796F730A792EB882793FFF02E54C8CE30F1E358F
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187415.jpgsave_picture_187415.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A7A4A094126ADD6856288ABF4ED1B0E15FB586DE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187416.jpgsave_picture_187416.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Stepok Recomposit Pro 8.0.0.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187417.jpgsave_picture_187417.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Ис�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187418.jpgsave_picture_187418.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Kerala Dust - Compilation (2023) [MP3|320 Kbps] <Experimental, Blues House, Deep
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187419.jpgsave_picture_187419.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Universal USB Installer 2.0.1.9 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187420.jpgsave_picture_187420.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Topaz Video AI 3.4.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187421.jpgsave_picture_187421.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:26541115B61080860B60311939F3A4DE35245518
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187422.jpgsave_picture_187422.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:82CAC814F5121873F23B50A8817E85399921AE91
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187423.jpgsave_picture_187423.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Insofta Cover Commander 7.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187424.jpgsave_picture_187424.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:2AFC1034F5E882193B8C9388AECD01A94D21E6B7
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187425.jpgsave_picture_187425.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Viber 18.9.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187426.jpgsave_picture_187426.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ NetLimiter 5.3.3.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187427.jpgsave_picture_187427.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:EBE77CFCA2B24F5A0CF4DA31F5291573357CFDB7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187428.jpgsave_picture_187428.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ NVCleanstall 1.14.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187429.jpgsave_picture_187429.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:78CADFA6E65F459C129D382604011E6BAAF4008C
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187430.jpgsave_picture_187430.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:04D6AA92048591BBDFE54DEF1F5CA76A45BBCEC8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187431.jpgsave_picture_187431.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:BBE37C3F4443CB77A92B6F9FF3AE29C0F6DA7A36
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187432.jpgsave_picture_187432.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Universal Copy v6.3.5 Мод by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187433.jpgsave_picture_187433.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:A551C1F644AECC9E8AEE39C007FB19ED37AC3435
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187434.jpgsave_picture_187434.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Glarysoft Malware Hunter PRO 1.172.0.790 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187435.jpgsave_picture_187435.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:5AB343044FF5B5146E077DC56F3F6956CD183358
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187436.jpgsave_picture_187436.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ The Who - Who’s Next : Life House (Super Deluxe) (2023) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187437.jpgsave_picture_187437.jpg" />
 </div>
 
 

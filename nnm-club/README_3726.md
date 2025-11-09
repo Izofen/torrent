@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117251.jpgsave_picture_117251.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:79EBB3FE1DFF8C0B5C54DFA7D3778DF8E1E0169C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117252.jpgsave_picture_117252.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Topaz Video AI 4.1.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117253.jpgsave_picture_117253.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Magic City Detective 4: Wrath of the Ocean / Волшебный город 4: Г
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117254.jpgsave_picture_117254.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:BB1AC04CB919E49751CBF90299FB61F956ED53EA
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117255.jpgsave_picture_117255.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:B61A8BCA96BF055C15EDA1D7DA1399631962E116
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117256.jpgsave_picture_117256.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:49EFF7F1A37B4F3AA344F2F4E5FBE86FD19E2BE6
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117257.jpgsave_picture_117257.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:B368AF3351778D9A01A8312587D0FF812D44F06F
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117258.jpgsave_picture_117258.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Wireshark 4.2.3 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117259.jpgsave_picture_117259.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - 100 Hits 80s Pop (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117260.jpgsave_picture_117260.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:B77608A39F64296B8CC8F59530820C41D154D187
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117261.jpgsave_picture_117261.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:B77608A39F64296B8CC8F59530820C41D154D187
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117262.jpgsave_picture_117262.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Topaz Gigapixel AI 7.0.2 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117263.jpgsave_picture_117263.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:79C85DEBB236570830AC322052CBF6ADC585481B
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117264.jpgsave_picture_117264.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Music News vol.342 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117265.jpgsave_picture_117265.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Tablacus Explorer 24.2.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117266.jpgsave_picture_117266.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.5 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117267.jpgsave_picture_117267.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:E05E8C9974078A4C3D97AE72723ABC847424B75A
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117268.jpgsave_picture_117268.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:BDDB809A07A6362C38B99302B2EDDAEE7777D6D8
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117269.jpgsave_picture_117269.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:188344397EE4FA129A9DD282026E9347E67E6568
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117270.jpgsave_picture_117270.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ SplitCam 10.7.32 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117271.jpgsave_picture_117271.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ CrystalDiskInfo 9.2.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117272.jpgsave_picture_117272.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:5724C1A2FB0CE4C595FAE79BA1BF005016E83550
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117273.jpgsave_picture_117273.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Speedtest by Ookla 1.13.194.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117274.jpgsave_picture_117274.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:6C9C439E899BE0E4350DDA22D4B810A62CBC0DF8
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117275.jpgsave_picture_117275.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:91CB75DB28C6288DC9A4D5CC91F445ACFCF381C3
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117276.jpgsave_picture_117276.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229614.jpgsave_picture_229614.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Amadeus Pro 2.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229615.jpgsave_picture_229615.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:1071E89CC0EF6D716BDD0B7E1B76A1728228B25D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229616.jpgsave_picture_229616.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:D25E88E0974514C15A0F5E3EF28150014436F1E1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229618.jpgsave_picture_229618.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:406FC71EF287A9E5AA0F500ED3D1CDE68C5E86A9
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229620.jpgsave_picture_229620.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Repack DjDI [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229622.jpgsave_picture_229622.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ GPU-Z 0.8.6 RePack by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229623.jpgsave_picture_229623.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:B7B494AF09CA72FA5949E6356DF6F60222CCB11F
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229625.jpgsave_picture_229625.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:4F98444DD8974373AF197E9D4EF8B6A6B4359F27
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229626.jpgsave_picture_229626.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:701B0B19AEE73E0013677F4209F7CA590F5B395B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229627.jpgsave_picture_229627.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Molly Hatchet - Southern Rock Masters (2008) [FLAC|Lossless|tracks + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229628.jpgsave_picture_229628.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:ABB1A43357952469E2A75437BF8CAB70C59F6A87
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229630.jpgsave_picture_229630.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:C07E2C80900027366F20BCEE9E57E89C5E200E48
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229631.jpgsave_picture_229631.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:053404EEEB857A347B153BD8CD32FA41FB57CFEC
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229632.jpgsave_picture_229632.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:D926A258AAEAD8C0CFE9E0A0A974702921DADA27
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229633.jpgsave_picture_229633.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Total Commander 10.52 RC3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229634.jpgsave_picture_229634.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:DB6EE1ABE90B84A291F7C7E213321D0B18A5396C
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229635.jpgsave_picture_229635.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:4B43578C874DB18B58FDA69DD771E13754E44E88
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229639.jpgsave_picture_229639.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ The Foundry MARI 3.0 v1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229640.jpgsave_picture_229640.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229641.jpgsave_picture_229641.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Maxthon Browser 6.2.0.2000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229642.jpgsave_picture_229642.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:07B6295C68DCF6D3615F7BF74D074346AFD6DFB3
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229643.jpgsave_picture_229643.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:35897E356C01FCF07BDE24A32B9E2C482D7BD0A3
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229645.jpgsave_picture_229645.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:C0063FA807AEAA1BCE0E0905C7A1D4A48C03E584
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229647.jpgsave_picture_229647.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:3D4F20256358BE41B840619B285339FC196470B1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229648.jpgsave_picture_229648.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:785E9C8D82F86D2A466CA4DB1A807C49FF05F01F
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229649.jpgsave_picture_229649.jpg" />
 </div>
 
 

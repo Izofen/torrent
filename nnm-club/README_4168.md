@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128979.jpgsave_picture_128979.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C9ED9CD7B46BBB31DBE345A5780C70F33CF2F4BC
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128980.jpgsave_picture_128980.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B98C3DC70D98CF64CFD67B2232F5E57387997F20
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128981.jpgsave_picture_128981.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ VA - Fresh Dance 2025 - The Future Hits (2025) [MP3|320 Kbps] <Dance, Club, Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128982.jpgsave_picture_128982.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Class101, Inhyuk Lee | Advancing to Intermediate Illustration - Steps after Lear
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128983.jpgsave_picture_128983.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:22E81E82ECE817642CE852879C0CC4CC7869EF05
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128984.jpgsave_picture_128984.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:9A31AD57AF7F904E10BB2DE57CE05F52D3681C68
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128985.jpgsave_picture_128985.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:CF0D1052D768378D8EC429B687C92ACBC86B5B1F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128986.jpgsave_picture_128986.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:78C61DB86F17E8863C2182EFC091275FFA2FEA67
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128987.jpgsave_picture_128987.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Music News For Forum vol.141 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128988.jpgsave_picture_128988.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:10CF04F4E788511B7C5F6A7E0BB4EC2194F7F40B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128989.jpgsave_picture_128989.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:E6E9C397B1E689A8302C27A2ED988634890D9074
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128990.jpgsave_picture_128990.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:45FAC31FEC7D7B87ABD71DA1312463A2C93F345C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128991.jpgsave_picture_128991.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Space Engineers / Космические инженеры (2019) [Ru/En] (1.207.
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128992.jpgsave_picture_128992.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:EECB8AF7406302F8743D0969698BCE24D840E51A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128993.jpgsave_picture_128993.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:8B8FDC7C826E3EF8412C46636297B36BAE646953
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128994.jpgsave_picture_128994.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Wise Windows Key Finder Portable 1.0.2.13 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128995.jpgsave_picture_128995.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Kimagure Temptation (2021) [Multi] (1.0.5.0/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128997.jpgsave_picture_128997.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:12E0108B3C3C4D3436F2A4E7F67C95A1E9E521EA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128998.jpgsave_picture_128998.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:3E283E98E9A2577DC80D1B64E2600F211F536325
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128999.jpgsave_picture_128999.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:FCC39A3A767A1C7D9C33876D9D8759F225736E53
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129000.jpgsave_picture_129000.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Prison Tycoon: Under New Management (2021) [Multi] (1.0.2.2/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129002.jpgsave_picture_129002.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:A1A7DB2D51658DE5B38643C248064C2EE04932C8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129003.jpgsave_picture_129003.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:7C53A99C4B96DAAB9DDAEEF950BAA97E7104431A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129005.jpgsave_picture_129005.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:5303AD377A34BE8EFB57446872BA74F0110D74DE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129006.jpgsave_picture_129006.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:343890A33150AA5E37920FD4A151EDC12E7E7B2B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129008.jpgsave_picture_129008.jpg" />
 </div>
 
 

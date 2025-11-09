@@ -6,7 +6,7 @@ Aerosmith - Greatest Hits (2023) 3CD Deluxe Edition [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205842.jpgsave_picture_205842.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ IObit Smart Defrag Pro 9.0.0.311 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205843.jpgsave_picture_205843.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Silent Circle - Best Of Silent Circle Volume II (1993) [FLAC|Lossless|tracks + .
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205844.jpgsave_picture_205844.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:28E735F6C30F07D802847CAFAFA927F95D1AEF0D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205845.jpgsave_picture_205845.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ App Builder 2023.44 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205848.jpgsave_picture_205848.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Advanced Renamer 3.89.2 Final + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205849.jpgsave_picture_205849.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.34
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205852.jpgsave_picture_205852.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:7BFFFC25194ECCC01FD6E543CF6BF7AFBDAEB3DA
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205853.jpgsave_picture_205853.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - German Top 100 Single Charts 18.08.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205857.jpgsave_picture_205857.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Within Temptation - Bleed Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205858.jpgsave_picture_205858.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:92D1EDECF5B95A272C279E1E05E7F00777BCC44B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205860.jpgsave_picture_205860.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:B61323A4582646CF1BDA231BBD5C7B4652EBAB5E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205861.jpgsave_picture_205861.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:5C1808CD709DC0EAE5F7DECFFB9291E90692AE8D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205864.jpgsave_picture_205864.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ RS Explorer / RS Проводник 2.0.3 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205865.jpgsave_picture_205865.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ V.A. - Abbey Road Reimagined - A Tribute To The Beatles (2023) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205868.jpgsave_picture_205868.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:8072B170B231FD1246A2975F9D6EE983FCE5077F
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205871.jpgsave_picture_205871.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205873.jpgsave_picture_205873.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:E07993F19B94CFF8858D95C599795B4CE6F72E90
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205874.jpgsave_picture_205874.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:CD3F0E957EAFCBC9DDC9212E770C7A80E7595663
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205876.jpgsave_picture_205876.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Ungoogled Chromium 116.0.5845.82-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205879.jpgsave_picture_205879.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ DesktopNoteOK 3.88 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205882.jpgsave_picture_205882.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Sigil 2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205883.jpgsave_picture_205883.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:13120FD6130B2AE2892C262DDFE69CD345B79902
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205886.jpgsave_picture_205886.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:8596A3A10EC81C731FDD680C0F916C3CC7B40B0B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205887.jpgsave_picture_205887.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Ventusky: Прогноз погоды v27.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205889.jpgsave_picture_205889.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Root Explorer / Root Проводник 4.12 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205891.jpgsave_picture_205891.jpg" />
 </div>
 
 

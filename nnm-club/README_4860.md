@@ -6,7 +6,7 @@ Shaun White Skateboarding / Shaun White Скейтборд (2010) [Ru/En] (1.0) 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152056.jpgsave_picture_152056.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Spiral Trax Records presents: Compilations Collection - 40 Releases (1998-2021) 
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152058.jpgsave_picture_152058.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ uTorrent Pro 3.6.0 Build 46922 Stable Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152060.jpgsave_picture_152060.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Net Worth Pro 2 v3.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152061.jpgsave_picture_152061.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:176310E5F28E4D8520DC4C404BA74615F5EC826C
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152062.jpgsave_picture_152062.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:42FD4C6845C989A9A07C853DD44951CEE5D47356
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152064.jpgsave_picture_152064.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:3A112D97941CF667E04DA81B789CE167487F9282
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152065.jpgsave_picture_152065.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:5F7249DD2AD34F9A60C10686C9E19D65ED754844
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152066.jpgsave_picture_152066.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Xfer Records - Serum & SerumFX 1.35b7 VSTi, VSTi3, AAX (x86/x64) Update [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152067.jpgsave_picture_152067.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Kaplan School, Гунефа Матюшенкова | Техники скетчи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152068.jpgsave_picture_152068.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ iLock 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152071.jpgsave_picture_152071.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:4D48142E5631DE2290EE76FB11F6B58591C3B408
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152072.jpgsave_picture_152072.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Reg Organizer 9.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152073.jpgsave_picture_152073.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ FaraoN - Deep House Music Collection 2025 (2025) [MP3|320 Kbps] <House, Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152074.jpgsave_picture_152074.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:1329EB77C6D0E23CE683AC351658FA43175380F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152075.jpgsave_picture_152075.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:08B5416F32209479BA56EE60BCFF40C41145C869
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152076.jpgsave_picture_152076.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Brave Browser 1.1.23 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152077.jpgsave_picture_152077.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:E94C391C988ED25F8D1E4685C337882B84AFC41A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152078.jpgsave_picture_152078.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:A689811B3BD9E851A50240CC75073B1A69C7F053
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152081.jpgsave_picture_152081.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:E22F966751C4975298340139941603A530B0F90F
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152083.jpgsave_picture_152083.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Movavi PDF Editor 1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152084.jpgsave_picture_152084.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:FB2036A06A61D692B1B2B82F37B0F6D7684ACE63
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152085.jpgsave_picture_152085.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Jerry Bergonzi - Tenorist (2007) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152086.jpgsave_picture_152086.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ ReviverSoft Driver Reviver 5.32.0.20 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152088.jpgsave_picture_152088.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:A7F5986B01B1BA53E5F89FB2D96CDF8C8F2DCC64
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152089.jpgsave_picture_152089.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ BluePlum Home Inventory 4 v4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152091.jpgsave_picture_152091.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Glary Utilities Pro 5.192.0.221 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245867.jpgsave_picture_245867.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D834F08BE67011C98FEF97A3576464C042CE7619
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245868.jpgsave_picture_245868.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ SponsorBlock for YouTube 5.1.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245869.jpgsave_picture_245869.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Club Charts Top 100 - 2023 [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245870.jpgsave_picture_245870.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:A8D76715A8FE979511DAC219E2112CC629F5B87F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245871.jpgsave_picture_245871.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:4644B6BA65F2FB985268647E4D91C2DE224C394F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245872.jpgsave_picture_245872.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Rhapsody - Dawn Of Victory (2000) Reissue, 2005, Limb Music Products [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245873.jpgsave_picture_245873.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Hookshot 1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245874.jpgsave_picture_245874.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:816543F3FDFBB357E3F9244A1F36B84B81270BE5
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245875.jpgsave_picture_245875.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:170755525CE02ADF4DB38D49FE393C29C1EB300C
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245876.jpgsave_picture_245876.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:BD8C578832628C88CF7A94B9B814526D383015CA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245877.jpgsave_picture_245877.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:A556EA43D8E50596E8077571AA2F0B83711B2A13
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245878.jpgsave_picture_245878.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:E327C266AEE6144E62EE23B9875A24B5DE4CA465
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245879.jpgsave_picture_245879.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:5DB5795B1756741F80C14468E11867676188548C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245880.jpgsave_picture_245880.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:151F866F24A4A596754D8EE8058DECD977E99C2A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245881.jpgsave_picture_245881.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ MotoGP. Этап 02. Гран-при Аргентины. Спринт (01.04.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245882.jpgsave_picture_245882.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:A5E71B4AA716CDFA049A0BCD7663C1CC14FE47BF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245883.jpgsave_picture_245883.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:C04CE91A3E80C359DE118588DEF1A6F4BB718244
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245884.jpgsave_picture_245884.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - 80s Dance Classics (2022) [AAC|~334 Kbps] <Pop, Dance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245885.jpgsave_picture_245885.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:D770B8C437E59419DA663E515615890A3C22704C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245886.jpgsave_picture_245886.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:311205977A5A29A6293D47F3B6F72FC570F8DFE7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245887.jpgsave_picture_245887.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Enterclass, Сергей Курбатов | Весна в городе (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245888.jpgsave_picture_245888.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ TurnTable 4.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245889.jpgsave_picture_245889.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ NCH DeskFX Plus 3.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245890.jpgsave_picture_245890.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:597B9692B6B06A19D2E1B3C2E3114830D2BD1539
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245891.jpgsave_picture_245891.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:6A719F505EDB17A64DD35734D5E340A97DA6B8FB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245892.jpgsave_picture_245892.jpg" />
 </div>
 
 

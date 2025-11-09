@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204530.jpgsave_picture_204530.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:7456F48D3FB68E509758D01861F00C8D365DCE07
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204531.jpgsave_picture_204531.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:F9AFEBACA2D2796E97E487D0049405200B0F822F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204532.jpgsave_picture_204532.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Goombay Dance Band - Sun Of Jamaica (1980) 3CD, Deluxe Edition, 2023, Aviator-En
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204533.jpgsave_picture_204533.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Ashampoo UnInstaller 12.00.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204534.jpgsave_picture_204534.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:4834DEF30E382847E4CC9A1A4ED8023BB346AF46
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204535.jpgsave_picture_204535.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:51B844638DBB99DD6E94064D8A3B933709DC5A11
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204536.jpgsave_picture_204536.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:E8F1D586DA19A33D5B2CC59F358C61EF76AB964B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204537.jpgsave_picture_204537.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ PC Cleaner Pro 9.3.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204538.jpgsave_picture_204538.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:B61C7197D689E92A1A15AB9463CC5A9FA968AB7E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204539.jpgsave_picture_204539.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:00CAC0A3B1164851C379E9520031DE319EF29C14
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204540.jpgsave_picture_204540.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Asking Alexandria - Where Do We Go From Here? (2023) [MP3|320 Kbps] <Alt. Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204541.jpgsave_picture_204541.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Mp3tag 3.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204542.jpgsave_picture_204542.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ MKVToolNix 73.0.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204543.jpgsave_picture_204543.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Quick CPU 4.5.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204544.jpgsave_picture_204544.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Opera One 102.0.4880.16 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204545.jpgsave_picture_204545.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - Extreme Street Workout Songs For Fitness & Workout 2023 (Fitness Version 12
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204546.jpgsave_picture_204546.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Movist Pro 2.8.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204547.jpgsave_picture_204547.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:8DDEB3DDDA21506D6A9C9F77A37743C26EE350BB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204548.jpgsave_picture_204548.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:72972699C9EC0E0AC8FC17B987E438D75D7BC22D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204549.jpgsave_picture_204549.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:5E43F314EFE71BAC7A57DBB1C09BC347222E1496
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204550.jpgsave_picture_204550.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - Compilation Female Assorted part 30 (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204551.jpgsave_picture_204551.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Compilation Part 28 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204552.jpgsave_picture_204552.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:AF571388CD22350EBF89174AF728978EA19D451C
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204553.jpgsave_picture_204553.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:579DDEF59074CC2252E486CCF72A30FB9F5ED38F
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204554.jpgsave_picture_204554.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Compilation Part 29 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204555.jpgsave_picture_204555.jpg" />
 </div>
 
 

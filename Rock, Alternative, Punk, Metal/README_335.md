@@ -6,7 +6,7 @@ VA - Prog Rock For Rookies Vol.2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189737.jpgsave_picture_189737.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Krik Band - Алиса. Безумие возвращается (2023) [MP3|320 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189738.jpgsave_picture_189738.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Joe Lynn Turner - Belly Of The Beast (2022) [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189742.jpgsave_picture_189742.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Prog Rock For Rookies (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189756.jpgsave_picture_189756.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:54CA891EF6B7549A0076FB9A7EBA9FF9A9F91220
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189760.jpgsave_picture_189760.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Super Vintage - Guardians Of Tradition (2022) [FLAC|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189762.jpgsave_picture_189762.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Mutoid Man - 4 Albums (2014-2023) [MP3|320 Kbps] <Punk, Stoner, Prog, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189783.jpgsave_picture_189783.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Onsegen Ensemble - Realms (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189786.jpgsave_picture_189786.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:4169EA67A30346A2FB02C6BC037731EB0D81C326
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189792.jpgsave_picture_189792.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:3C9DBAC476F02170475DF2D811022329EAC5BC44
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189793.jpgsave_picture_189793.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mecanicos de Satan - Nomade (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189795.jpgsave_picture_189795.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Headless Dawn - Crap on Demand (2022) [FLAC|Lossless|WEB-DL|tracks] <Grindcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189800.jpgsave_picture_189800.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Hell's Tape - Ancient Knights of Black Blood (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189801.jpgsave_picture_189801.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Phil Campbell And The Bastard Sons - Kings Of The Asylum (2023) [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189806.jpgsave_picture_189806.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Phlebotomized - Clouds 0f Confusion (2023) [FLAC|Lossless|image + .cue] <Avant-G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189809.jpgsave_picture_189809.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Mats Karlsson - Mood Elevator (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189811.jpgsave_picture_189811.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ La Menade - Reversum (2023) [MP3|320 Kbps] <Alternative Metal, Female Vocals>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189819.jpgsave_picture_189819.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Cageyseetkaah - Sense (2023) [MP3|320 Kbps] <avant-garde death metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189832.jpgsave_picture_189832.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Garbage - Anthology 1995-2022 (2022) 2 x CD, Compilation, Remastered [FLAC|Lossl
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189924.jpgsave_picture_189924.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Saint Ali - From The Seashore of Barus to The Firmament of Debata (2022) [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189953.jpgsave_picture_189953.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Epica - The Alchemy Project (2022) EP [FLAC 2.0|48/24|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189959.jpgsave_picture_189959.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Black Spell - Season of the Damned (2022) [MP3|320 Kbps] <Doom, Psych, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189973.jpgsave_picture_189973.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Epica - The Alchemy Project (2022) EP [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189994.jpgsave_picture_189994.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Galderia - Endless Horizon (2022) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190014.jpgsave_picture_190014.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Warkings - 4 Albums (2018-2022) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190015.jpgsave_picture_190015.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Ring of Fire - Gravity (2022) [MP3|320 Kbps] <Progressive, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190018.jpgsave_picture_190018.jpg" />
 </div>
 
 

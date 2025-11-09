@@ -6,7 +6,7 @@ Caligula's Horse - Charcoal Grace (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120950.jpgsave_picture_120950.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dead Poet Society - Fission (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120951.jpgsave_picture_120951.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The New Day - Subtronic Symbiosis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120956.jpgsave_picture_120956.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dead by April - The Affliction (2024) [FLAC 16/44.1, 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120982.jpgsave_picture_120982.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Carnivore - Carnivore (1995)[FLAC|24/96|tracks|Vinyl-Rip]  <Speed, Thrash Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121101.jpgsave_picture_121101.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Akkerhaugen Raid - Red Filipino Viper (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121102.jpgsave_picture_121102.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Carnivore - Retaliation (1987) [WavPack|24/96|image + .cue|Vinyl-Rip] <Speed, Th
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121103.jpgsave_picture_121103.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Cherry on Top Smooth Late Night Saxophone Jazz for Delightful Moments and P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121106.jpgsave_picture_121106.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Luca Quattrocchi - Saxophone Bliss (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121113.jpgsave_picture_121113.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Gotsu Totsu Kotsu - Studio Albums (6 releases) (2009-2023) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121114.jpgsave_picture_121114.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Tyrannosaurus Rex - A Beard Of Stars (1970) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121115.jpgsave_picture_121115.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Fais-moi attendre Musique de piano sensuelle avec des sons érotiques (2024
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121117.jpgsave_picture_121117.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Ozgur (Özgür) Hazar - Way Back Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121120.jpgsave_picture_121120.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Nicola Tedescoli - Ephemeral Melodies (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121123.jpgsave_picture_121123.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Sexy & Noir Smooth Exquisite Sax Jazz Music, Soft BGM in Cozy Bar Ambience 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121133.jpgsave_picture_121133.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Sexy Lovers Music Collection, Sensual Lounge Music Universe - Make Me Wait Slow 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121153.jpgsave_picture_121153.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Romantic Candlelight Dinner Jazz Zone, Romantic Jazz Music Club - Evening Dinner
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121257.jpgsave_picture_121257.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Cafe Piano Music Collection, Relaxation Jazz Music Ensemble - Tea Café: Relaxin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121279.jpgsave_picture_121279.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Dragonforce - Astro Warrior Anthem (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121281.jpgsave_picture_121281.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Lounge Cafe, Classical Jazz Guitar Club - Hotel Café Guitar Jazz BGM (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121284.jpgsave_picture_121284.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Jazz Guitar Club, Jazz Guitar Music Zone - Sunset Guitar Session Smooth Guitar J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121289.jpgsave_picture_121289.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Restaurant Jazz Music Collection, Jazz Ambiental para Hotels - Dining in Jazz Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121290.jpgsave_picture_121290.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Rhino Bucket - Studio Albums (7 releases) (1990-2017) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121291.jpgsave_picture_121291.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Lazarus Dream - Lifeline (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121440.jpgsave_picture_121440.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Michael Messer & Chaz Jankel - Mostly We Drive (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121442.jpgsave_picture_121442.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Denny Newman - Reach Out - Music For Ruth Cape (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121445.jpgsave_picture_121445.jpg" />
 </div>
 
 

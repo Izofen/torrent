@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124789.jpgsave_picture_124789.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:667F320F1E9359C1941AB65854EEBD0D91E43272
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124790.jpgsave_picture_124790.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DD7324833F28C3911C34B3DDD7F29F8CF8DF23BD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124791.jpgsave_picture_124791.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:89F476118443DF228E44CA664946B1240BABB081
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124792.jpgsave_picture_124792.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:18CB2CBA68D9B45CEA7A2BB2FA52B2D0C77EFD30
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124793.jpgsave_picture_124793.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:487BA7D8A7319ED3E55301048634CB38E6E961D1
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124794.jpgsave_picture_124794.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ ToonMe 0.6.102 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124795.jpgsave_picture_124795.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Lakeview Cabin 2 (2023) [En] (1.01) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124796.jpgsave_picture_124796.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:42190DEA1D53EA95C37AF31AF3D371D57943313C
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124797.jpgsave_picture_124797.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Fraction Calculator Plus v5.7.1 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124798.jpgsave_picture_124798.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:0A282590C9D14990A9021B745F45EFE93F4BBE20
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124799.jpgsave_picture_124799.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Ventusky: Прогноз погоды v30.3 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124800.jpgsave_picture_124800.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:C677AB204DFA0FADB750E6AC0B68DEA713CCFBDB
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124801.jpgsave_picture_124801.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:1A2AF8CDBEDE99A2D93FE343E104F0AF61DAD245
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124802.jpgsave_picture_124802.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Music News vol.328 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124803.jpgsave_picture_124803.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:4333B4E10C20F7E7B7B76CFA7D9BE970EC386AC3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124804.jpgsave_picture_124804.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - Полигон Records. Лучшее 2023 [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124805.jpgsave_picture_124805.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:E1EBD7719755D8580D0A3D7A96E2484343D37796
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124806.jpgsave_picture_124806.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:98848A48D18C521C8807979750F6A59D664C81E0
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124807.jpgsave_picture_124807.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Полный Отстой (2023) [MP3|320 Kbps] <Thrash, Metal, Hard>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124808.jpgsave_picture_124808.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:30436F1F35297CC22E1BC36B88C2A0B06F1A3D16
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124809.jpgsave_picture_124809.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:04FCE043EC5807B3DAD2F91F871A951ACC62F981
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124810.jpgsave_picture_124810.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:FE18F606CC1A00C67797CB426F8645A107545E68
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124811.jpgsave_picture_124811.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:B1E991034FCD42AAA1E788311259D02DD4B0DEBB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124812.jpgsave_picture_124812.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Submachine: Legacy (2023) [En] (20231015) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124813.jpgsave_picture_124813.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:B7FFA0F0B2CE3AAE0E35D606BD49F7A39D561D18
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124814.jpgsave_picture_124814.jpg" />
 </div>
 
 

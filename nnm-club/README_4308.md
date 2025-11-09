@@ -6,7 +6,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133790.jpgsave_picture_133790.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cobra Spell - 666 (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133791.jpgsave_picture_133791.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Ultra GPS Logger 3.194u Mod by Balatan [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133793.jpgsave_picture_133793.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Rammstein: Music Videos (1995-2012) [1080p] Blu-Ray
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133794.jpgsave_picture_133794.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Rammstein: Music Videos (1995-2012) [1080p] Blu-Ray
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133795.jpgsave_picture_133795.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Rammstein: Music Videos (1995-2012) [1080p] Blu-Ray
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133796.jpgsave_picture_133796.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Affinity Designer 2 v.2.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133797.jpgsave_picture_133797.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dungeon Defenders Collection [En/Multi 5] (Repack/7.46c) 2012 l R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133798.jpgsave_picture_133798.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:7F20EAB0F8E330A92FE083A567971758398A5D6F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133799.jpgsave_picture_133799.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:7A32E8E6531B1A6AE0B0909D9E20A65403AE9CD2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133800.jpgsave_picture_133800.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:C093DCC9FC29C582ED31D2745D340A93B3918FB4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133801.jpgsave_picture_133801.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ ProDAD Mercalli V2 Stand Alone (SAL) 2.1.4700 + Plugin 2.0.105.1 RePack by PooSh
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133802.jpgsave_picture_133802.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Mercalli - интуитивный и простой инструмент для 
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133803.jpgsave_picture_133803.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:CC058A3584AAC23E9373B689A734211A828E98CC
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133804.jpgsave_picture_133804.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:C58D6B01DAE609B48F2C02A39CC17FAB1D349C2D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133806.jpgsave_picture_133806.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:4A82D3E252511B8CD2A1EE8D838E8FEC1945EF55
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133807.jpgsave_picture_133807.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Lark Player - YouTube Music & Audio Player 5.65.10 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133808.jpgsave_picture_133808.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Directory Opus 10.2.0.0.4645 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133809.jpgsave_picture_133809.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Glary Disk Cleaner 6.0.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133810.jpgsave_picture_133810.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Contre Jour [Игра] (Android)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133811.jpgsave_picture_133811.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Chromium 119.0.6045.200 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133812.jpgsave_picture_133812.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Kaspersky CRYSTAL 13.0.2.558 RC [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133813.jpgsave_picture_133813.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Kaspersky CRYSTAL обеспечивает защиту "все-в-одном" �
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133814.jpgsave_picture_133814.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:C85AA2D22B2A1B4F7D357CDD00796989B34023D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133815.jpgsave_picture_133815.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Flyingbee PDF to Word for Mac 8.5.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133816.jpgsave_picture_133816.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Paradise Lost - Icon 30 (2023) [MP3|320 Kbps] <Gothic metal, Doom metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133818.jpgsave_picture_133818.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130714.jpgsave_picture_130714.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:751F0B918D98AFF5A9B2D9846EC05D8026ADD144
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130715.jpgsave_picture_130715.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:F7DE191DF3874B1890058F9B770848E4904D42E5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130716.jpgsave_picture_130716.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:F7DE191DF3874B1890058F9B770848E4904D42E5
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130717.jpgsave_picture_130717.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Stepik, Арсений Смирнов | Веб-дизайн: ключ к усп�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130719.jpgsave_picture_130719.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:CDF1ED37EFC54174257BEE56E14BAB1079D2CB8E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130720.jpgsave_picture_130720.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:7EA2DEA3B5C1639B946FE21CD43F41920D139826
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130721.jpgsave_picture_130721.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:7EA2DEA3B5C1639B946FE21CD43F41920D139826
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130722.jpgsave_picture_130722.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:87CDA1C95B5239722BE154A1AA21F9F4A3326E9A
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130723.jpgsave_picture_130723.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:0CC11A72F5D05D4BE97033D87D6E94681EE42B91
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130724.jpgsave_picture_130724.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:D3CA2A60E93D4802A1D6473BE39FEF4C5F036C80
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130725.jpgsave_picture_130725.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:E113F6660797E260499FCE07D73AA5D2AD904AD4
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130727.jpgsave_picture_130727.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:D2CBAAEFD673D9C51F3C507F4D757C3AFAAA7DD3
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130729.jpgsave_picture_130729.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:48CEB2B4E9A4D2687B9F06AD86333F7B9DCCE789
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130730.jpgsave_picture_130730.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Grisha Urgant - Estrada (2012) [MP3|320 кб/с]<Pop Rock>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130731.jpgsave_picture_130731.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - 12" 80s Pop (2007) 3CD[FLAC|Lossless]<Pop Rock, Disco, New Wave, Synth-pop,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130733.jpgsave_picture_130733.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Linkedin, George Maestri | Unreal Engine 5 Essential Training (2023) WEB-DL [EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130734.jpgsave_picture_130734.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:39FEA1C58463BFD2D348F0C1CACD028BEBAC470F
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130735.jpgsave_picture_130735.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:39FEA1C58463BFD2D348F0C1CACD028BEBAC470F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130736.jpgsave_picture_130736.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:37A9E1283A368AD2C5E2F7039848BDBE437C50B9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130738.jpgsave_picture_130738.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:0D10CDB0F63EA618F202C829A94ACC10CF1284A9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130740.jpgsave_picture_130740.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ the Chemodan - Кроме женщин и детей (2012) [MP3|256-320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130741.jpgsave_picture_130741.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:FD0D02CBB277D1918E4D4AE69AD557F5AA510C74
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130742.jpgsave_picture_130742.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Nitro Pro 14.18.1.41 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130743.jpgsave_picture_130743.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Kameleon [Ru] [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130745.jpgsave_picture_130745.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Kameleon [Ru] [WineSkin]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130746.jpgsave_picture_130746.jpg" />
 </div>
 
 

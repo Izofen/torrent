@@ -6,7 +6,7 @@ Don't Stare (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44289.jpgsave_picture_44289.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Perennial Order (2024) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44309.jpgsave_picture_44309.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Repack DjDI [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44557.jpgsave_picture_44557.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sunset Hills (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44624.jpgsave_picture_44624.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sunset Hills (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44631.jpgsave_picture_44631.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Scene FairLigh
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44689.jpgsave_picture_44689.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Date Z (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44697.jpgsave_picture_44697.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ I Wani Hug that Gator! (2024) [Ru/Multi] (1.6.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44755.jpgsave_picture_44755.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:3B744720A9BA2A4FFC48119DE6ED728D41515090
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44775.jpgsave_picture_44775.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9064) Repack FitGirl [Settler Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44801.jpgsave_picture_44801.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Bewitching Sinners (2024) [En] (1.9.8.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44810.jpgsave_picture_44810.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ No Return (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44851.jpgsave_picture_44851.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ NARIBIKIMURA (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44859.jpgsave_picture_44859.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Nancy Drew: Last Train to Blue Moon Canyon / Нэнси Дрю. Последни
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44956.jpgsave_picture_44956.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Nancy Drew: The White Wolf of Icicle Creek / Нэнси Дрю. Белый во�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44964.jpgsave_picture_44964.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ KONOSUBA - God's Blessing on this Wonderful World! Love For These Clothes Of Des
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45147.jpgsave_picture_45147.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Alter Ego (2010) [En] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45163.jpgsave_picture_45163.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Highwater (2024) [Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45165.jpgsave_picture_45165.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Fireside (2024) [Ru/Multi] (1.0.3_rc1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45169.jpgsave_picture_45169.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Crypt Custodian (2024) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45190.jpgsave_picture_45190.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Sunny Cafe (2021) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45256.jpgsave_picture_45256.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Dark and Deep (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45297.jpgsave_picture_45297.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45302.jpgsave_picture_45302.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Lord of the Rings: Return to Moria (2024) [Multi] (1.3.2.157411) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45322.jpgsave_picture_45322.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Dawning Clocks of Time Remake (2024) [En] (1.0.4.0820.26) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45327.jpgsave_picture_45327.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Debtors' Club (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45386.jpgsave_picture_45386.jpg" />
 </div>
 
 

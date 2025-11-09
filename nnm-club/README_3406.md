@@ -6,7 +6,7 @@ Municipal Waste - Studio Albums (9 releases) (2003-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108917.jpgsave_picture_108917.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:8CA737E179C9A6F8932A72CC8956D44374A9A614
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108918.jpgsave_picture_108918.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Exilia - Unleashed XX (2024) [FLAC 24/44|Lossless|WEB-DL|tracks] <Alt.Metal, Fem
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108919.jpgsave_picture_108919.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Thola - Unseen (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108920.jpgsave_picture_108920.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - A-Mase - Vocal House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108921.jpgsave_picture_108921.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:7A31571FBE40BBCF2A2243DBD3F7255A52E06F86
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108922.jpgsave_picture_108922.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tears Of Tragedy - Trinity And Overture 15th Anniversary Special (2024) [MP3|320
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108923.jpgsave_picture_108923.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:D7AD3B84DB6CF65017A63E7E7FA9CBB346F27957
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108924.jpgsave_picture_108924.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:E5F9603AB88260361D43AC683EA6B3691B3A56E3
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108925.jpgsave_picture_108925.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:6EA4DB6C0B78C963303C65ED30D9CA56AB4EECDD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108926.jpgsave_picture_108926.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Romantic Sax Instrumentals - Romantic Sentiments (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108927.jpgsave_picture_108927.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Marga Sol - Fantasia (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108928.jpgsave_picture_108928.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Ibiza Opening Party 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108929.jpgsave_picture_108929.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:B218B4CDF676C91E62B1545111E8C59C2028B8B6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108930.jpgsave_picture_108930.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Smooth Jazz Music Academy - Old Fashioned Jazz: Vintage Sounds for Relax, Restau
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108931.jpgsave_picture_108931.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:7AD744F6240024E072BBD626C2F44E926ECC520A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108932.jpgsave_picture_108932.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ VA - Beach Bar Chill Grooves, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Loung
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108933.jpgsave_picture_108933.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - United Trance Alliance (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108934.jpgsave_picture_108934.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Antennaes - She's A Winner... (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108935.jpgsave_picture_108935.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Armin van Buuren - A State Of Trance 1174 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108936.jpgsave_picture_108936.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:EDBF64E4936DAC9E1D3661DD39F4E4CE59E91741
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108937.jpgsave_picture_108937.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:36426BA979B300257653A35CFA07017FD21722EF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108938.jpgsave_picture_108938.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:39DE93BA8A0BC26EE5F6B6549873F938E03F9BCC
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108939.jpgsave_picture_108939.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:CE68DE107950D27D4C090B574150FC40BEB03873
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108940.jpgsave_picture_108940.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:4C4A20FFF05B46B669119AC131B0CFC74CC3FFF4
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108941.jpgsave_picture_108941.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ O&O DiskImage Professional 19.1 Build 137 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108942.jpgsave_picture_108942.jpg" />
 </div>
 
 

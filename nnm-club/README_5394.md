@@ -6,7 +6,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167127.jpgsave_picture_167127.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Laid-Back Groovy Romantic Smooth Jazz Tunes (2023) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167128.jpgsave_picture_167128.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8563BF4DF13C7529689A11CBBBD6FBB8A1D73D6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167129.jpgsave_picture_167129.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Listen Audiobook Player v5.2.0 (977) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167130.jpgsave_picture_167130.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:29172A18F2E4A34278BDE1E48134D0B08512F71C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167131.jpgsave_picture_167131.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:912B4D85E17ED9A9B515BCF11CB641A0B8C5CBEE
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167132.jpgsave_picture_167132.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:29E7D34893541ADF2D035F4D1F22AC01FA3BC0E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167133.jpgsave_picture_167133.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:803E77E2CEC04BC75D49D44509B67C85EB902441
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167134.jpgsave_picture_167134.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:652572B726378FD08FBDC61BE036053B318208CA
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167135.jpgsave_picture_167135.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:9C0221E87897257D2AE4EEA50AEC442529BD5C44
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167136.jpgsave_picture_167136.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:83CE73482C07AA2E2A8EB0D5BC14B9D31F02BB84
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167137.jpgsave_picture_167137.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:3E979DBEF95D952C9D03B28985DDEC054080FE6E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167138.jpgsave_picture_167138.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:28FE8738926D455FD5901434B1CEB2B0DF5E033F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167139.jpgsave_picture_167139.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ InShot - Фото и видеоредактор v1.980.1422 Mod by maxi123444 [R
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167140.jpgsave_picture_167140.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:FDAE500B828C7AA9359AF1858D37BD50582BACBF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167141.jpgsave_picture_167141.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (1.0.0p-1.1.4i.486) License
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167143.jpgsave_picture_167143.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:44910538A321505BA1A89CBA32E0F061C2503C32
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167144.jpgsave_picture_167144.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ VueScan Pro for Mac 9.8.20 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167145.jpgsave_picture_167145.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:A0D2010872DC66F117BEDF98129020944206B239
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167146.jpgsave_picture_167146.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:ACE9973C330D47AE428B83700BBA0AAF522975B2
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167147.jpgsave_picture_167147.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:39D805DE0795097BFEECEC2771A3CB6EF5E3C0C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167148.jpgsave_picture_167148.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Simon Spurrier | Warhammer 40K - Xenology (2006) [PDF] [En]
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167149.jpgsave_picture_167149.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ K-Lite Codec Pack Update 17.9.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167150.jpgsave_picture_167150.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:A0B2D6855F4B66D6F166313C67AAA3B04A0688F2
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167151.jpgsave_picture_167151.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Sonuscore - Ethnic Flute Phrases - RePack Андрей650071 [KONTAKT]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167152.jpgsave_picture_167152.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Telegram Desktop 4.11.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167153.jpgsave_picture_167153.jpg" />
 </div>
 
 
