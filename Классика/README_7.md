@@ -1,3 +1,30 @@
+###  Публикация: 1434390   (150817) от 24.12.2020
+
+VA - Christmas With The Stars And The Royal Philharmonic Orchestra (2019) Jewelbox [FLAC|Lossless|tracks + .cue] <Classical, Romantic, Christmas>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150817.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Christmas with The Stars and The Royal Philharmonic Orchestra» заимствует лучшее от прошлого и настоящего Рождества. В альбом вошли 13 знаменательных и любимых композиций рождественского сезона от таких музыкальных кумиров, как Элвис Пресли, Тони Беннет, Дорис Дэй, Эрта Китт, Гарри Белафонте, Перри Комо, Джонни Мэтис, Дин Мартин, Рой Орбисон и Энди Уильям — и каждый (   Читать дальше...   )01. Elvis Presley & Royal Philharmonic Orchestra - Blue Christmas  (2:09)
+02. Tony Bennett & Royal Philharmonic Orchestra - Have Yourself a Merry Little Christmas  (3:21)
+03. Doris Day & Royal Philharmonic Orchestra - I'll Be Home for Christmas  (2:35)
+04. Perry Como & Royal Philharmonic Orchestra - It's Beginning to Look a Lot Like Christmas  (2:47)(   Читать дальше...   )Релиз состоялся: 29 ноября 2019 годаЖанр: Classical, Romantic, ChristmasПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25046305E7F726B678CA9DE708D73BF5F6A065CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194374   (151396) от 27.12.2017
 
 Арам Ильич Хачатурян - Гаянэ (БСО ВРиТ. Дирижёр - Джансуг Кахидзе) (Запись - 1978, Издание - 2009) [MP3|320 Kbps] <Классика, Балет>
@@ -662,33 +689,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F1686C4DBB2B0F76FA82A7BBEF6B2506D48BFB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592787   (180961) от 26.11.2022
-
-J. S. Bach, Frank Peter Zimmermann - Sonatas & Partitas Vol.1 (2021) [FLAC|Lossless|image + .cue] <Classical, violin>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sonata No. 2 BWV 1003 In A Minor (21:17)
-01. Grave
-02. Fuga
-03. Andante(   Читать дальше...   )Жанр: Classical, violinПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30BA3BEF78651FFC44393AD7A44A1F8754331143
 ```
 
 

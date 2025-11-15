@@ -1,3 +1,55 @@
+###  Публикация: 1731388   (107663) от 21.06.2024
+
+3force - Unleash (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Down [00:03:32]
+02. Voyager [00:03:13]
+03. Unleash [00:03:24]
+04. Meet the Devil [00:03:57](   Читать дальше...   )Жанр: Synthwave, DarksynthПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D883A7F89CB6A98F236AA864B6557CA04807E0F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730878   (107666) от 21.06.2024
+
+Fresh & Lipps - Be My Lover 2012 (2012) [FLAC|Lossless|tracks] <Euro House, Deep House, Club House, Funky House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fresh And Lipps - Be My Lover 2012 (radio edit) (3:34)
+02. Fresh And Lipps - Be My Lover 2012 (extended) (5:35)Жанр: Euro House, Deep House, Club House, Funky HouseПродолжительность: 00:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4234F981EA3BA409D38645FFC6BEB9F3F2113084
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731427   (107667) от 21.06.2024
 
 VA - Future Sounds Of Kraut, Vol. 2 - compiled by Fred und Luna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip-hop, Indus, Synthwave, Electro-Synthpop, Downtempo>
@@ -637,60 +689,6 @@ VA - Art of Deep House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61836AF886589C25F7162FA3C878E5D9537B7B2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730529   (107879) от 16.06.2024
-
-Toxikk Deception - Harsh Reality (2024) [MP3|204-260 kbps VBR (V0)] <EBM, Dark Electro, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Agents Of Fear [00:05:34]
-02 - Hollow [00:06:47]
-03 - Phantoms [00:05:00]
-04 - Soil [00:05:42](   Читать дальше...   )Жанр: EBM, Dark Electro, IndustrialПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD5F5171F6B6562AAC49D50A7C5D889ED0C973C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730112   (107940) от 14.06.2024
-
-VA - Armin van Buuren - A State Of Trance 1177 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SMR LVE & Christina Novelli - Serenity
-02. The WLT pres. AlterDNA - Synthesis
-03. P.O.U. & Scott Forshaw - Castles In The Sky
-04. Jeef B - Iconic (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC69470C3714A0B564E785B9FA6F3E23829EFC8
 ```
 
 

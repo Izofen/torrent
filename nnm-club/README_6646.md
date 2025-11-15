@@ -1,685 +1,648 @@
-###  Публикация: 1651356   (222250) от 06.08.2023
+###  Публикация: 1831399   (212412) от 28.10.2025
 
-MotoGP. Этап 09. Гран-при Великобритании. Спринт (05.08.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+Stephanie Anne Johnson - Sing, baby! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Спорт и активный отдых
->>Авто, Мото
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-5 августа 2023, суббота. 17:00 МСК. Этап 9 Сильверстоун. Гран-при Великобритании. Спринт (10 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:54:02
+01.  summer's hot (2:58)
+02.  glory be (3:47)
+03.  catchafyre (4:33)
+04.  out on the road (3:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:527375DACD2089217CA84C1D8C320887EB7E4D52
+magnet:?xt=urn:btih:3D6B0DE440FDBF7362582EC700F3CD9CC7CB8CA3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651337   (222262) от 06.08.2023
+###  Публикация: 1831397   (212414) от 28.10.2025
 
-Tony Mitchell - Radio Heartbeat (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+Принцесса Монако / Grace of Monaco (2014) BDRip [H.264/720p]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blue Lightning (5:11)
-02. Keep The Love Alive (4:27)
-03. Radio Heartbeat (3:58)
-04. Rockin In A Hard Place (3:39)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:05
+Фильм рассказывает историю голливудской актрисы Грейс Келли, ставшей княгиней Монако после замужества с князем Ренье III. В 1962 году замужняя Грейс сталкивается с кризисом личности — муж занимается государством, двор Монако её не принимает, да к тому же Альфред Хичкок предлагает своей любимице роль в фильме. Но Келли принимает единственно верное решение — верность (   Читать дальше...   )Производство: Франция, США, Бельгия, Италия, Швейцария / Canal+ Жанр: драма, мелодрама, биографияРежиссер: Оливье ДаанАктеры: Николь Кидман, Пас Вега, Майло Вентимилья, Тим Рот, Паркер Поузи, Джеральдин Сомервилль, Дерек Джекоби, Фрэнк Ланджелла, Роджер Эштон-Гриффитс, Николас ФэррелПеревод: дублированный (Пифагор)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:42:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6058C80F01EE6CBA150E1C9B480407C8DF13311
+magnet:?xt=urn:btih:DFC9E711064B7948B85E8BC2BBEF30A648768EF6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651351   (222268) от 06.08.2023
+###  Публикация: 1831398   (212416) от 28.10.2025
 
-Stray Gods - Olympus (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
+Austin Vallejo - Hunting Me Down (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Country>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212416.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Out Of Nowhere
-2. Ghost From The Future
-3. The Other Side Of The Mirror
-4. The Sign(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:05
+01.  Cowboy Down (2:59)
+02.  Perfect Partners In Crime (3:37)
+03.  Right Now With You (2:31)
+04.  Kinder Days (3:45)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:26:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7537F643D738EAC8E870BD40A0403BBE5C298E1A
+magnet:?xt=urn:btih:D9D4BFF914DAB42F222C145674D84082E4FB2ED9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651411   (222273) от 06.08.2023
+###  Публикация: 1831395   (212418) от 28.10.2025
 
-Odds - Crash The Time Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Pop, Pop Rock>
+Орудия / Weapons (2025) BDRip [AV1/1080p-LQ]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crash the Time Machine [00:03:09]
-02. Unlikely Saviour [00:03:24]
-03. Fall Guy [00:06:27]
-04. The Traveling Light [00:02:23](   Читать дальше...   )Жанр: Power Pop, Pop RockПродолжительность: 00:47:34
+Однажды в 2:17 ночи 17 детей одновременно сбежали из своих домов в неизвестном направлении. Семьи и полиция теряются в догадках, что могло послужить причиной случившегося. Кто заставил детей сделать это? Камеры, установленные у входных дверей, не зафиксировали ничего подозрительного, у следователей нет никаких зацепок по делу. Беспокойство среди родителей нарастает (   Читать дальше...   )Производство: США / Warner Bros., Vertigo Entertainment, New Line CinemaЖанр: ужасы, детективРежиссер: Зак КреггерАктеры: Джош Бролин, Джулия Гарнер, Олден Эренрайк, Остин Абрамс, Кэри Кристофер, Бенедикт Вонг, Эми Мэдиган, Тоби Хасс, Сара Пэкстон, Джастин ЛонгПеревод: Дублированный (Movie Dubbing, Red Head Sound)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 02:08:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91C95ADEB794A54CFD5FCBED48FF1D297275AE9D
+magnet:?xt=urn:btih:69B09A451831D6F367AFB8C815BC980060BF602B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651487   (222280) от 06.08.2023
+###  Публикация: 1464784   (212420) от 28.10.2025
 
-Август Блом. Жертва мормона / Mormonens offer (1911) WEBRip [H.264/720p-LQ]
+Я (2009) WEBRip [H.264] [MP4|1280x720]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Мультимедиа и прочее
+>>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212420.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эти злые мормоны снова в деле! Мормонский миссионер соблазняет и похищает привлекательную молодую женщину, заставляя ее сопровождать его в Юту, чтобы сделать одной из своих жен. Напомню, что у мормонов принято многоженство. Девчонки, будьте осторожней с мормонами.Производство: Дания, Nordisk FilmЖанр: короткометражка, драма, немое киноРежиссер: Август БломАктеры: Вальдемар Псиландер, Клара Понтоппидан, Генри Симан, Карло Вит, Карл Шенстром, Axel Boesen, Nikolai Brechling, Фредерик Якобсен, Отто Лагони, Doris LangkildeПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:45:00
+Молодой человек собирается откосить от армии в районной психбольнице. Но игра с системой затягивается — пройдя принудительное лечение, герой с белым билетом на руках выбирается на свободу. Через три этапа жизни — его детство, отрочество и юность — на экране проходит жизнь целого потерянного поколения конца советской эпохи.Производство: Россия | VVP AliansЖанр: Боевик, драмаРежиссер: Игорь ВолошинАктеры: Артур Смольянинов, Андрей Хабаров, Оксана Акиньшина, Алексей Горбунов, Петр Зайченко, Мария Шалаева, Анна Михалкова, Михаил Евланов, Алексей Полуян, Владимир СороколитаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:24:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:057E376240D7F6FAF207F9D45239A7250EFC2A22
+magnet:?xt=urn:btih:F9A59EDAECEE6520635DA3751A5CB3788614C344
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651345   (222288) от 06.08.2023
+###  Публикация: 1368009   (212422) от 28.10.2025
 
-Bill Wray - Seize The Moment (1983) Reissue, Remastered, 2023, Bad Reputation [FLAC|Lossless|image + .cue] <Pop Rock, AOR, Arena Rock>
+500 дней лета / (500) Days of Summer (2009) WEB-DL [H.264/1080p] [Open Matte]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212422.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. (You’re A) Heartbreaker (3:21)
-02. She Loves The Radio (3:19)
-03. Goin’ Down (3:55)
-04. After All These Years (3:38)(   Читать дальше...   )Жанр: Pop Rock, AOR, Arena RockПродолжительность: 00:45:44
+Главный герой работает в агентстве, выпускающем поздравительные открытки. Он придумывает все те забавные подписи, которые мы с Вами читаем на них. Молодой человек влюбляется в свою коллегу и решает, что она — «та, единственная». Но 500 дней их отношений показывают герою, что путь к счастью непредсказуем, неконтролируем и — невероятно забавен!Производство: США / Fox Searchlight Pictures, Watermark, Dune Entertainment IIIЖанр: мелодрама, комедияРежиссер: Марк УэббАктеры: Джозеф Гордон-Левитт, Зои Дешанель, Джеффри Аренд, Хлоя Грейс Морец, Мэттью Грей Гублер, Кларк Грегг, Патриция Белчер, Рейчел Бостон, Минка Келли, Чарльз УолкерПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:35:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20F6AA300BE8C2FD61EE3F1843FB51F07740BDBB
+magnet:?xt=urn:btih:B778ABDE7F7F0BA6459EAAAF8EBEB22A2DDF36DB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651442   (222299) от 06.08.2023
+###  Публикация: 1831391   (212424) от 28.10.2025
 
-Kaj Pousar - Nine Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Wanterlude [Director's Cut]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Win Игры
+>>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212424.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Femme Fatal [00:03:46]
-02. One Chance [00:03:47]
-03. Behind Us [00:04:51]
-04. Out In Life [00:03:47](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:47
+Впервые на ПК вы сможете пройти весь путь Дзина Сакая и получить максимум впечатлений с полной режиссёрской версией игры «Призрак Цусимы». В конце XIII века Монгольская империя уничтожает целые народы в стремлении подчинить себе Восток. Остров Цусима - единственное, что разделяет основную территорию Японии и огромный флот монголов под командованием коварного и безжалостного (   Читать дальше...   )Тип издания: RepackРазработчик: Sucker Punch Productions, Nixxes SoftwareЖанр: Action, AdventureЯзык озвучки: Русский, Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B31422815EBA3257CB1F990BEB3C27B147DBB43D
+magnet:?xt=urn:btih:D3ED9367D8509F9DBBE4B9582EB735CF0A4C8518
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651395   (222311) от 06.08.2023
+###  Публикация: 1830959   (212426) от 28.10.2025
 
-Twinky - Dead Generation (2023) [MP3|320 Kbps] <Alternative Rock>
+Escape Simulator 2 (2025) [Ru/Multi] (16507r) Repack Let'sРlay
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Win Игры
+>>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212426.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Улыбаюсь в бою [00:02:33]
-02 - Люди умирают [00:03:17]
-03 - Дети 21 века [00:02:41]
-04 - Никогда не поздно [00:02:40](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:26:13
+Escape Simulator 2 - это продолжение самого продаваемого квеста в реальности. Новые захватывающие локации, еще более глубокие головоломки и инновационный конструктор - встречай лучший эскейп-рум с видом от первого лица. Исследуй новые локации, разработанные в сотрудничестве с мастерами жанра эскейп-рум и легендарными создателями уровней из нашего сообщества.Тип издания: RepackРазработчик: Pine StudioЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A33222563D1AC1E6907D80260C5C6C745B1ACEC
+magnet:?xt=urn:btih:A8A6066520C93383DA14016E96325E8404B3AF62
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651423   (222319) от 06.08.2023
+###  Публикация: 1831389   (212433) от 28.10.2025
 
-Ellereve - Reminiscence (2023) [FLAC|Lossless|WEB-DL|tracks] <indie rock, alternative, dark rock>
+Проекты - VideHive - Cosmic Particle Logo Reveal - Stellar Explosion Intro - 60295753 [MOGRT]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Проекты
+>>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212433.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gossamer Wings [00:01:13]
-02. In Infinite Light [00:03:00]
-03. Cosmos [00:05:04]
-04. Levitate [00:05:20](   Читать дальше...   )Жанр: indie rock, alternative, dark rockПродолжительность: 00:32:03
+Потрясающий шаблон логотипа Adobe Premiere , где ваш логотип появляется из космической панорамы после взрывного взрыва частиц , каждая из которых, рассеиваясь по сцене, оставляет за собой светящийся след. Анимация сочетает в себе динамические эффекты частиц со светящимися полосами , создавая кинематографическое и потустороннее представление вашего бренда. Этот шаблон (   Читать дальше...   )Формат: MOGRT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5CDC14E05F3A11170C23EE88BFCB5B2D91F4E64
+magnet:?xt=urn:btih:85C5B76CEB6B044D44D351392975E02851FD8868
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651343   (222326) от 06.08.2023
+###  Публикация: 1831269   (212435) от 28.10.2025
 
-Crossfade - Innocent Days (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Westcoast, Soft Rock, AOR>
+Master of Command (2025) [Ru/Multi] (Build 20565020) Repack Let'sРlay
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Win Игры
+>>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212435.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Innocent Days (6:28)
-2. Kings Of Broken Dreams (5:37)
-3. Right There (5:21)
-4. Time Is On Our Side (6:29)(   Читать дальше...   )Жанр: Westcoast, Soft Rock, AORПродолжительность: 00:36:21
+Master of Command - это тактическая стратегия в реальном времени, действие которой происходит во время Семилетней войны. Вы берёте под контроль армию, управляете её снабжением, вступаете в бой с противником и формируете свою кампанию через сложные решения и решающие сражения. Каждое столкновение, каждая единица снаряжения и каждый погибший солдат имеют значение.Тип издания: RepackРазработчик: Armchair History InteractiveЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC150503A088439C24094A31A826D301ACA66DDA
+magnet:?xt=urn:btih:98B0F95CD37A41B6FDD2BFA6E1264B938FAEADDF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651448   (222333) от 06.08.2023
+###  Публикация: 1831374   (212437) от 28.10.2025
 
-Dymna Lotva - The Land Under The Black Wings: Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Depressive Black, Doom Metal, Post-Black Metal>
+3D print - Cults3D - VS3D - GTA V - Diorama [STL]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212437.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ідзі І Глядзі (Come And See) [00:05:30]
-02. Пахаваны Жыўцом (Buried Alive) [00:06:50]
-03. Смерць Цалуе Ў Вочы (Death Kisses Your Eyes) [00:04:54]
-04. Пекла (Hell) [00:05:44](   Читать дальше...   )Жанр: Depressive Black, Doom Metal, Post-Black MetalПродолжительность: 01:12:15
+Диорама GTA V
+
+Это одна из самых амбициозных видеоигр, и она выделяется в серии наличием трех игровых героев.
+(   Читать дальше...   )Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2CABDDEE9E1C94027CD8748343F02187B3D45D47
+magnet:?xt=urn:btih:6917E22DD17E26C59681BE90A8802726B651CA24
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651341   (222340) от 06.08.2023
+###  Публикация: 1831366   (212439) от 28.10.2025
 
-Houston - Relaunch III (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+Шрифты - Creative Market - GC Chroma - Condensed Sans Family - 291893599 [OTF, TTF, WOFF, WOFF2]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Live Forever (3:33)
-02. Slipping Away (3:58)
-03. Power Over Me (4:10)
-04. Heart Of Stone (3:52)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:56:20
+GC Chroma — семейство гротесков Condensed Sans — это современный узкий шрифт, сочетающий в себе точность, мощь и универсальность. Благодаря изящным пропорциям и геометрической чёткости он производит сильное визуальное впечатление, сохраняя при этом отличную читаемость на любом носителе.
+
+Шрифт GC Chroma, созданный для дизайнеров, ценящих эффективность и стиль, идеально (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74B2D098F470B15D5A9A17993B5C37C50FB87125
+magnet:?xt=urn:btih:9A1EB00477BDAC6A5B7A0EDAA4B9370796946893
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651482   (222349) от 06.08.2023
+###  Публикация: 1831335   (212441) от 28.10.2025
 
-Performance Index 64 Pro 4.2.8 [En]
+TechSmith Camtasia 25.2.4 Build 12581 [Multi]
 
->>Программы для macOS
->>Утилиты для macOS
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение Performance Index 64 предназначено для сравнения вашего Mac с другими устройствами macOS и оценки производительности и эффективности различных конфигураций.Тип издания: macOS SoftwareРелиз состоялся: 17.04.2023Разработчик: © 2021 EcoComputers, JSCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+Camtasia Studio – утилита для записи изображения с экрана в видеофайлы различных форматов, имеется возможность редактирования видео, есть встроенные Macromedia Flash (SWF) и видео проигрыватели.
+Camtasia захватывает действия и звуки в любой части Windows-систем и сохраняет в файл стандарта AVI.
+Сделанное при помощи программы видео можно экспортировать в один из поддерживаемых (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие (Русского нет)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70F919779E88EA81BEBE77590F7366BE54B0FBA2
+magnet:?xt=urn:btih:9F84F538F9A9F3D64404EED1525D55B684679DBF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651384   (222356) от 06.08.2023
+###  Публикация: 1831150   (212443) от 28.10.2025
 
-Soulkick - Hide the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Руины стреляют... (1970-1972) WEBRip [H.264] (серии 1-6 из 6)
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sign of the Times [00:05:46]
-02. Last Goodbye [00:04:28]
-03. On the Road [00:04:26]
-04. The Lighthouse [00:04:52](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:44
+В центре сюжета - реальные люди: инженер-нефтяник Исай Казинец, военнослужащий Иван Кабушкин, студент-журналист Владимир Омельянюк, профессор-медик Евгений Клумов, партийный и советский работник Сергей Благоразумов и другие. Именно эти люди с первых же дней оккупации Минска начали создавать подпольные группы. Их главным оружием была ненависть к оккупантам. Вскоре (   Читать дальше...   )Производство: СССР / БеларусьфильмЖанр: военный, драмаРежиссер: Виталий ЧетвериковАктеры: Игорь Ледогоров, Светлана Коркошко, Владимир Козел, Михаил Погоржельский, Алексей Чернов, Лев Золотухин, Леонид Данчишин, Михаил Селютин, Нина Сазонова, Владимир Поночевный и др.Продолжительность: ~01:03:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54B74DB60E9307781E767D7A591E17A8104615C0
+magnet:?xt=urn:btih:8870A38A8C210C688128D42EB7AFF50617258546
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651414   (222365) от 06.08.2023
+###  Публикация: 1831328   (212445) от 28.10.2025
 
-Dryadel - Dreams of the Dead Forest (Сны мёртвого леса) (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal, Dark Ambient, Neofolk>
+O&O ShutUp10++ 2.1.1015 Portable [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. На пути к забвению [00:06:49]
-02. Безмолвие северных гор [00:08:51]
-03. Чёрное пламя столетия [00:14:22]
-04. Последняя звёздная ночь [00:09:34](   Читать дальше...   )Жанр: Atmospheric Black Metal, Dark Ambient, NeofolkПродолжительность: 00:58:27
+O&O ShutUp10 позволяет получить полный контроль над теми функциями Windows 10, которые Вы хотите использовать и убедиться, что ваши данные не будут отправлены третьим лицам. При помощи простого и интуитивного интерфейса пользователь может самостоятельно решить, какие нежелательные функции должны быть отключены для улучшения условий конфиденциальности данных.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76515D2B2B910A72FDEE614EF0D501D4BDC38CBE
+magnet:?xt=urn:btih:8CDFB9EC366639D470805930884F5C34B56B55D2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651379   (222371) от 06.08.2023
+###  Публикация: 1831237   (212447) от 28.10.2025
 
-Forest. - Parts Work (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rubble [00:02:00]
-02. Without a Trace [00:04:10]
-03. Sleep [00:04:38]
-04. Commendatore [00:03:39](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A84FA89235A7DE1028274ECBFF45A670939FB66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651183   (222376) от 06.08.2023
-
-25th Mission - Resilience (2023) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Resilience
-02. Clash Of The Faiths
-03. Fight Kill Die
-04. Compelled To Kill(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C21ECD51EA89280A3A4DF42200F39D68FD7D037
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651495   (222423) от 06.08.2023
-
-Nothingness - Supraliminal (2023) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Curse of Creation
-02 - Horrendous Incantation
-03 - Catapulted into Hyperspace
-04 - Temple of Broken Swords(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E16B4A69098D97C084B6016132266B8B2D888D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651435   (222433) от 06.08.2023
-
-GM CHM Reader Pro for Mac 2.3.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222433.jpg" />
-</div>
-
-
-###  Подробнее
-
-GM EPUB Reader — это полнофункциональное приложение для чтения электронных книг с простым и красивым интерфейсом и хорошим качеством чтения.Тип издания: macOS SoftwareРелиз состоялся: 06.08.2023Разработчик: © 2023 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A770656383D45F973F615A262ED08D2FDA84E05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651370   (222441) от 06.08.2023
-
-Warhawk - Dambuster (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bombraid [00:03:01]
-02. Cut me loose [00:02:49]
-03. Skullet R'n'R Machine [00:02:55]
-04. Please Don't Go [00:03:10](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A677762A0A3E5459ACC1DE6BC920A5C6989AEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651403   (222448) от 06.08.2023
-
-Hawaii Death - ...The Cult Still Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Doom, Experimental, Psychedelic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue: «God of the Gaps» [00:05:36]
-02. The Barbarian, Pt. 1. The Eternal Warrior [00:03:44]
-03. The Barbarian, Pt. 2. A) Wytch / B) Häxan [00:05:12]
-04. The Barbarian, Pt. 3. Technicolor Hell / The Amazon, Pt. 1. Rite of Passage [00:05:47](   Читать дальше...   )Жанр: Alternative, Doom, Experimental, Psychedelic MetalПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F670FE93754CD16FC787E3EB1E88010B2815D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651489   (222460) от 06.08.2023
-
-Актерские дети / The Actor's Children (1910) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой фильм о нелегкой судьбе актеров в безжалостном мире капитализма. И жизнь так складывается, что скорее всего, их детей ждет таже непростая актерская судьба.Производство: США, Thanhouser Film CorporationЖанр: короткометражка, драма, немое киноРежиссер: Бэрри О’НилАктеры: Orrilla Smith, Йейл Босс, Фрэнк Холл Крэйн, Николас Джордан, Ллойд Лонерган, Anna Rosemond, Гертруда СанхаузерПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7254F992084CF59527D6E706F5F8FB22B4ABE19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651181   (222469) от 06.08.2023
-
-25th Mission - Disciples of Metal (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laid To Waste
-02. Signs From Above
-03. Tantrum
-04. Die Before I Kill You (A Love Story)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0370D5DC07F29E58CAD1B22FB6727A7C01D4D1B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651530   (222477) от 06.08.2023
-
-Carthus - Images of Tyranny (2023) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fed To The Lions
-02. Vindictive Retribution
-03. Blood Crown
-04. Method In The Madness(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC802ABDFCA9C753B2A4ACDC1BC3DCAB29805BC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651328   (222485) от 06.08.2023
-
-Horace Silver - Paris Blues (1962) 2002, Pablo [FLAC|Lossless|tracks + .cue] <Hard Bop>
+The Modern Jazz Quartet - Four Classic Albums (1953 - 1957) 2CD, 2008, Avid Jazz [FLAC|Lossless|tracks + .cue] <Cool>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Introductions By Norman Granz And Horace Silver [1:50]
-02. Where You At [10:42]
-03. The Tokyo Blues [12:42]
-04. Filthy McNasty [10:12](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:04:01
+01. Versailles [3:28]
+02. Angel Eyes [3:53]
+03. Fontessa [11:16]
+04. Over The Rainbow [3:57](   Читать дальше...   )Жанр: CoolПродолжительность: 02:37:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54E3461E1EE6E90F6E8616A4ABB3C6E3E0B4C7B5
+magnet:?xt=urn:btih:D02F77B626B4B59B70015552D42298F8ABE0BC22
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651406   (222493) от 06.08.2023
+###  Публикация: 1831212   (212449) от 28.10.2025
 
-Abyssos - Together We Summon the Dark (1997) [MP3|320 Kbps] <Melodic Black Metal>
+Nancy Wilson - Four Classic Albums Plus (1959 - 1962) 2CD, 2019, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. We Hail Thy Entrance
-2. Misty Autumn Dance
-3. Banquet in the Dark (Black Friday)
-4. Lord of the Sombre Reborn(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 01:05:46
+01. Save Your Love For Me [2:45]
+02. Teaneck [4:32]
+03. Never Will I Marry [2:20]
+04. I Can't Get Started [4:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:26:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DB4C65FAFC554523CE151E942A8E6A550366719
+magnet:?xt=urn:btih:E5C52C08B6643CA0BFC77AF0654A31D051263B84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831311   (212451) от 28.10.2025
+
+НХЛ 2025-2026. Сент-Луис Блюз - Питтсбург Пингвинз (27.10.2025) WEB-DLRip [H.264/720p] [hand made 30 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212451.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 октября 2025 вторник 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США) вместимость: 18673.Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3286323A7B92367DBD7B6A63AC099DEBFD105DA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831310   (212453) от 28.10.2025
+
+Принцесса Монако / Grace of Monaco (2014) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает историю голливудской актрисы Грейс Келли, ставшей княгиней Монако после замужества с князем Ренье III. В 1962 году замужняя Грейс сталкивается с кризисом личности — муж занимается государством, двор Монако её не принимает, да к тому же Альфред Хичкок предлагает своей любимице роль в фильме. Но Келли принимает единственно верное решение — верность (   Читать дальше...   )Производство: Франция, США, Бельгия, Италия, Швейцария / Canal+ Жанр: драма, мелодрама, биографияРежиссер: Оливье ДаанАктеры: Николь Кидман, Пас Вега, Майло Вентимилья, Тим Рот, Паркер Поузи, Джеральдин Сомервилль, Дерек Джекоби, Фрэнк Ланджелла, Роджер Эштон-Гриффитс, Николас ФэррелПеревод: дублированный (Пифагор)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A025897EAA811A662A4FF2E6F036B8EADF65E9E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831257   (212455) от 28.10.2025
+
+Шаблоны - Mockup Cloud - Spiral Desk Calendar Planner Mockup [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макет настольного календаря-планировщика со спиралью. Скопируйте и вставьте дизайн вашего бренда в контейнер смарт-объекта — и всё готово! Один и тот же макет будет идеально работать как с тёмными, так и со светлыми вариантами оформления, предоставляя вам полный контроль над сценой.Формат: PSDРазрешение файлов: 3500x3500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68D8366CCD658972C31F91A32A789DEE5A5DFBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831252   (212457) от 28.10.2025
+
+FurMark 2.10.2.0 + Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212457.jpg" />
+</div>
+
+
+###  Подробнее
+
+FurMark 2 является преемником почтенного FurMark 1.. и представляет собой очень интенсивный стресс-тест графического процессора. Это также быстрый графический тест OpenGL и Vulkan с онлайн-оценками. FurMark 2 имеет улучшенную поддержку командной строки и создан с помощью GeeXLab.
+В настройках можно задавать разрешение экрана, активировать оконный или полноэкранный (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94BE18B3497405A034CBB6369F258908B5635992
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831253   (212459) от 28.10.2025
+
+Gregorian - 25 Live (The Best of 25 Years) (25th Anniversary Tour Version [Live]) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Choir, Ethnic>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212459.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Masters of Chant (25th Anniversary Tour Version Live)
+02. Scarborough Fair (25th Anniversary Tour Version Live)
+03. Hymn (25th Anniversary Tour Version Live)(   Читать дальше...   )Жанр: Choir, Ethnic |Продолжительность: 02:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76765DB4638853443BBCDE5F6A2DCD133417198B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831251   (212461) от 28.10.2025
+
+Растровый клипарт - Adobe Stock - Skeleton Posing 3D Render Illustrations [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212461.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 стоковых изображений скелета в разных позах из Adobe Stock. Оригинальные названия сохранены.Формат: PNGРазрешение файлов: 1862x2990 - 5290x3428
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86DA805DB24BEE702F6B1CB40DFE05FE62CFBF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831250   (212463) от 28.10.2025
+
+David Gilmour - The Luck And Strange Concerts (2025) 2XCD, Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212463.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. 5 A.M.
+02. Black Cat
+03. Luck and Strange(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F7CED7C68E87B9EFCA542408F9DEAC30F437AA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831249   (212465) от 28.10.2025
+
+Шрифты - Envato - Keirana - Elegant Serif Font - YAF9FU2 [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Keirana — универсальный и уникальный шрифт, представленный в различных стилях, каждый из которых обладает уникальным ощущением и характером, отличаясь высокой контрастностью, чёткими деталями и классическим шармом. Благодаря изысканным деталям и универсальному стилю он легко адаптируется для самых разных творческих проектов. Он придаст любому проекту элегантный и (   Читать дальше...   )Формат: OTF, TTF, WOFFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8200442A2A4A4734C429C5D72A4D95D7316092D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831174   (212467) от 28.10.2025
+
+Проекты - VideoHive - Drone Hud UIs - Bundle 3 - 29362104 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212467.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 дизайнов пользовательского интерфейса Hud дронов в 4K для ваших творческих задач.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7280BD34231504D8942B4290691E96ECA6C1B28A
 ```
 
 

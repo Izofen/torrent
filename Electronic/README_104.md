@@ -1,3 +1,57 @@
+###  Публикация: 1346756   (157862) от 20.12.2019
+
+Lane 8 - Winter 2019 Mixtape 2019-12-17 [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lane 8 - Just
+02. Baya - Hypno
+03. Gorgon City - Roped In
+04. Ben Böhmer - Maelstrom(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 02:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D228BCA23C0B80374C8F87219A2346D0F0DB561
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194395   (157876) от 24.12.2017
+
+VA - Dark Amsterdam Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gierto - What Dreams May Come (Original Mix)
+02. Owl Stone - Never Coming Back (Original Mix)
+03. Sunmote - Midnight (Original Mix)
+04. Bekar-b - Another Chance (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27338AFCA7F32FA2E0FF72422D45DB49820EB9E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 696231   (157962) от 22.12.2015
 
 Exoplanet - Discography 2 Albums & 26 EP (2005-2014) [MP3|320 кб/с]<Progressive House, Techno, Downtempo, Breaks, IDM, Deep House>
@@ -627,57 +681,6 @@ VA - Easy Listening Chill Affairs, Vol. 1 (2022) [MP3|320 Kbps] <Electronic, Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AA52E945368D7BB07A256609E32173C216A6777
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676100   (159253) от 11.11.2023
-
-VA - Easy Listening Chill Affairs, Vol. 2 (2023) [MP3|320 Kbps] <Electronic, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venus In Motion - He Don't Know (4:58)
-02. Meri,Luca Guerrieri - Show Me Love (2:40)
-03. Nexus 5 - Voices In The Dark (5:16)
-04. Project Blue Sun - Secret Moments (5:49)(   Читать дальше...   )Жанр: Electronic, Lounge, Chillout, DowntempoПродолжительность: 02:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0C8E878A20F4776282E4487053AC99FBB5E632
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599647   (159566) от 24.12.2022
-
-Electric Universe - Sacred Geometry (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy Trance, Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Psy Trance, Goa TranceПродолжительность: 01:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0270E6F4A328E3EBF2AA2A10CD837794E9FA8AA2
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1271856   (146526) от 25.12.2018
+
+VA - Новогодняя сотка 2019 (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146526.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. #2Маши-Мама, Я Танцую
+002. 5sta Family-Так Бывает II
+003. A-Sen-Губы Любят
+004. Burito-Штрихи(   Читать дальше...   )Жанр: PopПродолжительность: 05:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4828DD9F27BD8CF4AB8D3A182AAF052260F30FBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519662   (146723) от 25.12.2021
 
 VA - Christmas Blues Rock (2021) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -668,33 +695,6 @@ VA - Discolandia Party 2 (2021) [MP3|320 Kbps] <Disco, Electro Disco, Remixes>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AFBDE85A28AC79B536F399D9C1EFADA1549B639
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086885   (148206) от 26.12.2016
-
-VA - Acoustic Covers of Love Songs (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Josh Franklin – When We Were Young
- 02. Portland UK – Heart’s on Fire
- 03. Meg Birch – Heaven
- 04. Karizma Duo – Photograph(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:496F8FB1F5079A6C4DF1644AB97235EB0555F79F
 ```
 
 

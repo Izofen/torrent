@@ -1,672 +1,683 @@
-###  Публикация: 1689344   (124763) от 01.01.2024
+###  Публикация: 1690577   (123900) от 07.01.2024
 
-Александр Лукин | История. Путешествие в древний Египет (2017) [MP3, Владимир Левашев и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издательство «АРДИС» представляет уникальную коллекцию аудиоспектаклей для детей. Легко, будто играя, дети погрузятся в яркий и увлекательный мир знаний. А помогут им в этом знаменитые артисты, принявшие участие в записи спектаклей.
-
-Двое героев – Маша и Петя, сопровождаемые добрым знакомым – профессором Владимиром Сергеевичем, раз за разом отправляются в захватывающие (   Читать дальше...   )Жанр: аудиоспектакли, учебная литература, энциклопедииИздательство: АРДИСПродолжительность: 01:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A59E0C61A0120C72B7853DD09D3221CFDF21E90C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689404   (124764) от 01.01.2024
-
-Demon - Hold On To The Dream (1991) Japanese Edition, Reissue, Remastered, 2020, Rubicon Music [FLAC|Lossless|image + .cue] <Heavy Metal>
+Giant Crossman - Time Bending Mass (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123900.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. No More Hell On Earth
-02. New Frontiers
-03. Eastern Sunset
-04. Barons Of Darkness(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:58
+01 - Bodysnatchers
+02 - Time Bending Mass
+03 - Far Away From Any Road
+04 - The Damned Lamp(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 01:02:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F83F11005D9096B5B588242F13C6EFE38BE3A4E
+magnet:?xt=urn:btih:3999EA2E6577F8DA6B28E1CA953147EE7D0F8EDC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689343   (124765) от 01.01.2024
+###  Публикация: 1690363   (123901) от 07.01.2024
 
-Evidence One - Tattooed Heart (2004) [APE|Lossless|image + .cue] <Melodic Heavy Metal, Hard Rock>
+Omicron - Entropic Entity (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric symphonic Melodic Death>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123901.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Moonsigh
-02. Virus In My Veins
-03. Written In Blood
-04. Tattooed Heart(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:43:52
+01. Darkened Skies (Intro) [00:03:09]
+02. Carriage Of Makers [00:04:04]
+03. Obsidian [00:05:11]
+04. Answers [00:05:24](   Читать дальше...   )Жанр: Atmospheric symphonic Melodic DeathПродолжительность: 00:44:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6B22551FE40D32A9258E392ADCAFC5169A3610F
+magnet:?xt=urn:btih:D7956690D7F1362B468A5C7C4E97818ED7748E35
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689346   (124766) от 01.01.2024
+###  Публикация: 1690535   (123902) от 07.01.2024
 
-Evidence One - The Sky Is the Limit (2007) [APE|Lossless|image + .cue] <Melodic Heavy Metal, Hard Rock>
+Without Face - Astronomicon (2002) [FLAC|Lossless|image + .cue] <Progressive Gothic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123902.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Sky Is The Limit
-02. Mr. Madness
-03. The Luxury Of Losing Hope
-04. Won't Sleep Alone(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:47:42
+01. Weird Places 8:30
+02. Pit And Pendulum 8:39
+03. ...In The Garden 7:26
+04. The Violin Of Erich Zann 7:12(   Читать дальше...   )Жанр: Progressive Gothic MetalПродолжительность: 00:44:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0FEA9242BDBFEFBAF5FBD8E20C1CCB9DDF333CF
+magnet:?xt=urn:btih:AF5EEAD59F744751F4D17EE1EC55966AFA8FEFCB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689322   (124767) от 01.01.2024
+###  Публикация: 1690542   (123903) от 07.01.2024
 
-Evidence One - Criticize the Truth (2002) Re-Release,  2007, AFM Records [APE|Lossless|image + .cue] <Melodic Heavy Metal, Hard Rock>
+Even Vast - Teach Me How to Bleed (2007) [FLAC|Lossless|image + .cue] <Gothic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123903.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Criticize The Truth
-02. Trust Vs. Heart
-03. Different Worlds - Different Times
-04. Like Never Before(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:50:07
+01. Infected  04:02
+02. Away  04:09
+03. Limelight  04:33
+04. Love Will Tear Us Apart  03:19(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:40:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7D6C063720E1837DFB7C4B9AEFE7E4ABB989280
+magnet:?xt=urn:btih:F465F849E6957BF6B7E06DBE44CD5F4ABCAA151E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689318   (124768) от 01.01.2024
+###  Публикация: 1690382   (123904) от 07.01.2024
 
-Hazzerd - Delirium (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
+Cancer Christ - God is Violence (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Crust, Hardcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123904.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sacrifice Them (In The Name Of God)
-02. A Tormented Reality
-03. Sanctuary For The Mad
-04. Victim Of A Desperate Mind(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:14
+01. Hail Christ Intro [00:00:47]
+02. Do You Wanna Go To Heaven? [00:01:25]
+03. Baptized in Piss and Shit [00:01:38]
+04. God Hates Cops [00:01:51](   Читать дальше...   )Жанр: Thrash Metal, Crust, HardcoreПродолжительность: 00:26:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13327B24CA10201959FB4A4F3A4DDEF724A230B3
+magnet:?xt=urn:btih:FF216D1F17771EEDBCA41171AB4467E8892873A5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689226   (124769) от 01.01.2024
+###  Публикация: 1690527   (123905) от 07.01.2024
 
-Evidence - Spiral (2002) Reissue, 2003, Irond [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+After Apocalypse - After Apocalypse (2015) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Line Of Fire
-02. Promised Land
-03. Desperation
-04. Chances(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:55:07
+01. After Apocalypse  03:36
+02. World Of Marzipan  04:14
+03. Dark Side  07:03
+04. Glorious Way  03:15(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:45:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B7B23A18A0707CBAA95674A5B46500D7811AC48
+magnet:?xt=urn:btih:6E958E52C52D8C912D84BAA60C7CEA978D98E0C1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689360   (124770) от 01.01.2024
+###  Публикация: 1690556   (123906) от 07.01.2024
 
-VA - Rock 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Stefan Gunnarsson - Stefan Gunnarsson (2010) [FLAC|Lossless|image + .cue] <Westcoast, AOR>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ThxSoMch - LOST! (2:06)
-02. Knox - Girl on the Internet (2:35)
-03. Halestorm - Terrible Things (feat. Ashley McBryde) (3:30)
-04. MIKE SHINODA - In My Head (2:52)(   Читать дальше...   )Жанр: RockПродолжительность: 02:11:32
+01. Better Things To Do (3:39)
+02. As You Go Along (4:12)
+03. All Of My Might (4:30)
+04. Bring Me Down (2:59)(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 00:48:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB0D8E81088F1DF9DE59024AC1E94ACBA05EA871
+magnet:?xt=urn:btih:154E246D8C91CCD8116DD69C840FFD723BE60D43
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686596   (124771) от 01.01.2024
+###  Публикация: 1690540   (123907) от 07.01.2024
 
-Grab Photos From Videos / Фото из видео v11.1.0 Mod by derrin [Ru/Multi]
+Luzbel - Anthología Perdida I (1998) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123907.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Извлекайте фотографии из ваших видео. Просто импортируйте видео со своего устройства, и вы можете либо запечатлеть кадр из видео в определенной позиции, либо сделать ряд фотографий из ваших видео. Установите начальный и конечный диапазон видео, а также количество кадров, которые вы хотите извлечь. Все изображения из видео будут сохранены на вашем телефоне. Разрешение (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 21.12.2023Разработчик: GreenBizkitПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+01. El Ángel De La Lujuria
+02. El Loco
+03. La Gran Ciudad
+04. Esta Noche Es Nuestra(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D3FA815BD7285B1B7B5F762FBE33D0D386C9E53
+magnet:?xt=urn:btih:6F6CA90815E476156EBE3E010FC17B2DFAA83505
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689088   (124772) от 01.01.2024
+###  Публикация: 1690402   (123908) от 07.01.2024
 
-Рождественские туфли / The Christmas Shoes (2002) BDRemux [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик пытается достать в подарок на Рождество туфли для своей умирающей мамы, в отчаянной надежде на чудо...Производство: США, Канада / Beth Grossbard Productions, Craig Anderson Productions Inc., Magic Rock Productions, Nova Scotia Film Industry Tax CreditЖанр: драма, семейныйРежиссер: Энди ВолкАктеры: Роб Лоу, Кимберли Уильямс-Пэйсли, Макс Морроу, Мария дель Мар, Хью Томпсон, Дориан Хэрвуд, Ширли Дуглас, Эмбер Маршалл, Ронда МакЛин, Джереми АкерманПеревод: двуголосый любительский (Владислав Данилов, Екатерина Гаврилова)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356BB683D0206ABBF05674CB9CC7140D5EE55283
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689372   (124773) от 01.01.2024
-
-Деточка | Укрощение жлобяры (2023) [MP3, Puffin Cafe]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124773.jpg" />
-</div>
-
-
-###  Подробнее
-
-"В данном рассказе Деточка посылает Вам новогоднее настроение. Всех с Новым Годом!" (с)Жанр: ЮморИздательство: Аудиокнига своими рукамиПродолжительность: 00:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:959FBDFFCE78B352A87982DA362A4B7BCE15FFEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689357   (124774) от 01.01.2024
-
-Eisfabrik - Gotter in Weiss (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, EBM>
+VA - Winter Dance Covers 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
 >>Electronic
->>Synthpop, New Wave (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123908.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hearts [00:04:26]
-02. Götter in Weiss [00:03:52]
-03. Lost My Mind [00:03:48]
-04. King of the Cold [00:04:06](   Читать дальше...   )Жанр: Synthpop, Futurepop, EBMПродолжительность: 00:45:37
+01. TwoRule - Shivers [03:03]
+02. Moses - Let Me Down Slowly [03:32]
+03. Alperen Ocak - Creepin' (I Don't Wanna Know) [02:54]
+04. TwoRule - Numb [02:41](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:35:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D19C70C50E84D40B37984A791A45F50582B7B10
+magnet:?xt=urn:btih:3AE3266E4F7A0683588AF2D7F3CC94B023A24D80
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689304   (124775) от 01.01.2024
+###  Публикация: 1690397   (123909) от 07.01.2024
 
-Ане Риэль | Зверь (2023) [MP3, Константин Панченко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трогательная и вместе с тем жуткая история, которая поражает до глубины души. Роман о подлинной дружбе, предательстве, издевательствах и смерти; о мальчике с генетической мутацией, но одновременно и о каждом человеке – ведь на любого можно повесить клеймо «не такой, как все».
-Леон – необычный мальчик.
-Как и все дети, любит играть на ферме, гладить пушистых зверьков (   Читать дальше...   )Жанр: Детектив, триллерПеревод: Анна ФедороваИздательство: INSPIRIA / ЭксмоПродолжительность: 12:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C1E7102A3880B7F8A4F6B52D68905B53102085
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689252   (124776) от 01.01.2024
-
-Public Memory - Elegiac Beat (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Leftfield, Experimental, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clocktower Époque [00:03:55]
-02. Savage Grin [00:02:55]
-03. Afterimage [00:03:41]
-04. Cruel [00:03:56](   Читать дальше...   )Жанр: Ambient, Leftfield, Experimental, DowntempoПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D53255D8D3C1931ACDC5EE5A4AE2CBBE024201
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689262   (124777) от 01.01.2024
-
-Александр Пушкин | Медный всадник и другие поэмы (2015) [MP3, Сергей Гармаш]
+Михаил Булгаков | Дни Турбиных (Радиоспектакль) (2005) [MP3, Михаил Зимин, Вячеслав Расцветаев и др.]
 
 >>Художественные аудиокниги и публицистика
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123909.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поэмы в творчестве Пушкина занимают самое большое место наряду с лирикой. Всего поэтом было создано двенадцать поэм, и ещё более двенадцати сохранилось в планах и набросках. Ещё будучи лицеистом Пушкин начал, но не закончил ещё совсем детскую шутливую поэму «Монах» и сказочную поэму «Бова». В 1817 г. он начал самую большую свою поэму – «Руслан и Людмила» – и писал (   Читать дальше...   )Жанр: русская классика, поэмыИздательство: СОЮЗПродолжительность: 02:16:01
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Михаил Афанасьевич Булгаков (1891–1940) писатель, драматург, классик русской литературы ХХ столетия.
+Пьеса «Дни Турбиных» была написана Булгаковым по мотивам романа «Белая гвардия», созданного под впечатлением событий, пережитых писателем в конце 1918 – начале 1919 года в Киеве. События эти оказали огромное влияние на миропонимание (   Читать дальше...   )Жанр: Русская литература, классика, пьесаИздательство: ИДДК, ГостелерадиофондПродолжительность: 02:59:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE22196E630A01FFB870F7FB1E1EB294BE009594
+magnet:?xt=urn:btih:B3472BD833477A253B6032FD4025492AE984D896
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689202   (124778) от 01.01.2024
+###  Публикация: 1690529   (123910) от 07.01.2024
 
-Игорь Куприянов - Северный ветер (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+The Jazz Kings - Blue Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123910.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Северный ветер [00:03:50]
-02. Облака [00:03:49]
-03. Тишина [00:02:55]
-04. Новый день [00:03:36](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:06
+01. Ferry Cross The Mersey
+02. Rockin' Gold
+03. Still Got The Blues
+04. Popsicle Toes(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:45:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB36C8C937B2A33F911A741D25EBBFDAA8758D38
+magnet:?xt=urn:btih:237165C1E5F8C45A991D323505BFB4843FD35116
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689260   (124779) от 01.01.2024
+###  Публикация: 1690401   (123911) от 07.01.2024
 
-Ночь душителя / The Night of the Strangler (1972) BDRip [H.264] [VO]
+Михаил Булгаков | Театральный роман (2013) [MP3, Ирина Ерисанова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Афанасьевич Булгаков (1891–1940) писатель, драматург, классик русской литературы ХХ столетия.
+Свой неоконченный «Театральный роман» (авторское название «Записки покойника») Михаил Афанасьевич Булгаков создавал в 1936-1937 годах, после разрыва отношений с МХАТом и его главой Константином Сергеевичем Станиславским. Писатель остро переживал прекращение репетиций (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Нигде не купишьПродолжительность: 05:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DAC26FEB6443F8F83FB8E43EBA4A8CD5950502
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690368   (123912) от 07.01.2024
+
+Antania - The God Complex (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Black Metal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The God Complex [00:04:12]
+02. Angels and Demons III [00:04:09]
+03. Antania [00:03:51]
+04. D3D Solz [00:05:05](   Читать дальше...   )Жанр: Industrial Metal, Black MetalПродолжительность: 01:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ABEF74A9CD1651C19AD2599D90C169311253205
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690346   (123913) от 07.01.2024
+
+VA - Ronny's Pop Show 25 (1994) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ini Kamoze - Here Comes The Hotstepper
+02.  Schwester S. - Ja Klar
+03.  Sparks - When Do I Get To Sing My Way
+04.  The Connells - '74-'75(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Reggae, PopПродолжительность: 02:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD217088D258F5767ED23D0B49FF951B4BD86BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690547   (123914) от 07.01.2024
+
+Газета | Тайны ХХ века №27 (июль 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123914.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018363BA3E5519EA8EB55E262061B4DA6AA86969
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690454   (123915) от 07.01.2024
+
+Pages - Pages (1981) Japanese Edition, Reissue, Remastered, 2001, Capitol Records [FLAC|Lossless|image + .cue] <AOR, Westcoast>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123915.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. You Need A Hero (3:43)
+2. Tell Me (3:52)
+3. O.C.O.E. (Official Cat Of The Eighties) (5:00)
+4. Come On Home (3:31)(   Читать дальше...   )Жанр: AOR, WestcoastПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A027DC475AAC583AC5F2F226D75450604DB618AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690561   (123916) от 07.01.2024
+
+Ги де Мопассан | Парижское приключение (2017) [MP3, Александр Бордуков, Александр Котов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика на все времена (Французская литература).
+Классическая художественная литература Франции богата и красочна. Она широко охватывает французскую социальную жизнь, историю, быт, нравы и психологию человека различных общественных слоев, придвигая к нашему взору бедность и богатство, роскошь и убожество, город и деревню. Она с любовью рисует лик всего (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказ, новеллаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 07:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC499A8077A0902841AD188FBA01570DAE3D7151
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690482   (123917) от 07.01.2024
+
+Ги де Мопассан | Милый друг (2003) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Зарубежная классика.
+Ги де Мопассан (1850–1893) – один из самых популярных французских писателей конца XIX века.
+«Милый друг» – роман-памфлет, показывающий неприглядную кухню политики и журналистики в Третьей Республике. И это роман об «антилюбви», ибо его герой Жорж Дюруа, наглый и ловкий делец, строит свою карьеру почти исключительно на расчетливых (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 14:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F91D864525DF78322E5F6B7658156511798B53F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690557   (123918) от 07.01.2024
+
+Чадра (1927) WEBRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123918.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый Орлеан. Мужчина узнает, что его сестра связалась с чернокожим человеком и забеременела от него. Он выгоняет девушку из дома, но вскоре ее обнаруживают убитой, хотя обстоятельства ее гибели инсценированы под самоубийство. Подозрение падает на любовника девушки, но вскоре его самого убивает загадочный маньяк. За расследование этих странных смертей принимаются (   Читать дальше...   )Производство: США / Joy-Oke ProductionsЖанр: ужасы, триллер, драма, криминалРежиссер: Джой Н. Хоук мл.Актеры: Мики Доленц, Джеймс Ралстон, Майкл Энтони, Чак Паттерсон, Сьюзэн МакКалло, Кэти Тилли, Энн Баррет, Уоррен Кеннер, Эд Браун, Гарольд СильвестрПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), русскиеПродолжительность: 01:30:25
+О раскрепощении узбекской женщины. Фильм призывает мусульманок сбрасывать паранджу, учиться в школе и приносить пользу обществу.Производство: СССР, УзбекгоскиноЖанр: социальная драма, история, немое киноРежиссер: Михаил АвербахАктеры: Сафият Аскарова, Саиб Ходжаев, Григол Чечелашвили, Е. Павлова, Макангали Абдуллаев, Рахим ПирмухамедовСубтитры: русские (интертитры)Продолжительность: 01:12:31 (00:55:10)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86697D5B577492D931BEAB300BCE13EF5CF4ED02
+magnet:?xt=urn:btih:0883F7020EA883ECDDD84443B1CC1F63093698B9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689200   (124780) от 01.01.2024
+###  Публикация: 1690433   (123919) от 07.01.2024
 
-Мутант Ъхвлам - АРМАГЕДОНИЗМЪ (Сторона А) (2023) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
+Ethel Waters - Cocktail Hour (1920-e - 1940-e) 2CD, 2001, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
 
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123919.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Тсверел [00:02:20]
-02. Твоя Бо [00:01:44]
-03. Хирошим [00:03:24]
-04. Варяги [00:03:21](   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:44:39
+01. Jeepers Creepers [2:49]
+02. Heatwave [3:02]
+03. Harlem on My Mind [3:29]
+04. Y' Had It Comin' to You [2:19](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:23:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAA125CDBAB91F0B2C0980CC709EC87AC7FE3636
+magnet:?xt=urn:btih:1B29F6E8D2952094EF33B11EE29195910DE14478
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689279   (124781) от 01.01.2024
+###  Публикация: 1690344   (123920) от 07.01.2024
 
-Стивен Джонсон | Изобрели телеграф, затем айфон (2022) [MP3, Семён Ващенко]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как связан Голливуд и изобретение Wi-Fi и Bluetooth? Аудиокнига приоткроет для нас дверь в мир гениальных идей, изменивших мир Стивен Джонсон – автор одиннадцати бестселлеров, в том числе «Откуда берутся хорошие идеи», один из создателей завоевавшего «Эмми» сериала «Как мы до этого додумались», ведущий подкаста «Американские инновации». Стивен Джонсон исследует многовековую (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига АСТПродолжительность: 02:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513514D0F94A114C226DCCF6D1CF4BA737598746
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689347   (124782) от 01.01.2024
-
-Горизонт Выше - Синдром выжившего (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+yungatita - Shoelace & A Knot (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, indie rock>
 
 >>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. На твоих руках [00:03:35]
-02. Солнце [00:03:09]
-03. Творение [00:03:29]
-04. Эфир [00:03:50](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:55
+01. Poppy [00:02:11]
+02. Reckless [00:03:35]
+03. Other [00:03:25]
+04. Armchair [00:04:55](   Читать дальше...   )Жанр: Alternative, indie rockПродолжительность: 00:35:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EFF5F218497CDC72E81AA00AF53CEC61A61CD55
+magnet:?xt=urn:btih:D1DB98018F23107A1F92685D41B955AF599C758D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689403   (124783) от 01.01.2024
+###  Публикация: 1690550   (123921) от 07.01.2024
 
-Todd Grubbs - Inside Your Brain (2024) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Spider in the Sky (03:48)
- 02 - Got My Jet (04:02)
- 03 - My Own Demise (05:10)
- 04 - Hell Awaits the Hypocrite (04:53)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22364CA61E8E725149F1EBC59284A0A9A4EF6A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689371   (124784) от 01.01.2024
-
-Е. Измайлова (ред.) | Сделать счастливыми наших детей. Подростки (2018) [MP3, Анна Геллер]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124784.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе этой аудиокниги – лучшие статьи и материалы журнала Psychologies. Это одновременно ваш справочник, помощник и консультант. Рекомендуется не только родителям подростков, но и детей более раннего возраста. Есть вещи, которые необходимо знать заранее.Жанр: воспитание детей, детская психология, развитие ребёнкаИздательство: CLEVERПродолжительность: 04:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E7FBFF97E7E5244D0DEA05C2D64576A38FF011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689395   (124785) от 01.01.2024
-
-Джек Лондон | Северная Одиссея (2007) [MP3, Сергей Кирсанов]
+Ги де Мопассан | Рассказы вальдшнепа (2022) [MP3, Наталья Первина]
 
 >>Художественные аудиокниги и публицистика
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джек Лондон (1876–1916) – писатель и журналист, военный корреспондент, общественный деятель, классик американской литературы.
-В аудиокнигу вошли рассказы о нелегком завоевании «края земли». Это были времена «Золотой Лихорадки» и открытия Клондайка. В суровом испытании «Белым Безмолвием», настигавшем людей в снежной пустыне, раскрывались сила и слабость человеческого (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказИздательство: СиДиКом, ЭлитайлПродолжительность: 08:04:00
+Ги де Мопассан (1850–1893) – крупнейший французский новеллист, мастер рассказа с неожиданной концовкой.
+
+«Едва ли был другой такой писатель, столь искренно считавший, что все благо, весь смысл жизни – в женщине, в любви… и едва ли был когда-нибудь писатель, который до такой ясности и точности показал все ужасные стороны того самого явления, которое казалось ему самым (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: ИДДКПродолжительность: 04:22:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A21AF08DCDD44523F52C434564859231120949B
+magnet:?xt=urn:btih:EB76D2691A0B3518AFF6AF1E44A29583B23BA7F8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689258   (124786) от 01.01.2024
+###  Публикация: 1690559   (123922) от 07.01.2024
 
-Уильям Сомерсет Моэм | Луна и шестипенсовик (Луна и грош) (2023) [MP3, Александр Бордуков]
+Ги де Мопассан | Заведение Телье. Сборник новелл (2022) [MP3, Наталья Потопальская]
 
 >>Художественные аудиокниги и публицистика
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чарльз Стриклэнд, мелкий лондонский биржевой маклер, в котором никто из друзей и близких не замечал ничего необычного, после семнадцати лет брака, внезапно бросает жену и детей. Он уезжает в Париж и приводит в немалое изумление свою семью и знакомых сообщением о том, что он принял решение уехать, чтобы стать художником. Он начинает рисовать совершенно нестандартно, (   Читать дальше...   )Жанр: зарубежная классика, романыПеревод: Зинаида ВершининаИздательство: СОЮЗПродолжительность: 09:18:50
+Ги де Мопассан (1850–1893) – крупнейший французский новеллист, мастер рассказа с неожиданной концовкой.
+В своих произведениях Мопассан воспевает любовь и силу человеческого духа, рассказывает о трагедии одиночества и неразделенных чувств, осуждает корыстолюбие, лицемерие и предательство.
+Одним субботним вечером посетители обнаружили местный публичный дом закрытым. (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: ИДДКПродолжительность: 06:25:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A63E3CAF1815DEE55CDC70302F29464A2EE56E41
+magnet:?xt=urn:btih:D0AD7FDBD6947511F174B531A18CB9CFE91118B8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689295   (124787) от 01.01.2024
+###  Публикация: 1690478   (123923) от 07.01.2024
 
-Chase The Bear - Honey (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
+Orphaned Land - A Heaven You May Create (30th Anniversary / Live In Tel-Aviv) (2023) [FLAC|Lossless|image + .cue] <Doom, Death, Folk Metal, Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Underwater – 03:37
-02 - Hurtin’ – 03:18
-03 - Wildheart – 02:53
-04 - Here We Go Again – 02:18(   Читать дальше...   )Жанр: Glam RockПродолжительность: 00:38:55
+01. Mabool (The Flood)
+02. The Storm Still Rages Inside
+03. Like Orpheus
+04. Sapari(   Читать дальше...   )Жанр: Doom, Death, Folk Metal, Progressive MetalПродолжительность: 01:14:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:631DF6C1A632B07CF8837191EBA55C7BED0D8E16
+magnet:?xt=urn:btih:809E360CBD772739D144C62DC1D0161C3192C2F5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689257   (124788) от 01.01.2024
+###  Публикация: 1690494   (123924) от 07.01.2024
 
-Public Memory - Elegiac Beat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip Hop, Downtempo, Dub, Chillwave>
+Numenor - Sword and Sorcery (2015) Ressued-2016 [FLAC|Lossless|image + .cue] <Symphonic Epic Black Power Metal>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Clocktower Époque [00:03:55]
-02. Savage Grin [00:02:55]
-03. Afterimage [00:03:41]
-04. Cruel [00:03:56](   Читать дальше...   )Жанр: Trip Hop, Downtempo, Dub, ChillwaveПродолжительность: 00:41:38
+01. Prelude (instrumental)  01:17
+02. Dragonheart  04:13
+03. The Arcanist  03:23
+04. Interlude (instrumental)  01:15(   Читать дальше...   )Жанр: Symphonic Epic Black Power MetalПродолжительность: 00:58:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:349B1C177947457DABD2FAF057DD487F795833E8
+magnet:?xt=urn:btih:04ECA740019E0B4D1A2F43CE1492337AF4A70EAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690493   (123925) от 07.01.2024
+
+Газета | Моя Семья № 51 (Декабрь 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Общероссийская газета «Моя Семья» существует 11 лет. Издание появилось в июне 2000 года, и сегодня «Моя Семья» входит в число самых популярных изданий России. Газета стала не просто средством информации. Почти в каждом письме читатели пишут: теперь я не представляю своей жизни без вашей газеты. Прочитать её хотя бы раз в неделю стало для людей потребностью, такой (   Читать дальше...   )Жанр: Семья, Дом, Быт. ДосугИздательство: ООО "Издательство "Моя Семья"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D23348D5A6186D1F3328A93BE3B1BEC9EEB2746
 ```
 
 

@@ -1,3 +1,111 @@
+###  Публикация: 1678980   (142177) от 23.11.2023
+
+Prostoband - Гештальт (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Птица-жизнь [00:03:16]
+02. Навсегда [00:04:32]
+03. На краю пропасти [00:04:29]
+04. Сам за себя [00:04:10](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:895D7459731F8E8773B68FB883EA58E4062EE5F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678883   (142600) от 23.11.2023
+
+Антон Эльдаров - Летание (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Люба [00:03:25]
+02. Трамвайный гранж [00:02:52]
+03. Слова [00:04:00]
+04. Кольцевая [00:04:48](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E79EA5D8E497D24912C7545BF41269FD00CCA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520235   (143853) от 27.12.2021
+
+Jasanel - The Universe Can Sing (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Days (03:30)
+02. The Universe Can Sing (03:26)
+03. Make You Feel (03:47)
+04. Should Know (03:04)(   Читать дальше...   )Жанр: Melodic Metal, Female VocalПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F7C49E69372A40D6E36ACEE05D9F586A8BF7B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678767   (143901) от 22.11.2023
+
+СЛОТ - Инстинкт выживания (2022) Live in Moscow, Explict Edition, M2BA [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro 2021 (Live in Moscow) [00:01:32]
+02 - Стадия гнева (Live in Moscow) [00:04:09]
+03 - Пуля (Live in Moscow) [00:03:34]
+04 - 200 кВт (Live in Moscow) [00:03:33](   Читать дальше...   )Жанр: Alternative-MetalПродолжительность: 01:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:166621B7FD1CB8DC0FACE46B9C05B056741F5C2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678659   (144043) от 22.11.2023
 
 Powder Burns - ... На Горячей Земле (2023) [FLAC|Lossless|WEB-DL|tracks] <Death-Metal, Oldschool>
@@ -586,120 +694,6 @@ Methinks - Будет день опять (2022) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91B0388F2EE49E9F7A35285B7DDEFD28BD6AE6B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521789   (156662) от 20.12.2019
-
-Глеб СамойлоFF & The MatriXX - Прекрасное Жестоко + Маленький Фриц (2010) Limited Edition 999 Copies [FLAC|Lossless]<Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Барон и за рекой (02:47)
-02. Но Пасаран! (03:48)
-03. Фрау его мечты (02:59)
-04. Блиц криг (01:19)
-05. Последний подвиг Евы Браун (03:07)
-06. Гитлер (03:55)
-07. Командир (02:16)
-08. Покрышкин (02:04)
-09. Партизаны (03:42)
-10. Дезертир (02:56)(   Читать дальше...   )Жанр: Gothic Rock |Продолжительность: 00:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D55C34278E725E98ECD48D971A2BD760626F9D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433753   (157174) от 21.12.2020
-
-All The Cold - To The Emerald Land (2020) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Black Metal, Ambient, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Island of Snow (19:27)
-02. Tidewater (1:59)
-03. Into The Storm (12:59)
-04. Bracada (2:29)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Ambient, Instrumental, CinematicПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25119502CB2FA5B3B83691617928B19E1C34FFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194290   (157441) от 24.12.2017
-
-The Matrixx - Здравствуй (2017) [FLAC|Lossless|tracks + .cue] <Neo-Post-Gothic, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157441.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Звезда
-2. Дружок
-3. Дурачок
-4. From Hell(   Читать дальше...   )Жанр: Neo-Post-Gothic, AlternativeПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:015E881A6D238A811E75B6BBCA31BCC95BFE7709
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518134   (157759) от 18.12.2021
-
-Андрей Сапунов - Говори (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я знаю
-02. Падают листья
-03. Волхвы
-04. Кони(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E401A82DD17F46737C5F02DF468D16BE5905FE66
 ```
 
 

@@ -1,694 +1,653 @@
-###  Публикация: 1659078   (190637) от 10.09.2023
+###  Публикация: 1660672   (189353) от 13.09.2023
 
-Своя игра (10.09.2023) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379AFADAC035BD93DDD39E99D25584AFD3FCEBCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658296   (190640) от 10.09.2023
-
-King Gizzard & The Lizard Wizard - Ice, Death, Planets, Lungs, Mushrooms And Lava (2022) [MP3|320 Kbps] <Psychedelic, Garage Rock, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mycelium [00:07:35]
-02 - Ice V [00:10:15]
-03 - Magma [00:09:06]
-04 - Lava [00:06:41](   Читать дальше...   )Жанр: Psychedelic, Garage Rock, DoomПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC8AC77B9F7E9779F7773CD98BF5562151932AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658020   (190642) от 10.09.2023
-
-Loggins & Messina - Long Island 1976 (live) (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Introduction (live) [00:01:12]
-02 - Another Road (live) [00:02:27]
-03 - Danny's Song (live) [00:03:03]
-04 - At The Whiskey (live) [00:02:19](   Читать дальше...   )Жанр: RockПродолжительность: 01:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB157D4B77F177D36F2E5D6026B2B619937C7B62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658935   (190644) от 10.09.2023
-
-Louis Hayes - Exactly Right! (2023) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exactly Right! [4:40]
-02. Is That So? [6:38]
-03. Hand in Glove [6:45]
-04. So Many Stars [5:34](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4100B021AB5060AB7875EA11668DA1E45C1307B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659157   (190645) от 10.09.2023
-
-NetWorker Pro 8.7.0 [Multi]
+Capture One 23 Enterprise 16.2.4.34 [En/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-NetWorker - это приложение, которое удобно отображает информацию о сети в строке меню. А также имеет окно с дополнительной информацией о текущем активном сетевом адаптере.Тип издания: macOS SoftwareРелиз состоялся: 10.09.2023Разработчик: © 2016-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский и др.
+Capture One 23 Enterprise — решение для редактирования фотографий для студий обработки изображений и платформ электронной коммерции. Его аутентичная реалистичная обработка цветов, беспрепятственный процесс редактирования и самое быстрое в отрасли подключение дают вам полный творческий контроль, что делает его имя нарицательным в студиях по всему миру. Компания Capture (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.09.2023Разработчик: © 2023 Phase OneПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B22A1DB3B05EE81D4D71F2A9091422E5701802E6
+magnet:?xt=urn:btih:7BC6CBFD667F35E3196C92E3C9395473857BB1B0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658899   (190648) от 10.09.2023
+###  Публикация: 1590204   (189354) от 12.11.2022
 
-Iced Earth - I Walk Among You (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Metal>
+Viber 18.8.0.4 (x64) [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189354.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Setian Massacre (2008 Remixed & Remastered) [00:03:35]
-02. A Charge To Keep (2008 Remixed & Remastered) [00:04:19]
-03. The Clouding (2008 Remixed & Remastered) [00:09:03]
-04. Dark Saga (Live at Graspop Metal Meeting 2008) [00:03:35](   Читать дальше...   )Жанр: Power, Thrash MetalПродолжительность: 00:32:33
+Viber для Windows позволяет бесплатно отправлять сообщения и звонить другим пользователям Viber на любые устройства в любых сетях и странах. Viber синхронизирует Ваши контакты, сообщения и журнал звонков с Вашим мобильным устройством. Интегрируется в адресную книгу и авторизует по номеру телефона. Позволяет делать бесплатные звонки через Wi-Fi и мобильные сети 3G (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0A63AE564F185AE17031BBC02409D68A2E6BC1E
+magnet:?xt=urn:btih:D4A7FDBEAB6B7CF36C2F1A8FA198351D4D1A409A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658901   (190650) от 10.09.2023
+###  Публикация: 1660660   (189356) от 13.09.2023
 
-Якорь - Дорога к счастью (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
+Матильда Старр, Мира Славная | Невольная ведьма. Добро пожаловать в кошмар (2023) [MP3, Наталья Фролова]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Дорога к счастью [00:04:57]
-02. Ой тяжел ремень, бляха чёрная... [00:04:48]
-03. Последняя агония [00:03:49]
-04. Не здесь и не сейчас [00:04:20](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:38:33
+Не ходи в ту избушку, там живет ведьма! Да только кто верит в эти бабушкины сказки? Не бери ничего из рук старухи, это опасно! А что делать, если яблоко будто само скользнуло в мои ладошки? И вот уже моя жизнь полна странностей, а таинственный незнакомец, который называет себя моим куратором, дает непростые задания и делает предложения, от которых никак не откажешься. (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 05:31:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A06DF4715F26EAA5C1BFD4802569A1BE7438F4BB
+magnet:?xt=urn:btih:DC2AA54F7C0ABEBB437845DBF2E625423827A7E3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658299   (190652) от 10.09.2023
+###  Публикация: 1660803   (189357) от 13.09.2023
 
-Mustang - Beyond Raging Thunder (2023) [MP3|320 Kbps] <Speed, Heavy Metal>
+High-Logic FontCreator Professional Edition 15.0.0.2934 [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189357.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Odyssey [00:01:17]
-02 - Children of Thunder [00:07:00]
-03 - Cosmic Rage [00:04:16]
-04 - Queen of Red Light [00:06:38](   Читать дальше...   )Жанр: Speed, Heavy MetalПродолжительность: 00:56:20
+FontCreator - Редактор шрифтов FontCreator может создавать свои собственные шрифты, переводить в файл шрифта любой шрифт с бумаги через сканирование, редактировать уже установленные шрифты. Для создания собственного рукописного шрифта можно просто написать на бумаге от руки (если нет планшета) все русские и английские буквы, цифры, специальные знаки, знаки препинания (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E33613C14B8FC17276D5A5A8B2E4A35B54DA440
+magnet:?xt=urn:btih:65F642499AD6854ECD0319803D97D7CF544E56FC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658961   (190654) от 10.09.2023
+###  Публикация: 1589960   (189358) от 12.11.2022
 
-Mats Karlsson - The Time Optimist (2019) [FLAC|Lossless|image + .cue] <Melodic Rock, Hard Rock>
+VA - Vocal Trance Classics 2022 [MP3|320 Kbps] <Uplifting Trance>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189358.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bumping Along (4:19)
-02. A Natural High (4:15)
-03. Megalo Seitani (4:14)
-04. I Believe (4:27)(   Читать дальше...   )Жанр: Melodic Rock, Hard RockПродолжительность: 00:46:43
+01. Beat Service & Neev Kennedy - But I Did (Radio Edit) (3:11)
+02. Ana Criado & Omnia - No One Home (Radio Edit) (3:39)
+03. The Doppler Effect - Beauty Hides In The Deep (The Blizzard Edit) (4:31)
+04. Richard Durand & Cynthia Hall - Shield Of Faith (Radio Edit) (4:00)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:24:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90E0F3C66BBAA4060AD2E409CD0A9CFA6195DC47
+magnet:?xt=urn:btih:A6F4E795B22A76945E524ECBC9D4D11280A06FD0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658102   (190656) от 10.09.2023
+###  Публикация: 1660678   (189359) от 13.09.2023
 
-Elderseer - Drown in the Shallowness (2023) [MP3|320 Kbps] <Melodic Doom, Death Metal>
+AirMail Pro 5 v.5.6.9 [Multi]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189359.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Gilded Shackles [00:09:24]
-02 - Under a Dark Sky [00:07:05]
-03 - This Aesthetic Life [00:07:36]
-04 - Drown in the Shallowness of It All [00:10:07](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 01:08:56
+Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
+По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.09.2023Разработчик: © 2022 Bloop S.R.L.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4B79A2CBC67E8E8BDA118AF7147B34309136E5D
+magnet:?xt=urn:btih:E725C5D4E5D3A49D205637C57777D9B1035F0869
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658956   (190658) от 10.09.2023
+###  Публикация: 1590044   (189360) от 12.11.2022
 
-Fiction Syxx - Tall Dark Secrets (2017) Reissue, 2020, MelodicRock Records [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock, AOR>
+PrivaZer (Donors) 4.0.58 RePack (& Portable) by Dodakaedr [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189360.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Given Sight (4:50)
-02. Play On Words (4:05)
-03. Tow The Line (4:18)
-04. Welcome To My Nightmare (4:40)(   Читать дальше...   )Жанр: Hard Rock, Prog Rock, AORПродолжительность: 00:51:21
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:586EE6E97ECABEE27DF48BC00D6019C5033208E0
+magnet:?xt=urn:btih:C281B4D632034750F796A3888745613F32ACDDFF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659093   (190660) от 10.09.2023
+###  Публикация: 1590117   (189361) от 12.11.2022
 
-Art Of Shock - Shine Black Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy Metal>
+Валерий Атамашкин | Я – Спартак! (Книга 1). Возмездие неизбежно (2020) [MP3, Григорий Андрианов]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189361.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 2020V [00:04:01]
-02. Devoid [00:04:02]
-03. Death Stays Silent [00:03:57]
-04. Drag Me To Hell [00:04:48](   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 00:36:31
+Лейтенант ФСБ Спартак Гладков и олигарх Марк Крассовский – злейшие враги. Лейтенант несколько лет пытается уличить олигарха в продаже на черном рынке военных технологий. И наконец Гладков берет Крассовского с поличным при передаче террористам новейшей установки РЭБ. Во время завязавшейся перестрелки пуля попадает в прибор и… Спартак оказывается в далеком прошлом, (   Читать дальше...   )Жанр: Историческая фантастика, ПопаданцыПродолжительность: 12:04:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3E3D03FD6F9BBD9AD5175DA40236DEB14C9A13B
+magnet:?xt=urn:btih:9259E5D5E400F4409B5E85B7DB18AB0ABC9D5101
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659183   (190662) от 10.09.2023
+###  Публикация: 1660381   (189362) от 13.09.2023
 
-Graveworm - Killing Innocence (2023) [FLAC|Lossless|image + .cue] <Melodic Black, Death, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escorting The Soul
-02. We Are The Resistance
-03. Wicked Mind
-04. If The World Shut Down(   Читать дальше...   )Жанр: Melodic Black, Death, Gothic MetalПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C09E15FE3F315CEBE58E060D3498654811E21F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658909   (190663) от 10.09.2023
-
-Teiger - Teiger (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock, Progressive Rock, Acoustic Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crawl [00:03:19]
-02. Sahara [00:03:51]
-03. Come And Find Me [00:03:27]
-04. Slow Burning [00:03:53](   Читать дальше...   )Жанр: Atmospheric Rock, Progressive Rock, Acoustic Rock, Female VocalПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4F66E7E2ECB5FF6C90BEB9921B3F4AB41F3327
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659180   (190666) от 10.09.2023
-
-Catalyst - The Age Of Rocketeers (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Struggle [00:04:13]
-02. Stick to the Plan [00:04:14]
-03. Solace [00:04:37]
-04. Constructed Truth (Pravda!) [00:03:48](   Читать дальше...   )Жанр: Progressive Melodic Death MetalПродолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C37380222A8EA94A5B650AB4FA12C58B0FC146E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659170   (190668) от 10.09.2023
-
-Genitals - Genital Horrors (2023) EP [FLAC|Lossless|image + .cue] <Goregrind>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Death Motif
-02 - Savagely Stuffed In A Suitcase
-03 - Erotic Necroticism
-04 - Ignore The Infection(   Читать дальше...   )Жанр: GoregrindПродолжительность: 00:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D914CCBCE2DEE1EB7123CAB8030AC4564F6F10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659133   (190670) от 10.09.2023
-
-Skull & Crossbones - Sungazer (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Fyre [00:04:28]
-02. Sungazer [00:05:02]
-03. Manhunter [00:04:13]
-04. The Invisible Man [00:05:07](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588499E8D28AF6C2F8D3DC0650941B87166A5A45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659101   (190672) от 10.09.2023
-
-Downes Braide Association - Celestial Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog-Related, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look What You Do [00:06:17]
-02. Clear Light [00:05:00]
-03. Keep On Moving [00:06:36]
-04. Darker Side Of Fame [00:03:56](   Читать дальше...   )Жанр: Prog-Related, Pop RockПродолжительность: 01:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:950378E62CB10FF1E7AD90E9BFA23DD2C218A0D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658827   (190674) от 10.09.2023
-
-McCoy Tyner - The Montreux Years (1981 - 2009) 2023, BMG [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+VA - Bar Lounge Costes, Vol. 6 Lounge & Smooth Jazz Flavors (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189362.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Latino Suite [12:05]
-02. Eternally Yours [7:33]
-03. Fly with the Wind [17:02]
-04. Walk Spirit, Talk Spirit [16:27](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:23:32
+01. Peter Pearson - Like It Was (4:14)
+02. Schwarz & Funk - La Otra Cara (Remastered) (6:55)
+03. Lennart Richter - Ride Along (3:24)
+04. thE fluiD musics lab. & Ritmo - Jazzfantastic (4:40)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F03824B801DBFF87A921A89B007AD2D761F748D
+magnet:?xt=urn:btih:A783D83934DD619D3A8131511909020CB0085DAE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658908   (190675) от 10.09.2023
+###  Публикация: 1660370   (189363) от 13.09.2023
 
-Colony Collapse - You Miss Everything (2022) Deluxe Edition, 2023, Theoria Records [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore>
+VA - Welcome to My Life - Pop-Rock Anthem (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189363.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Too Much, Too Soon [00:03:44]
-02. Empty Mirror [00:03:43]
-03. Take Forever [00:04:23]
-04. The Love That Remains [00:03:40](   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:43:11
+01. Simple Plan - Welcome to My Life (3:27)
+02. Paramore - This Is Why (3:28)
+03. My Chemical Romance - Honey, This Mirror Isn't Big Enough for the Two of Us (3:53)
+04. Crash Adams - Give Me a Kiss (2:49)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:38:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8CB81D3D36016D15B54A815AC3B0BED4E0E5667
+magnet:?xt=urn:btih:79B5E2845A1F34F3A58D657CCBE6C0CB63920442
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659164   (190678) от 10.09.2023
+###  Публикация: 1590194   (189364) от 12.11.2022
 
-Fatmas - External Internal Eternal (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+Р.Л. Стайн | Ужастики. Пугало гуляет в полночь (2022) [FB2, EPUB]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Night Owl (00:06:40)
-02 - Trans-Hubris (00:07:52)
-03 - Love and War (00:15:49)
-04 - Shark Then Seal (00:07:13)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:46:41
+Джоди любит приезжать на ферму к дедушке. Ничего особенно интересного там нет, зато дедушка знает множество страшных историй. А какие оладьи печет бабушка – объедение!
+Но в этом году на ферме все по-другому. Дедушка с бабушкой очень состарились. А на кукурузном поле происходит что-то непонятное. Если раньше там было одно пугало, то теперь их не меньше дюжины, и выглядят (   Читать дальше...   )Жанр: Детская фантастика, детские приключенияПеревод: А. ГеоргиевФормат: FB2, EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28EA0AAE2F17E4A38C0158E4030CB282CF6A90E0
+magnet:?xt=urn:btih:301B38D69D53DC1D36EC1FC8FDEC1B32E5A90AD2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659146   (190680) от 10.09.2023
+###  Публикация: 1590245   (189365) от 12.11.2022
 
-Experiment Specimen - Purity Of Purpose (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+Белые волки: призраки Арктики / White Wolves: Ghosts of the Arctic (2017) WEB-DL [H.265/2160p]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Документалистика и Телепередачи
+>>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189365.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Organism
-02. Hadron Collider
-03. Sinkhole
-04. Biometrics(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:40
+На самой северной окраине Канады лежит отдаленная и бесплодная пустыня: остров Элсмир. Там семья арктических волков воспитывает помет щенков в неумолимой среде. Этот потрясающий документальный фильм переносит зрителей в один из дальних уголков планеты Земли, чтобы они могли лично взглянуть на отношения и тщательно срежиссированные социальные и охотничьи ритуалы, (   Читать дальше...   )Производство: Германия, Канада, Doclights / NDR Naturfilm, Morag Loves Wolves, Thirteen ProductionЖанр: документальный, природа, флора, фаунаРежиссер: Оливер ГетцльПеревод: одноголосый профессиональныйСубтитры: английскиеПродолжительность: 00:54:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C96D9E2ADB5FA8BFC020D8985D6F0A2492B5483B
+magnet:?xt=urn:btih:8A3B395F3C1998B757E229A2AA1BF5D47BF18884
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658890   (190681) от 10.09.2023
+###  Публикация: 1590147   (189366) от 12.11.2022
 
-Evilon - A Warriors Way (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Folk Metal>
+Дарья Донцова | Тайны Медовой Долины [2 книги] (2022) [EPUB]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189366.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Yggdrasil [00:04:38]
-02. Jotunheim [00:04:25]
-03. Walk Of The Damned [00:05:21]
-04. A Warriors Way [00:05:16](   Читать дальше...   )Жанр: Melodic Death, Folk MetalПродолжительность: 00:46:33
+Отличная новость для поклонников мультсериала «Тайны Медовой долины», созданного по сценариям писательницы Дарьи Донцовой.
+Теперь приключения сказочных зверюшек Медовой долины на страницах красочных книг. Разгадывайте детективные загадки, тренируйте внимательность и сообразительность, смейтесь над забавными шутками и берите уроки хороших манер у совы Софи.
+Медовая (   Читать дальше...   )Жанр: Детские приключения, сказкиФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD29E2FB28AC4671BC66500BF6A407322657D74F
+magnet:?xt=urn:btih:5F1B3815A0297029CB1C10BBC8C1CD1D58980488
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658809   (190682) от 10.09.2023
+###  Публикация: 1589852   (189367) от 12.11.2022
 
-Slomatics - Strontium Fields (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom Metal>
+Bruce Springsteen - Only the Strong Survive (2022) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189367.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wooden Satellites [00:03:49]
-02. I, Neanderthal [00:03:58]
-03. Time Capture [00:05:47]
-04. Like A Kind of Minotaur [00:03:11](   Читать дальше...   )Жанр: Sludge Doom MetalПродолжительность: 00:36:12
+01. Only the Strong Survive [00:02:59]
+02. Soul Days [00:03:58]
+03. Nightshift [00:04:56]
+04. Do I Love You (Indeed I Do) [00:02:27](   Читать дальше...   )Жанр: RockПродолжительность: 00:50:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2CD51476D1844FFD238346F251613AB481765F72
+magnet:?xt=urn:btih:5BF4146C04F7A3EAC43FEA40F572CDA26686D3C6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658911   (190683) от 10.09.2023
+###  Публикация: 1590123   (189368) от 12.11.2022
 
-Divides Unfold - Distain (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alt. Metal>
+Viber 18.8.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189368.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fire of The Sun [00:05:52]
-02. In The Dark [00:05:02]
-03. Far Beyond [00:04:57]
-04. Find Your Piece [00:05:29](   Читать дальше...   )Жанр: Hard Rock, Alt. MetalПродолжительность: 00:41:02
+Viber - десктопная версия популярного мобильного приложения для IP-телефонии, с помощью которого
+можно свободно отправлять сообщения, совершать голосовые и видеовызовы (HD качество) другим пользователям
+Viber, вне зависимости от того каким устройством они пользуются, к какой сети подключены и в какой стране
+находятся.(   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A3882BBD0D4B395F7886DAC064A50BFDBF510A3
+magnet:?xt=urn:btih:5B73A1249965F8FEDAC85D6FC23CB034CC953460
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659179   (190688) от 10.09.2023
+###  Публикация: 1590070   (189369) от 12.11.2022
 
-Taake - Et Hav av Avstand (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+Ундервуд - За горизонтом (2022) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Denne forblaaste Ruin av en Bro
-02 - Utarmede Gruver
-03 - Gid sprakk Vi
-04 - Et Uhyre av en KnivЖанр: Black MetalПродолжительность: 00:42:15
+1. Когда-нибудь
+2. Ради контента
+3. Лавацца
+4. Шуры-муры(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D47AAFC22EF2C826628562D61F53B43401F1A831
+magnet:?xt=urn:btih:744AF071F8347A3D4F2ADD1B71163AE8E2C33C35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590167   (189370) от 12.11.2022
+
+Николай Леонов, Алексей Макеев | Рыцарь справедливости (2022) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все началось с того, что кто-то стал умышленно портить машины на парковках. Полковник МВД Гуров получил задание вычислить хулигана, но тот оказался хитрее. Вскоре злоумышленник переключился на собак, начав убивать домашних питомцев. И снова ему удалось уйти от наказания. Когда же была совершена попытка отравить продукты в депутатской столовой, сыщики забеспокоились (   Читать дальше...   )Жанр: Полицейские детективыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013D25D0901E8DDCEF0BDAD21EB865C23F665AF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660384   (189371) от 13.09.2023
+
+VA - Jazz music to concentrate (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles Davis - Générique (Bande originale du film "Ascenseur pour l'échafaud") (2:49)
+02. Tommy Flanagan Trio - In The Blue Of The Evening (3:42)
+03. Wes Montgomery - Days Of Wine And Roses (3:48)
+04. Wayne Shorter - Footprints (Remastered) (7:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF278BAEA733617C38985A6769B4C89C7B9C01D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590071   (189372) от 12.11.2022
+
+Зедер / Zeder (1983) BDRip [H.265/1080p] [10-bit] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189372.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1950-х ученый Паоло Зедер исследовал геопатогенные зоны — трупы, захороненные в таких местах возвращались к жизни. Спустя несколько десятилетий пишущая машинка Зедера попала к молодому писателю, а тот сумел разобрать некоторые записи, сохранившиеся на ленте машинки.Производство: Италия / A.M.A. Film, Radiotelevisione Italiana (RAI)Жанр: ужасыРежиссер: Пупи АватиАктеры: Габриэле Лавиа, Анн Кановас, Paola Tanziani, Чезаре Барбетти, Боб Тонелли, Фердинандо Орланди, Enea Ferrario, Джон Стэйси, Алекс Партексано, Марчелло ТускоПеревод: Одноголосый любительский (Сергей Кузнецов)Субтитры: английскиеПродолжительность: 01:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68952569EC975EBE2694242B7F6EAC5663C71CAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660750   (189373) от 13.09.2023
+
+Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Orchestra>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189373.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Vienna Blood
+A2 Radetzky March
+A3 Tales From The Vienna Woods
+B1 The Blue Danube(   Читать дальше...   )Жанр: Classical, OrchestraПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D858E792FB950D84665DA18F030402FED88E0E01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660408   (189374) от 13.09.2023
+
+VA - Unforgettable Romantic Moments Smooth Jazz Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Like a River (5:23)
+02. eJazz Artistry - Colder Weather (3:59)
+03. Kool&Klean - Guessing Game (4:17)
+04. Konstantin Klashtorni - Used to Love You (4:08)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA33622AEC365F6BA9165847D85D386CBA7D8DDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590108   (189375) от 12.11.2022
+
+HDCleaner 2.037 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189375.jpg" />
+</div>
+
+
+###  Подробнее
+
+HDCleaner – многофункциональный программный продукт от немецкого разработчика софта Kurt Zimmermann, предназначенный для очистки компьютера, работающего под ОС Windows. Данный набор эффективных средств для очистки ПК и создавался как бесплатная альтернатива известному и популярному CCleaner, а по возможностям сопоставим с Pro версией вышеупомянутой программы. Очищаете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B32AE52E3056A39918FE7DF04F43B94AA660CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590244   (189376) от 12.11.2022
+
+Белые волки: призраки Арктики / White Wolves: Ghosts of the Arctic (2017) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189376.jpg" />
+</div>
+
+
+###  Подробнее
+
+На самой северной окраине Канады лежит отдаленная и бесплодная пустыня: остров Элсмир. Там семья арктических волков воспитывает помет щенков в неумолимой среде. Этот потрясающий документальный фильм переносит зрителей в один из дальних уголков планеты Земли, чтобы они могли лично взглянуть на отношения и тщательно срежиссированные социальные и охотничьи ритуалы, (   Читать дальше...   )Производство: Германия, Канада, Doclights / NDR Naturfilm, Morag Loves Wolves, Thirteen ProductionЖанр: документальный, природа, флора, фаунаРежиссер: Оливер ГетцльПеревод: одноголосый профессиональныйСубтитры: английскиеПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D797FB55CE2E09A3748FD474262B1CB7D1425C43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660466   (189377) от 13.09.2023
+
+Cycling'74 Max 8.5.6 + RNBO U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189377.jpg" />
+</div>
+
+
+###  Подробнее
+
+MAX 8 - это визуальный язык программирования для музыки и мультимедиа. За время своей более чем 20-летней истории, он был использован композиторами, исполнителями, разработчиками программного обеспечения, исследователями и художниками.Тип издания: macOS SoftwareРелиз состоялся: 06.09.2023Разработчик: © Cycling '74Поддерживаемая ОС: macOS 10.11.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16911D51C0CBD4841514C56501CF0CE884903644
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660771   (189378) от 13.09.2023
+
+Газета | Московский Комсомолец №169 (Сентябрь 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Московский комсомолец - популярная российская газета. Выходит во всех крупных городах России. Ежедневно обновляемые статьи, обзоры, комментарии. Собственная лента новостей. Выходит с 11 декабря 1919 г. Распространяется по всей России, в ближнем зарубежье, в Европе и Америке.Жанр: Культура, Эстетика, История, Общество, ПолитикаИздательство: АО "Редакция газета "Московский Комсомолец"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BABBEAA38C99BB914D2252F7F5AD04FA2C3E623
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660761   (189379) от 13.09.2023
+
+Татьяна Корсакова | Гремучий ручей (Книга 2). Шепот гремучей лощины (2023) [MP3, Евгения Меркулова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дремлет старый дом на дне оврагов, кутается в вечные сумерки. Но покой его обманчив. Зло уже сорвалось с цепи. И непроглядный туман рождает голодную нежить. А Темный пес о трех головах – больше не легенда. В этом мире тяжело сохранить душу, потому что шепот в голове все громче, а неутолимая жажда все сильнее. И тебе одному решать, кем ты вернешься в Гремучую лощину, (   Читать дальше...   )Жанр: МистикаИздательство: ЭксмоПродолжительность: 10:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9197ADE2FF26CEB94B123E57E409EE50FF583030
 ```
 
 

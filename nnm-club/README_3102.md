@@ -1,712 +1,696 @@
-###  Публикация: 482908   (99671) от 14.04.2012
+###  Публикация: 479433   (98827) от 07.04.2012
 
-Афанасiй Бычков | Бумаги императора Петра I [1873] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Афанасий Федорович Бычков (1818-1899) — академик; происходил из старинной дворянской семьи Ярославской губернии. Образование А.Ф. Бычков получил в ярославской гимназии и московском университете, где под влиянием М.П. Погодина посвятил себя изучению отечественной истории. Окончив курс в 1840 году, Бычков, по рекомендации М.П. Погодина, определен был в том же году на службу в Археографическую комиссию, где он с 1854 года исправлял должность главного редактора летописей. Под его редакцией изданы шесть томов "Полного собрания русских летописей" и, сверх того, летописи Лаврентьевская и вторая и третья Новгородские; с 1865 по 1873 гг. он состоял правителем дел комиссии, а в последние годы является и ее руководителем, нередко заступая место ее председателя. Началом последнего по времени трудом является собрание и редакция "Бумаг императора Петра I", послуживших основой для "Писем и бумаг императора Петра Великого". Этот обширный сборник — результат многолетних кропотливых трудов — проливает (   Читать дальше...   )1873Жанр: Раритеты / Документация / ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D8D51BB586D89D602B9DD784EE5C0D7831ACC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482605   (99675) от 14.04.2012
-
-Кит Холлиэн | Четыре степени жестокости [2011] [FB2]
+[Wallpapers] Desktop Wallpapers №4
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тюрьма строгого режима Дитмарш. Здесь отбывают срок самые опасные и жестокие преступники. Один из них, девятнадцатилетний Джош Рифф, пытается отдать на хранение надзирательнице Кали Уильяме загадочный комикс "Четыре степени жестокости", нарисованный его приятелем. Поначалу Уильяме отказывается. Но вскоре автор комикса исчезает из камеры при таинственных обстоятельствах... и Уильяме становится интересно: что стоит за его внешне простенькими рисунками?
-Так начинается захватывающая история убийств и обманов, тайных обществ и странных шифров...2011Формат: FB2
+[Wallpapers] Desktop Wallpapers №4
+Название: Desktop Wallpapers №4
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6810E4CACF87DB831F90C8C9BB562BA9CB88EE3E
+magnet:?xt=urn:btih:C87B086DB8B52037A0C9A96C4BE913EAA4B9DE8A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483118   (99678) от 14.04.2012
+###  Публикация: 478832   (98828) от 07.04.2012
 
-У ковбоев так принято / The Cowboy Way (1994) DVDRip
+[Wallpapers] Mixed Wallpapers 0.2
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98828.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Два друга-ковбоя из американской глубинки приезжают в большой город, чтобы «навести там порядок». Бесстрашные чемпионы многочисленных местных родео, одетые, подобно персонажам старых голливудских вестернов, в современном городе выглядят деревенскими увальнями и совершеннейшим анахронизмом.
-Однако, как это обычно и бывает, наивность и врожденное чувство справедливости помогают им храбро сражаться с шайкой гангстеров, которые занимаются нелегальной переправкой эмигрантов с Кубы, в сети которых попалась дочь их друга.Жанр: Боевик, Комедия, ДрамаРежиссер: Грегг ЧемпионАктеры: Вуди Харрельсон, Кифер Сазерленд, Дилан МакДермотт, Эрни Хадсон, Кэра Буоно, Мардж Хелгенбергер, Томас Милиэн, Луис Гусман, Анхель Кабан, Мэттью Каулз, Хоакин Мартинес, Кристин Баэр, Кристофер Дьюрэнг.Перевод: • Двуголосый закадровый (профессиональный)
-• Авторский одноголосый (А. Гаврилов)Продолжительность: 01:42:21
+Качественный микс из обоев на разные темы(природа,кошки,юмор,креатив и др.)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC8F8E90E846378E21BBBC243C785A9823F84D08
+magnet:?xt=urn:btih:160C8E2D0E952347924C117A201DDD4276D62AA5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483020   (99686) от 14.04.2012
+###  Публикация: 479489   (98829) от 07.04.2012
 
-Энн Маккефри | Белый дракон [2012] [MP3]
+[Wallpapers] Best HD Wallpapers Pack (08.04.12)
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этого не должно было быть, но случилось: мальчик-лорд увидел дракончика, обреченного на гибель еще в яйце. Он не выдержал и помог малышу появиться на свет. Никто не успел вмешаться — произошло Запечатление, а вместе с ним — потрясение социальных основ Перна. Лорд должен жить в холде, Крылатый — в своем Вейре. Джексом оказался и тем, и другим. А вместе с белым Рутом — и кем-то третьим, человеком, совершившим невероятные подвиги и открытия, ставшим в один ряд с первыми людьми Перна.Жанр: фэнтези
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FDD346C174FD1AC8FA6CB049CE0CF5C6CCC5DE9
+magnet:?xt=urn:btih:1B2BB1F872C6BCB797EC4D43D2D75379367178B0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483372   (99691) от 15.04.2012
+###  Публикация: 479681   (98830) от 07.04.2012
 
-VA - Зарубежные Новинки Vol.41 from AGR (2012) [MP3|320 кб/с]<Pop>
+[Wallpapers] Desktop Wallpapers №6
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98830.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №6
+Название: Desktop Wallpapers №6
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2880х1800
+Расширение (тип) файлов: jpg, pngВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A71505547CA9F44585098DC852E4C1AFDC3539C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479699   (98831) от 07.04.2012
+
+[Wallpapers] Desktop wallpapers (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2269D937A0EDC00B3E0465381B7D6B6D7126005F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479685   (98832) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №8
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98832.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №8
+Название: Desktop Wallpapers №8
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E5DB306863462EBBF8D43CE148E4D3346C0498
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479483   (98833) от 07.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A9EF35FFBC820EF2C5B6BE04EF72708681FD7F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479754   (98834) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №14
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98834.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №14
+Название: Desktop Wallpapers №14
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E744BE7DAE44D89A57CCD2F110990E811C6A6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479484   (98837) от 07.04.2012
+
+[Wallpapers] Best HD Wallpapers (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8A66FCA3E86454533A6F03D8D1A45027E18CF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479682   (98838) от 07.04.2012
+
+[Wallpapers] Nature Pictures №38
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98838.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №38
+Название: Nature Pictures №38
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 1920х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:701098495B4266070762D51641B7FAFFF7260719
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478856   (98839) от 07.04.2012
+
+Omertah - Essence (Promo) (2012) [MP3|320 кб/с]<Atmospheric Math Metal / Post-Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98839.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Essence
+ 2. OceansЖанр: Atmospheric Math Metal / Post-RockПродолжительность: 00:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82266B60C85E0C5045BA7E0703780E440FE01A1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479488   (98841) от 07.04.2012
+
+[Wallpapers] Girls Wallpapers (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DC315D6DC801383901E61C67E89F793BB5481A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479332   (98842) от 07.04.2012
+
+Distance Call - Distance Call (2011) [FLAC|Lossless]<Melodic Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [0:12]
+02. Ray Of Light [3:55]
+03. Brick's [4:47]
+04. Gambling [3:14]
+05. Wing's Love [5:34]
+06. Set Me On Fire [3:24]
+07. Prisoner Of The Past [5:50]
+08. Paradise [5:40]
+09. First Kiss [6:11]
+10. Thunderstorm [4:28](   Читать дальше...   )Жанр: Melodic Metal, Heavy MetalПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479351   (98844) от 07.04.2012
+
+VA - Soul of Ibiza Volume 28 (07.04.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98844.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix)
+002. Ingsha & Di - Binary Code (Transit Passengers Remix)
+003. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix)
+004. Justin Dobslaw - Cold Snap (Andrew Rayel Remix)
+005. Vincent De Jager feat. Emma Lock - Dive (Original Mix)
+006. Sarah Rogers - Do It Again (Gianni Kosta Extended Mix)
+007. Cerf, Mitiska & Jaren - Down To You (Original Mix)
+008. Sander Van Doorn - Drink To Get Drunk (Extended Version)
+009. Luca De Maas - E-Motions 2011 (original mix)
+010. The Blizzard & Yuri Kane feat. Relyk - Everything About You07.04.2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73FEFFF1AEFFB57EEC0FAE023DAA4DA2660C2F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479485   (98845) от 07.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F78BEEDCCD64E5EC9CEFB6221339D4C6AE37B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479487   (98846) от 07.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F877ECF353922C06D02E7FBB077D39D5ABBFCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479465   (98849) от 07.04.2012
+
+[Wallpapers] Gilrs Wallpaper Collection (07.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34037B6326A7EC36F94E0CE650F39B2D34F6FFA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479154   (98850) от 07.04.2012
+
+Каникулы в Мексике - 2. Выпуск №25 (2012.04.06) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98850.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47074E21C44AC9A7B9D1944CEA662A7E20A72B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478116   (98854) от 07.04.2012
+
+VA - Клубная энергия танцпола (2012) [MP3|160-256 kbps]<Club>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98854.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bros Project feat. Rella Rox & Shayan - Leyra (Extended Version)
-02. Tony Ray feat. Gianna - Chica Loca (Iulian Florea Remix)
-03. Nicki Minaj feat. Nas, Drake & Young Jeezy - Champion
-04. Mike T feat. Rawanne - This Is The Night (Albert Kick Club Mix)
-05. Fat Joe feat. Chris Brown, Mary J Blige, Fabolous & Kirko Bangz - Another Round (Remix)
-06. Andrew Bayer feat. Alison May - Brick
-07. Joan Osborne - Broken Wings
-08. Madonna - Love Spent (Acoustic)
-09. Trina feat. Kid Cadet & Vinny Venditto - Outer Space
-10. PJ Morton feat. Lil Wayne - Lover(   Читать дальше...   )2012Жанр: PopПродолжительность: 03:08:40
+01. Siatria - Закрой глаза (prod. by Shaplin)
+02. Mixi - Между Мной И Тобой (Dj Andy Wait Remix)
+03. Akcent - My Passion (Emin K & Ansarov Remix)
+04. Armin Van Buuren feat. Sophie Ellis - Bextor - Not Giving Up On Love
+05. N - Finity - Someone Like You (Kris Mctwain Edit)
+06. Dj Vengerov Feat. Александр Ягья - Потанцуй Со Мной (Club Edit Remix)
+07. Rihanna - Only Girl (In The World)
+08. MF - Все будет хорошо (DJ Rich-Art & DJ Night remix)
+09. Dj Mixer Euro & Nika Belaya Ft Greysound - Зажигаем (Greysound Radio Edit)
+10. Ёлка - На большом воздушном шаре (Viento & Mutti bootleg)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 07:12:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17A7DD0027A7883A32A64F6F9BC3091BA813053A
+magnet:?xt=urn:btih:5970025E4858819075F667CA1604C6BE0B605726
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482288   (99693) от 15.04.2012
+###  Публикация: 479460   (98855) от 07.04.2012
 
-VA - Points of Interest (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
+[Wallpapers] Music Wallpapers (07.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0012E43631A02E3A6E2222FC1700A51E94B87D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479461   (98856) от 07.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (07.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE9AB6F213EBB2179068C7BB67B412185A091F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479335   (98857) от 07.04.2012
+
+VA - The Chillout Lounge 2 (2012) [MP3|320 kbps]<Chillout | Downtempo | Lounge>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98857.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Frost Raven - Points of Interest (Nimerix's Fullon mix) 08:20
- 02. Hanzo - My World 06:08
- 03. Shyisma - Slot 06:58
- 04. Virtual Attack - Can't Stop 06:57
- 05. Solar Spectrum - Space Travellers 07:26
- 06. Day.Din - The Radio Star (original mix) 07:17
- 07. Project Sketch - With A Herring 08:02
- 08. Vice - With In (Phaxe Remix) 08:00
- 09. DNA - Signal 5 (original mix) 07:08
- 10. Potter And Neelix - On The Run (Fusi And Johnson remix) 08:13(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:11:19
+01. Cheena Jordan-Yureema - A Daughter Of The Sea
+02. Jamie Bamford - Show Me An Open Sky
+03. Ascendent Star - Wherever You Are
+04. Muted Ecstasy - You Showed Me
+05. Silver Heart - Everywhere With You
+06. Star & Emotion - Its Unconditional
+07. Oliver Lockman - Pure & Everlasting
+08. Phalgun Radha - Constant Flow
+09. Nachiketa Harisnakshi - Forest Of Knowledge
+10. Ricardo Vionaika - Of Blue Red White & Star(   Читать дальше...   )2012Жанр: Chillout | Downtempo | LoungeПродолжительность: 03:26:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABCC7948F018442598E864A8FFACEA907D13CCEC
+magnet:?xt=urn:btih:5DAA2D521E3E0E449DAC5101FC936DFCAEBCB1BE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483556   (99694) от 15.04.2012
+###  Публикация: 479733   (98858) от 07.04.2012
 
-Scion Versions - Label Pack (7 релизов) (2006-2010) [MP3|320 кб/с]<Dub Techno, Techno, Minimal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкий даб-техно лейбл основанный двумя музыкантами Peter Kuschnereit (он же DJ Pete и Substance) и Rene Lowe (более известен как Vainqueur). На сегодняшний день на лейбле вышло 7 пластинок, каждая из которых звучит в лучших традициях немецкой техно-сцены.01. Vainqueur - Ranges - Expanded (9:20)
-02. Vainqueur - Ranges - Theme (9:43)Продолжительность: 00:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:690CC24011E180323BA35F902BDC1D50DC6E722D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483366   (99698) от 15.04.2012
-
-Ancestors - In Dreams And Time (2012) [MP3|320 кб/с]<Stoner Doom>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whispers 09:10
- 02. The Last Return 06:15
- 03. Corryvreckan 12:08
- 04. On the Wind 09:31
- 05. Running in Circles 09:44
- 06. First Light 19:192012Жанр: Stoner DoomПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670FF1A783229323AEA9DD7475F8D2BF4DCD5024
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482877   (99700) от 15.04.2012
-
-Conan - Monnos (2012) [MP3|320 кб/с]<Doom Stoner Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hawk as Weapon (6:19)
- 02. Battle in the Swamp (4:44)
- 03. Grom Tormentor (5:45)
- 04. Golden Axe (5:39)
- 05. Headless Hunter (7:48)
- 06. Invincible Throne (8:55)2012Жанр: Doom Stoner MetalПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2E2D62C623A374D04F003D6ACE4D70F1EB7875
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482292   (99707) от 15.04.2012
-
-VA - Return To Eternya (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N.T.K. - Eternya 09:44
- 02. Prahlad - Shantified (Smoke Sign rmx) 07:24
- 03. Pop Art - Declaration Of A Nation 07:44
- 04. Funk Truck - Overall (original mix) 07:39
- 05. Ace Ventura - Genesis (Flegma & Nerso remix) 07:01
- 06. Zyce & Nok - Wonderland (Unseen Dimensions remix) 07:17
- 07. Unseen Dimensions - Airglow 06:42
- 08. Gandulk & Odiseo - Time To Listen 07:39
- 09. North Sector - Raw 06:56
- 10. Flegma & Nerso - Sensei 07:56(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C9F5D6C933181244B2ABE354C631CA09F610D34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483492   (99711) от 15.04.2012
-
-Журнал | Сад и огород круглый год №4 [апрель 2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сад и огород круглый год - издание для любителей и профи. Тема номера: дачный участок для лентяя. Содержание: советы дачнику выходного дня, урожайная теплица для милых дам, к овощам с нестандартным подходом, выращивание свеклы на растительных остатках, картошка - выбор семян, как и когда сажать, обработка почвы, правильное подкармливание, борьба с колорадским жуком, (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C702ED0CF2351F5A3DC804980EE601EAB45096B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483083   (99714) от 15.04.2012
-
-VA - Heroes Of Trance (13.04.2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99714.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Heroes Of Trance (13.04.2012)Год: 13.04.2012
-Жанр: Trance
-Продолжительность: 03:49:14Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Armin Van Buuren ft Laura V - Drowning (Avicii Remix)
-02. Chakra - Home (Above & Beyond Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C863A5DEA79B80E185C0E09A838D8F4DAE1E02C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483436   (99720) от 15.04.2012
-
-Working For A Nuclear Free City - Jojo Burger Tempest (2010) [MP3|320 кб/с]<Shoegaze, Post Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Shoegaze, Post Rock, Indie RockПродолжительность: 01:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D67188AB1F825358B233D38F8569C790D11B1E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483294   (99723) от 15.04.2012
-
-VA - Chaos Machine Vol.2 (Compiled By Urban Freaks) (2012) [MP3|320 кб/с]<Trance, Psychedelic Trance, Dark Psytrance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fryquenciezz & Seven Dark - PsykaDelika
-02. Darkologik - Distortion
-03. Kozvox - A Few Of These
-04. Urban Freaks - Freakin’ Show
-05. MetaNoize - Sponge Of The Forest
-06. Nammah Ohm & Cerebellum Withdrawal - Expect The Unexpect
-07. Micozatka - Critical Sequence
-08. Viatoxik - Reason To Dream
-09. Irrsin - Solium Kaya
-10. Mentalecho - Anonymous2012Жанр: Trance, Psychedelic Trance, Dark PsytranceПродолжительность: 01:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810F0A85457C36B5286E1D62A0177EF06CD40C49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483690   (99724) от 16.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (15.04.12)
+[Wallpapers] Desktop Wallpapers №12
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98858.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E06E1B88449F5DD0EEBA3A96762D5F2DC24AF23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483945   (99725) от 16.04.2012
-
-[Wallpapers] Desktop Wallpapers №18
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99725.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №18
-Название: Desktop Wallpapers №18
+[Wallpapers] Desktop Wallpapers №12
+Название: Desktop Wallpapers №12
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х1024 - 2560х1600
+Разрешение файлов: 1920x1080 - 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FBC632F8894D00C7E9EF1456D09EA2FFEE955AA2
+magnet:?xt=urn:btih:F6DB8F26E8FE92D189ED8284322376CFF846CFCF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483939   (99728) от 16.04.2012
+###  Публикация: 477759   (98862) от 07.04.2012
 
-[Wallpapers] Best Wallpapers Pack 14
+Ферма Альбино / Albino Farm (2009) DVD5
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98862.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Best Wallpapers Pack 14
-Название: Best Wallpapers Pack 14
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Четверо студентов-друзей, исследующих местность известную как Горы Озарка, забрели на чужую ферму, чтобы уже никогда с нее не выбраться. Их ждал тепленький, смоченный кровью прием в лице семейки генетических уродов…Жанр: УжасыРежиссер: Джо АндерсонАктеры: Таммин Сурсок , Крис Джерико , Санкриш Бала , Ник Ричи , Алисия ЛаганоПеревод: Двуголосый закадровыйЯзык субтитров: испанскийПродолжительность: 01:25:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5090CB7B3BB22696AA54F6041FEB19B1992033F
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483941   (99729) от 16.04.2012
+###  Публикация: 479365   (98863) от 07.04.2012
 
-[Wallpapers] HD Wallpapers №13
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99729.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers №13
-Название: HD Wallpapers №13
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF22CB313D184DB8AA08D2DA66A18136F80A8489
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483278   (99730) от 16.04.2012
-
-Fomento - To Persevere Is Diabolical (2012) [MP3|~245 кб/с (V0)]<Thrash Metal>
+Return To Base - Behind The Sun (2011) [MP3|320 кб/с]<Drum'n'Bass / Industrial Djent>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beware The Ides Of March 01:28
- 02. The Skeleton Coast 03:28
- 03. Devil's Trill 03:39
- 04. The Dysteleological Argument 03:54
- 05. Predominance 04:36
- 06. Monster Mobster 03:14
- 07. Desecrators 03:30
- 08. Blood Pact 03:52
- 09. The Mud Machine 03:09
- 10. In The Sixth Day 03:17(   Читать дальше...   )2012Жанр: Thrash MetalПродолжительность: 00:40:51
+01. Biopunk
+ 02. Collective Mind
+ 03. Alive Creature
+ 04. Devastator
+ 05. Behind The Sun2011Жанр: Drum'n'Bass / Industrial DjentПродолжительность: 00:21:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C915C478D180620073DC31BE57EF29FB5F3C2A9B
+magnet:?xt=urn:btih:EC82207169C45C0FE1E587E2F3C931041C4D4206
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483910   (99733) от 16.04.2012
+###  Публикация: 477985   (98866) от 07.04.2012
 
-[Wallpapers] Animals Wallpapers (17.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773F9EFF200248887A49C923734F336F2C5C5475
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483742   (99735) от 16.04.2012
-
-VA - Фестиваль лучших хитов 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
+Necronomicon - Invictus (2012) [FLAC|Lossless]<Thrash Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98866.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dev Feat. Enrique Iglesias - Naked
-002. Nadi - Птица
-003. Marlon Roudette - New Age
-004. Rihanna - Man Down
-005. Горячий Шоколад - Без Ума (Dj Vengerov Remix)
-006. Sunstroke Project Ft Offbeat - Epic Sax
-007. Itaka - La Danza De Ibiza
-008. Олеся Астапова Feat. Слава Фактор - Не Жди Меня
-009. Coldplay & Rihanna - Princess Of China
-010. Dvj Electra & Soundstaff - На Всю Катушку(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:18:42
+01. Invictus (6:45)
+02. Unleashed (4:05)
+03. Bloody Bastards (4:03)
+04. Thoughts Running Free (5:49)
+05. Unconquered (5:56)
+06. Upon Black Wings (4:40)
+07. Face To The Wall (5:16)
+08. Pandora's Box (4:03)
+09. Before The Curtain Falls (4:42)
+10. Possessed By Evil 2011 (5:01)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:10:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:547ACA1E955CE5258C9ABF92033A304126DC1946
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483692   (99740) от 16.04.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (15.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D3F87F4FEA88CA90E60831AB514EC09CEFE5FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483909   (99742) от 16.04.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (17.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:493DA62E5A8C48CA357E7E7B5F31DC253F47F442
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483693   (99744) от 16.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (15.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F8B3A04BA2114C883DD296F9F5CA0D47F65571
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483729   (99747) от 16.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (16.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB62AE471ED1E224FD1FEE1F8B09C2079C7E33F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483951   (99752) от 16.04.2012
-
-[Wallpapers] Avto Wallpapers №5
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99752.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Wallpapers №5
-Название: Avto Wallpapers №5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2A674B0881C3DF01D555F9BAB90EA99B182011
+нет
 ```
 
 

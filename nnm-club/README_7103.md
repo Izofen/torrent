@@ -1,679 +1,673 @@
-###  Публикация: 1538125   (243589) от 19.03.2022
+###  Публикация: 1579635   (232486) от 28.09.2022
 
-VA - Lounge & Beauty, Vol. 3 (2022) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+Величайшая коллекция птиц / The Greatest Bird Collection (2020) WEBRip [H.264, AV1, VP9/1080p, 2160p, 4320p] [FHD, 4K, 8K / 60 fps]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Документалистика и Телепередачи
+>>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232486.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Michael e, Tim Gelo - Beauty & Seduction (Original Mix) (4:52)
-02. Luis Hermandez - Anything (Original Mix) (3:38)
-03. Hatar - Nelumbo Nucifera (Original Mix) (6:19)
-04. Steen Thottrup, Evamaria Linnet - Faces (Original Mix) (3:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:23:19
+В этом удивительном видео «Птицы и природа» вы сможете увидеть самую красивую и самую большую КОЛЛЕКЦИЮ ПТИЦ в мире, с разрешением видео Ultra HD с реальными звуками птиц и настоящими именами птиц. Также вы сможете услышать щебетание птиц в естественной среде, такие как звуки джунглей и расслабляющие звуки природы.Производство: 8K Ultra HD ChannalЖанр: видовой, природаПеревод: Не требуется (нет диалогов и комментариев)Субтитры: РусскиеПродолжительность: 00:45:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A64E25156FC91EB4474A9CCA879D9CA544D4C5F
+magnet:?xt=urn:btih:6A4ED447E247D8F6A94744A9FEA61C89331633E4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623048   (243591) от 01.04.2023
+###  Публикация: 1635376   (232487) от 25.05.2023
 
-Armin van Buuren - Feel Again (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+VA - Music News vol.266 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 
->>Electronic
->>Trance
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232487.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Armin van Buuren feat. Wrabel - Feel Again (Extended Mix) [5:40]
-02. Armin van Buuren - Oumuamua (Original Mix) [5:26]
-03. Armin van Buuren & The Stickmen Project - No Fun (Extended Mix) [3:36]
-04. Armin van Buuren & Sam Gray - Human Touch (Extended Mix) [3:49](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:40:07
+001. Mahalia - Terms And Conditions (Happi Afrobeats Remix) (03:07)
+ 002. 4ETVERGOV - Памятки Судьбы (02:05)
+ 003. 4K feat. Литвиненко - Надо 2 (03:32)
+ 004. 8SR - Быстро (02:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:37:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6CAE07A0D4C5690158D372CB794F03C08C04623
+magnet:?xt=urn:btih:DE01A94ECD8AD0200D5352589DDE39FE047B9ADA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626777   (243592) от 15.04.2023
+###  Публикация: 1643360   (232488) от 02.07.2023
 
-Gary Moore - We Want Moore! (1984) Reissue, 2023, Universal, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+Sergeant Steel - Mister Sippi (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232488.jpg" />
 </div>
 
 
 ###  Подробнее
 
-We Want Moore! (от англ. «we want more», — «мы хотим ещё», игра слов связанная с фамилией исполнителя) — концертный альбом ирландского гитариста и певца Гэри Мура, выпущенный в 1984 году.
-
-Треки 1, 2, 3 и 9 записаны в Детройте, 23 июня 1984 года. Трек 4 записан в Токио на арене Будокан, 29 февраля 1984 года. Треки 5, 6, 7 и 8 записаны в Глазго 14 февраля 1984 года. (   Читать дальше...   )01. Murder In The Skies
-02. Shapes Of Things
-03. Victims of the Future
-04. Cold Hearted(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:47
+01. Down to Mississippi [00:03:38]
+02. Please Me, Tease Me [00:03:29]
+03. Mama Didn't Raise No Fool [00:03:14]
+04. Alive [00:03:21](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9774FB7AF79FCBC584074979E05914851CCF13DB
+magnet:?xt=urn:btih:F94606E582DE947CAC9013D1EAC2431BFAC722D0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149440   (243593) от 06.04.2022
+###  Публикация: 1608837   (232489) от 01.02.2023
 
-Владимир Жириновский | Лекции профессора Жириновского (2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ни в одном из российских учебников не написано, что началась третья мировая война. А она уже давно идет — это война между терроризмом и цивилизованным миром. Более того, внутри цивилизованного мира видны зачатки четвертой (гибридной) войны — войны против не зависимых от США государств, которая называется «глобализация». И уже есть ее первые жертвы — Ирак, Ливия, (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1478EC57A387126ED0B5BF41FDABD2651DFEED0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622026   (243594) от 30.03.2023
-
-Enigma - The Cross Of Changes (1993) [OGG Vorbis|630 Kbps] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Chapter
-02. The Eyes Of Truth
-03. Return To Innocence
-04. I Love You ... I'll Kill You(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB73F62C693B16807510949799B557EDD56EE234
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612825   (243595) от 17.02.2023
-
-VA - Silent Shore Trance: Winter (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Db Mokk - Millennium (Original Mix) [3:57]
-02. Spy & Lightning vs. Waveband - Vortex (Original Mix) [3:24]
-03. MYR - Starfall (Original Mix) [3:22]
-04. Joran Shade - Keep You Alive (Original Mix) [2:53](   Читать дальше...   )Жанр: TranceПродолжительность: 01:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98DE73A5515C31F19D2134CE8087DE0347D3A497
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538075   (243596) от 19.03.2022
-
-Funeral - Praesentialis In Aeternum (2021) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Норвежские первопроходцы дум-метала FUNERAL выпустили новый альбом “Praesentialis in Aeternum” 10 декабря 2021 года на лейбле Season of Mist.
-Его обложку нарисовал Christopher Rådlund.1. And
-2. Materie
-3. Erindring I - Hovmod
-4. Erindring II - Fall(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A07A4D4FB34620147CAA01153F4CBD27408CCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455702   (243597) от 20.03.2021
-
-VA - R&B Nation (2021) [MP3|320 Kbps] <R%B, Soul>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка сборника "R&B Nation" полагается в большей степени на ритмы и мелодические линии вместо характерных простых для попсы импровизаций. Направление этих объединённых стилей полюбятся ценителями романтической музыки за мягкое звучание и объединение в себе сразу нескольких жанров: поп-музыки и ритм-н-блюза.001. Dornik feat. Skripture - Galaxxxy
-002. Rola - Unsichtbar
-003. Tre Ward - Wishful Thinking
-004. Cherae Leri - 50,Fifty(   Читать дальше...   )Жанр: R%B, SoulПродолжительность: 08:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654B82E711CC2A335D8883033A1079552458E461
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626321   (243598) от 15.04.2023
-
-Ог Мандино | Величайший торговец в мире (Книга 2)  (2010) [MP3, Владимир Скромуль]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько миллионов читателей ожидали узнать продолжение истории «Величайшего торговца в мире», и вот наконец оно перед вами.
-Трогательная повесть о маленьком погонщике верблюдов Хафиде, ставшем величайшим торговцем благодаря исполнению заповедей, записанных в десяти свитках успеха, получила завершение. Одинокий торговец, считавший себя вправе отдохнуть от суеты (   Читать дальше...   )Жанр: Бизнес, личностный ростПродолжительность: 03:28:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A7A2D78281E5E44911B8FDB74E80A936EF1A2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623335   (243600) от 01.04.2023
-
-V.A. - All I Ever Wanted - A Tribute to Depeche Mode (2023) [FLAC|Lossless|WEB-DL|tracks] <SynthPop, Electro>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Priest - Personal Jesus
-02. Faderhead - Enjoy The Silence
-03. Lebanon Hanover - Strange Love
-04. Skold - Blasphemous Rumours(   Читать дальше...   )Жанр: SynthPop, ElectroПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12904226FDD4F46CBB46085E1E8759992A6BF6C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333855   (243601) от 26.10.2019
-
-Get Backup Pro 3.4.21 [En]
+iStat Menus 6 v.6.70 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Get Backup Pro - Универсальная утилита для выполнения резервного копирования, клонирования дисков/разделов и синхронизации файлов и папок. Get Backup Pro предлагает двустороннюю синхронизацию, архивирование только измененных файлов, восстановление отдельных файлов и папок, защиту архивов шифрованием.Тип издания: macOS SoftwareРелиз состоялся: 25.10.2019Разработчик: BeLight Software Ltd.Поддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+iStat Menus 6 — лучшее приложение для контроля работы Mac с новым дизайном и поддержкой macOS Mojave и macOS Catalina.
+Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем. Первым хочется пожелать и дальше наслаждаться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.02.2023Разработчик: © 2022 Bjango Pty LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7DA10444944CF0226BA9AF2311888106EB1EF5A
+magnet:?xt=urn:btih:5A117B22F67C6E1CD5BEB205459BF2B53298AA04
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542319   (243602) от 06.04.2022
+###  Публикация: 1506487   (232490) от 28.05.2022
 
-Линкольн для адвоката / The Lincoln Lawyer (2011) BDRip [H.265/1080p-LQ] [10-bit]
+NGW: Чудеса океана / Wonders of The Ocean (2019) WEBRip [H.264/1080p] (серии 1-2 из 2)
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Зарубежные TV-бренды
+>>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Микки Холлер – блестящий и удачливый адвокат из Лос-Анджелеса, чей яркий имидж и образ жизни отлично дополняет его любимая машина «Линкольн». Очередное дело – нападение богатого клиента Луи Руле на проститутку сначала казалось лёгким, и он без труда добился оправдательного приговора для подзащитного. Но вскоре Микки понимает, что его клиент скрывает правду. Пока (   Читать дальше...   )Производство: США / Lakeshore Entertainment, Lionsgate, Sidney Kimmel Entertainment, Stone Village ProductionsЖанр: криминал, триллер, драма, детективРежиссер: Брэд ФурманАктеры: Мэттью МакКонахи, Мариса Томей, Райан Филипп, Уильям Х. Мэйси, Джош Лукас, Джон Легуизамо, Майкл Пенья, Боб Гантон, Фрэнсис Фишер, Брайан КрэнстонПеревод: дублированный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:58:28
+Тихий океан - самый большой и глубокий океан на нашей планете. Эта серия фильмов демонстрирует множество невероятных существ, которые стали называться тихоокеанским домом.Производство: Новая Зеландия / Natural History New Zealand Ltd.Жанр: Документальный, Природа, Фауна, ФлораРежиссер: Лорн ТаунендПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 2 х ~ 00:44:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3002066FB5D80B22D655C93B10E41AAD1CFD89C
+magnet:?xt=urn:btih:84CB9ADF69CFAC568C4C1BDCCA17F8B50C0043CB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622148   (243603) от 30.03.2023
+###  Публикация: 1646131   (232491) от 13.07.2023
 
-VA - Country Dark Rock (2023) [MP3|320 Kbps] <Country, Blues, Rock>
+Extreme - Six (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blues Saraceno - Dogs of War [02:57]
-02. Dominic Marsh, Jonny Jones - Dark Cloud [02:21]
-03. Brother Dege - Too Old to Die Young [03:44]
-04. Chris Lewis, Dominic Marsh - Devil's Country [02:42](   Читать дальше...   )Жанр: Country, Blues, RockПродолжительность: 04:54:31
+01. Rise
+02. #Rebel
+03. Banshee
+04. Other Side Of The Rainbow(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:56:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8A6A6DEAE147E4A875722F37B5FAE98C9196C88
+magnet:?xt=urn:btih:6415E14767419B0AD2ADC06C00F6895FB0D287D2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455746   (243604) от 20.03.2021
+###  Публикация: 1635369   (232492) от 25.05.2023
 
-June Christy - June's Got Rhythm (1958 - 1960) 2005, Capitol Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Александр Барыкин - Лучшее для друзей (2001-2011) (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не забудешь никогда (Русский снег) (4:22)
+ 02. На реке (4:24)
+ 03. Волга (4:43)
+ 04. Парус (5:08)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D23DF45AABD411C382E25217A133861C828385F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640039   (232493) от 15.06.2023
+
+Janet Gardner - Justin James - No Strings (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Living Free (3:57)
+02. Turn The Page (4:13)
+03. 85 (4:01)
+04. No Strings (3:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D9481777E2B1F1357F4790185138B1A2EBB5B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645943   (232494) от 12.07.2023
+
+System Trashed - Outlaw (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Screaming Through (04:38)
+02 - You Will Pay (04:04)
+03 - Outlaw (04:35)
+04 - War Dance (04:26)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B26BB825E7581FA1E643446FC502DC494091F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579449   (232495) от 28.09.2022
+
+Контроль / Control (2022) WEBRip [H.264/1080p] [MVO, AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эйлин просыпается в запертой и звуконепроницаемой комнате. Перед ней стол с карандашом. Слышен голос, говорящий ей переместить карандаш. Героиня фильма «Контроль» делает всё, что от неё просят. Он даёт ещё несколько команд, а она вынуждена подчиниться.
+Эйлин теряет сознание, но вскоре вновь приходит в себя в той же комнате. Снова голос говорит ей передвинуть карандаш. (   Читать дальше...   )Производство: Канада, Kemodo EntertainmentЖанр: Фантастика, ужасыРежиссер: Джеймс МаркАктеры: Сара Митич, Джордж Чертов, Эви Луизелл, Карен ЛеБланкПеревод: Многоголосый профессиональный (BaibaKo)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:28:00Реклама: присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458051A69CFE29A38A04C5303C6147648A1F4926
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643458   (232496) от 02.07.2023
+
+Motoriot - Harmonic Distortion (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change for the Worst [00:06:14]
+02. My Brother [00:05:10]
+03. Highway [00:05:54]
+04. Trawlin Ass [00:05:10](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F652FD85E0A088243E1745B9DAD746CE069B4C7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554101   (232497) от 28.05.2022
+
+Blender Cloud, Pablo Vazquez | Cartoon Character Creation - Venom's Lab! 2 (2014) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научитесь создавать персонажа с нуля в Blender.
+Хотя некоторые особенности из предыдущего курса Venom's Lab! будут использоваться, это новое издание использует обновленную меш систему Blender и новую систему для волос и меха, UV-инструменты и многое другое, чтобы вернуться к техникам, описанным в предыдущем DVD.Производство: Blender CloudЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 04:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58FCA19B8ADBE96899781734D01368903F9B6BB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639852   (232498) от 15.06.2023
+
+Odean Pope - Plant Life (2008) Porter Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rock Me to Sleep [2:24]
-02. The Gypsy in My Soul [3:16]
-03. I'm Glad There Is You [2:41]
-04. They Can't Take That Away from Me [2:43](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:00
+01. Two Dreams Part 1 [6:34]
+02. Happiness Tears [7:26]
+03. Plant Life [5:49]
+04. I Want To Talk About You [9:16](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Post-BopПродолжительность: 00:52:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C58EC0CB7D227EAAD2F13E871B9E5061CD54CABB
+magnet:?xt=urn:btih:2A389C71BDA4D3B44CFFCEB91A4A81E732FEDD4E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538086   (243605) от 19.03.2022
+###  Публикация: 1646118   (232499) от 13.07.2023
 
-4K Tokkit Pro 1.2.0 [Multi/Ru]
+Кун Схобберс, Дейрдре Энтховен | Мой ребенок – геймер (2023) [MP3, Ирина Булекова]
 
->>Архив торрентов
->>Архив 4Apple
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232499.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Один простой способ скачать все с TikTok. 4K Tokkit - это идеальное приложение для массовой загрузки контента TikTok. Сохраняйте задачи TikTok, подписи, целые аккаунты, хэштеги и отдельные видео в высоком качестве. Смотрите TikToks офлайн, просматривайте ленту TikTok без рекламы, делайте репосты клипов в другие социальные сети.Тип издания: macOS SoftwareРелиз состоялся: 17.03.2022Разработчик: © 2022 Open Media OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+Аудиокнига поможет понять ребенка-геймера, наладить с ним отношения и договориться о компромиссах
+Кун Схобберс – первый нидерландский киберспортсмен, добившийся успеха в большом спорте, и бывший ведущий программы «Внутри киберспорта» (Inside Esports). Сейчас он поддерживает родителей детей-геймеров с помощью своей платформы «Родители игры» (Parents of Play).Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 10:40:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6643DBE1C61624FECE34780D5C3D3F4E8F195AEC
+magnet:?xt=urn:btih:36FAB65C4C92C6C84F5C9028329E5989ED29C92F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623441   (243607) от 01.04.2023
+###  Публикация: 1608871   (232500) от 01.02.2023
 
-VA - Новинки С Разных Популярных мп3 Сайтов ver. 125 (2023) [MP3|320 Kbps] <Club, Dance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-01. Audino, ELMY & Franz Kolo - Pump It Up (Extended Mix)
-02. Blondie - Heart of glass (Ayur Tsyrenov remix)
-03. Bob Sinclar - Rock This Party (Rakurs & EwellicK Radio Remix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 04:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5715394CE1599F5A8126F802625C53A779F53D78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612757   (243608) от 17.02.2023
-
-Святитель Феолипт Филадельфийский | Аскетические творения. Послания (2018) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святитель Феолипт Филадельфийский (1250 – ок. 1326) – одна из самых ярких личностей в истории святоотеческого богословия и византийской церковной письменности. Его можно считать первым представителем поздневизантийского исихазма и учителем святителя Григория Паламы. К сожалению, до недавнего времени творения этого выдающегося подвижника и духовного писателя были (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDAA332EDD251A0450037B9067F40002F56D5C9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076407   (243609) от 26.11.2016
-
-VA - Сотка модных хитов. Выпуск 6 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243609.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Tom Jones - I Who Have Nothing 2:59
-002.Анна Шульгина - Другая Я 3:06
-003.Justin Bieber - Sorry 3:21
-004.Абдулкарим - Волна 4:04(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E69342642DE1D6DC8F644FC173DB09696BD4B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542330   (243610) от 06.04.2022
-
-VA - The Absolute Sound (2013) Compilation [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Classical, Folk>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Propinan De Melyor (02:00) - New London Consort
-02. The Blackwood (02:42) - Emily Barker & The Red Clay Halo
-03. Looking For You (04:26) - Allan Taylor
-04. Ancient Air ~ Chopin: Krakowiak, Op. 14 In F Major (02:12) - John Di Martino's Romantic Jazz Trio(   Читать дальше...   )Жанр: Classical, FolkПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41B3E020726A7F6877B076B1DBADB06842FADEC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626569   (243611) от 15.04.2023
-
-Альфред Адлер | Наука жить (2023) [MP3, Игорь Ломакин]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теория Адлера, наряду с с психоанализом Фрейда и аналитической психологией Юнга стала одной из основ современной психотерапии!
-В книге «Наука жить» индивидуальная психология рассматривается как самостоятельная наука, обсуждаются различные ее аспекты и применение в повседневной жизни. Центральные понятия теории Адлера – комплекс неполноценности, компенсация, жизненная (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 04:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23304A4523468364AA75BF8C518933DC8F5B679A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455671   (243612) от 20.03.2021
-
-Enforcer - Live by Fire II (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+Phoebus The Knight - Ferrum Fero Ferro Feror (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Die for the Devil (Live)
-02. Searching for You (Live)
-03. Undying Evil (Live)
-04. From Beyond (Live)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:15:47
+01. Ante Lux / The Beast Within
+02. The Iron Queen
+03. The Scarlet Dance
+04. Semen Pessimorum(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96D9FC7E2C80AFC51AC443A9F4EA5AA2A47A5172
+magnet:?xt=urn:btih:CBE4F16C2AFC93F3EDB5741B42E0BC0269DB9A5D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333834   (243613) от 26.10.2019
+###  Публикация: 1635211   (232501) от 25.05.2023
 
-Jeremy - Quo Vadis, Domine? (2008) [FLAC|Lossless|image + .cue] <Progressive Metal>
+Великая / The Great (2023) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] (сезон 3, серии 1-10 из 10) HDrezka Studio
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. The Game
-03. Dream To Fly
-04. Again(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:52
+Юная дочь обедневшего немецкого князя София Августа Фредерика Ангальт-Цербстская выходит замуж за императора российского Петра III и становится императрицей Екатериной II. Поначалу полная надежд на чистую и светлую любовь девушка быстро разочаровывается в царственном супруге как в человеке и как в правителе и, пока тот, устроив во дворце непрекращающуюся вечеринку, (   Читать дальше...   )Производство: Великобритания, США / Echo Lake Entertainment, Lewellen PicturesЖанр: комедия, биография, историяРежиссер: Колин Бакси, Мэттью Мур, БертАктеры: Эль Фаннинг, Николас Холт, Фиби Фокс, Гвилим Ли, Луи Хайнс, Саша Дхаван, Адам Годли, Дуглас Ходж, Белинда Бромилов, Байо ГбадамосиПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, английскийСубтитры: русские (forced), английские (full, SDH)Продолжительность: ~00:52:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AD239DD29EA10C3212F364BEB78A138418B9CB7
+magnet:?xt=urn:btih:A3756F26A3F0D74E97D74782E58AA30628E07CA3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538102   (243614) от 19.03.2022
+###  Публикация: 1579689   (232502) от 28.09.2022
 
-Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
+Анастасия Шадрина | Кто боится сложностей русского языка? Простые объяснения для всех, кто хочет писать грамотно (2022) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярная книга о правилах и закономерностях русского языка. Коротко и ясно о самых сложных случаях.
+
+Грамотность сегодня важна не только для тех, кто профессионально работает с текстами, - она важна для всех, кто работает с людьми. Необходима ли она вам лично?
+(   Читать дальше...   )Жанр: Русский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C3C0A2F567F32BAAF3800E742919C0D0864D9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643493   (232503) от 02.07.2023
+
+Dead Gallery - Dead Man's Theme (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Blues Rock, Psych, Jam, Stoner, 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hide In My Shadows [00:07:06]
+02. Dead Man's Theme [00:11:56]
+03. Tearin' Myself Apart [00:06:06]
+04. Everything You Do [00:08:27](   Читать дальше...   )Жанр: Heavy Blues Rock, Psych, Jam, Stoner, 70'sПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13637675A20380ABAF1219CBB2BC85787EADBF90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645761   (232504) от 11.07.2023
+
+Stan Getz - Four Classic Albums: Fourth Set (1957, 1962) 2CD, 2020, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Cool, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desafinado [5:51]
+02. Samba Dees Days [3:35]
+03. O Pato [2:32]
+04. Samba Triste [4:46](   Читать дальше...   )Жанр: Bop, Cool, Bossa NovaПродолжительность: 02:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C70D8D6812704A6163460764740BFB7B0915F55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462088   (232505) от 28.05.2022
+
+Не отступать и не сдаваться / No Retreat, No Surrender (1986) BDRip [H.264/1080p-LQ] [DVO] [GER Transfer]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Парнишка, изучающий восточные единоборства и мечтающий стать чемпионом, бесстрашно вступает в борьбу с уголовниками и шпаной и зарабатывает сперва лишь синяки и насмешки окружающих.
+Но в награду за проявленную силу духа, настойчивость и упорную работу на тренировках до седьмого пота, ему начинает покровительствовать и обучать его всем секретам мастерства дух самого (   Читать дальше...   )Производство: США, Гонконг / New World Pictures, Seasonal Film CorporationЖанр: Боевик, ДрамаРежиссер: Кори ЮэньАктеры: Курт МакКинни, Жан-Клод Ван Дамм, Дж.В. У., Кэти Сайлено, Таи Чунг Ким, Кент Липэм, Рон Понел, Дэйл Джейкоби, Питер Каннингэм, Тимоти Д. Бэйкер...Перевод: Двухголосый профессиональный (НТВ+, СТС)Субтитры: РусскиеПродолжительность: 01:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA06B1BE8451E20B07D0BCCFCCF05584A30C73B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646046   (232506) от 13.07.2023
+
+The Infamists - Live Evil (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Bluesy, Fuzz>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lookin' Like a Stray [00:04:54]
+02. Snakeskin Woman [00:02:46]
+03. Live Evil [00:03:05]
+04. Heavy on My Mind [00:03:08](   Читать дальше...   )Жанр: Heavy Rock, Psych, Bluesy, FuzzПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA21BF96AD9885280D4DA8EC706FC4970A7C75F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635265   (232507) от 25.05.2023
+
+Клод Моне: Магия воды и света / Water Lilies of Monet - The Magic of Water and Light / Le ninfee di Monet - Un incantesimo di acqua e luce (2018) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм отправит зрителей в незабываемое путешествие по самым известным работам мастера, заложившего основы направления импрессионизма. Представлены богатые коллекции парижских музеев Орсе, Оранжери и Мармоттан, где выставлены знаменитые полотна художника, но наибольшую ценность представляет усадьба Клода Моне в Живерни. Зрители увидят дом и сад живописца, где родились (   Читать дальше...   )Производство: Италия, Ballandi ArtsЖанр: документальный, история, искусствоРежиссер: Джованни ТройлоПеревод: двуголосый профессиональный (Jaskier)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 01:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE31E2F57A1D6368CF23BC338F7EA15230E3C45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608872   (232508) от 01.02.2023
+
+iCollections 8.0.3 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие люди предпочитают держать их настольный компьютер Mac в чистоте, чтобы избавиться от каких-либо предметов, которые не являются абсолютно необходимыми. Тем не менее, если вы хотите иметь различные приложения, документы или папки в пределах досягаемости, но держать их организованными в то же время, вы можете попробовать iCollections.Тип издания: macOS SoftwareРелиз состоялся: 29.01.2023Разработчик: © 2023 Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50332134660927BDED988F26E3DBE5D3FD993C50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639981   (232509) от 15.06.2023
+
+Putrefactum - Unsere Wahrheit (2023) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agony Of The Eternal Night
+02. War In The Name Of...
+03. Interdimensional Horrors
+04. Anthropophagus(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C19FDA24B6598A8FF28CB76A577663A10F4041
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643576   (232510) от 02.07.2023
+
+Athentech Perfectly Clear WorkBench for Mac 4.5.0 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232510.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2022Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.07.2023Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A078F435DFF4DAED4EDFF522D202469D9110B42A
+magnet:?xt=urn:btih:ABC4649C7DE2FC759EA61FBEE11F8C49DB1FAC86
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623308   (243615) от 01.04.2023
+###  Публикация: 1645728   (232511) от 11.07.2023
 
-Дискотека Авария - Воля и разум (Cover Ария) (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243615.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Воля и разумЖанр: PopПродолжительность: 00:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED12DBDE4DBC6CDF83674F66CFE017460BD2F432
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612829   (243616) от 17.02.2023
-
-The Abbey - Word of Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Doom Metal>
+Stray Gods - Storm the Walls (2022) [MP3|320 Kbps] <Heavy, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Rat King (00:04:42)
-02 - A Thousand Dead Witches (00:04:35)
-03 - Crystallion (00:06:16)
-04 - Starless (00:07:52)(   Читать дальше...   )Жанр: Progressive Doom MetalПродолжительность: 00:53:02
+01. The Seventh Day (04:02)
+02. Black Horses (03:58)
+03. Alive For A Night (03:41)
+04. Silver Moon (06:26)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:38:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8F28AAE65A8D45F3D285B45612E3BBB9549B147
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076449   (243617) от 26.11.2016
-
-VA - Звездная вечеринка. Зарядись хитами 50/50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243617.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Елена Темникова - По Низам 2:55
-002.Вика Воронина Feat. Storm Djs - Угги 3:41
-003.Клава Кока - Тише 3:22
-004.Mseven - Танцуй В Темноте 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9BAD560AE5137A5D12FEF87AEA5EB5DB63798AA
+magnet:?xt=urn:btih:165D6FDDDF0D77CFA7FEF5DA94B902DA46852568
 ```
 
 

@@ -1,3 +1,117 @@
+###  Публикация: 521789   (156662) от 20.12.2019
+
+Глеб СамойлоFF & The MatriXX - Прекрасное Жестоко + Маленький Фриц (2010) Limited Edition 999 Copies [FLAC|Lossless]<Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Барон и за рекой (02:47)
+02. Но Пасаран! (03:48)
+03. Фрау его мечты (02:59)
+04. Блиц криг (01:19)
+05. Последний подвиг Евы Браун (03:07)
+06. Гитлер (03:55)
+07. Командир (02:16)
+08. Покрышкин (02:04)
+09. Партизаны (03:42)
+10. Дезертир (02:56)(   Читать дальше...   )Жанр: Gothic Rock |Продолжительность: 00:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D55C34278E725E98ECD48D971A2BD760626F9D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433753   (157174) от 21.12.2020
+
+All The Cold - To The Emerald Land (2020) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Black Metal, Ambient, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Island of Snow (19:27)
+02. Tidewater (1:59)
+03. Into The Storm (12:59)
+04. Bracada (2:29)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Ambient, Instrumental, CinematicПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25119502CB2FA5B3B83691617928B19E1C34FFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194290   (157441) от 24.12.2017
+
+The Matrixx - Здравствуй (2017) [FLAC|Lossless|tracks + .cue] <Neo-Post-Gothic, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157441.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Звезда
+2. Дружок
+3. Дурачок
+4. From Hell(   Читать дальше...   )Жанр: Neo-Post-Gothic, AlternativeПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015E881A6D238A811E75B6BBCA31BCC95BFE7709
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518134   (157759) от 18.12.2021
+
+Андрей Сапунов - Говори (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я знаю
+02. Падают листья
+03. Волхвы
+04. Кони(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E401A82DD17F46737C5F02DF468D16BE5905FE66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433310   (158001) от 20.12.2020
 
 VA - Трибьют Сектор Газа (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Rock>
@@ -587,123 +701,6 @@ magnet:?xt=urn:btih:8C118599783302BA49335809E537D1B4A07E1AEC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A3C5A4C4308EDC1F399E17517474EAEBABEF396
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 226154   (160708) от 06.11.2023
-
-Моральный кодекс (Сергей Мазаев) - 8 Альбомов (1990-2010) [APE/FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: RockПродолжительность: 1:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C25B6413D6B4B3940480068BC50B695FC4AB73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 22565   (160716) от 06.11.2023
-
-Крематорий - Трилогия (3CD) [Flac|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трилогия, часть 1
-
-1. Таня
-2. Крематорий
-3. Крылатые слоны
-4. Хабибулин
-5. Кондратий
-6. Лепрозорий
-7. Кокаин
-8. Аутсайдер(   Читать дальше...   )Жанр: РокПродолжительность: 02:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083760FAB2B55CF41254B28E8C344F81A7C26016
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 290083   (160733) от 06.11.2023
-
-Виктор Зинчук - Кельтский альбом (2010) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ирландская полечка - O'Sullivans Fancy 00:05:20
-02 Интродукция (Ленивая Мэгги) - Intro (Drowsy Maggie) 00:03:33:
-03 Принцесса - Princess 00:04:06
-04 Дорогая просыпается - My Darling Asleep 00:03:18
-05 Москва-Дублин - Moscow-Dublin 00:02:34
-06 Отец Флин (Пчелы в вереске) - Father O'Flynn (The Bees In The Heather) 00:04:17
-07 Сон Кэролана - O'Carolans Dream 00:07:14
-08 Утренняя жига - The Morning Jig 00:02:49
-09 10 пенсов - 10 Pens 00:02:59
-10 Кольца Брендена - Brendan Rings 00:04:26(   Читать дальше...)Жанр: RockПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D2F9A98052B4F68F543B6D9EC21706008DFDE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518101   (161140) от 18.12.2021
-
-Мужчины в металле - Сибирь (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сибирь [03:52]
-02. Ты навсегда со мной [03:11]
-03. Дождь на заре [05:25]
-04. Жаль, что тебя больше нет [05:47](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D9A6BED0340ED7FA7E7242B91E62A740EE1A26
 ```
 
 

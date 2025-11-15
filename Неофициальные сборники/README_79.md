@@ -1,3 +1,30 @@
+###  Публикация: 1520360   (143637) от 27.12.2021
+
+VA - New Age Ambient Music (2021) [MP3|320 Kbps] <Ambient, Downtempo, Meditation, New Age, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы верите в потусторонние миры, гадаете по картам таро и изучаете гороскопы, то эта подборка специально для вас. Здесь вы найдете самую загадочную, мистическую и таинственную музыку. Эти треки определенно вызовут у вас мурашки по коже.001. Amure - Africa
+002. Mind Over Midi - Sinnsro
+003. Amethystium - Strangely Beautiful
+004. Shinnobu - By Peace(   Читать дальше...   )Жанр: Ambient, Downtempo, Meditation, New Age, RelaxПродолжительность: 08:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6E9808C652775A0C201DB52E7D74FCA810DF53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520359   (143669) от 27.12.2021
 
 VA - National Pop Dance Music Vol.29 (2021) [MP3|320 Kbps] <Pop, Dance, Schlager>
@@ -668,33 +695,6 @@ VA - Deep Glow Electro House (2020) [MP3|320 Kbps] <Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE9F48BF0157C3E1D884F662EE3B335C5897D95F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435513   (144314) от 28.12.2020
-
-VA - Rose Bialo: Italiano Classico Vocale (2020) [MP3|320 Kbps] <Vocal, Pop, Classic Soul>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это старая манера итальянского оперного пения, которая считается эталоном вокального искусства находит свое место и в современной итальянской песне. Она была оперной нормой целых 300 лет назад. И современники ещё тогда уже писали о том, что это было ангельское, божественное пение!001. Claudio Villa - ' O Sole Mio
-002. Irene Grandi -  A Natural Woman
-003. Alice - A Cosa Pensano
-004. Fred Buccini - A Mano A Mano(   Читать дальше...   )Жанр: Vocal, Pop, Classic SoulПродолжительность: 07:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6AA926E0673865101226E1EEBFB6A85A0CBB66B
 ```
 
 

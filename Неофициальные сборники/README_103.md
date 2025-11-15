@@ -1,3 +1,30 @@
+###  Публикация: 1664668   (184569) от 27.09.2023
+
+VA - Music News vol.301 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184569.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ANSE - За Двоих (02:33)
+ 002. 84 - Последний Поцелуй (02:26)
+ 003. A Boogie Wit Da Hoodie - Her Birthday (Slowed Down) (02:53)
+ 004. Alvaro Diaz - PLN (02:45)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1EF8EEF4C0DC54883FF3136906F30DCA4A9380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664275   (184638) от 27.09.2023
 
 VA - Surf Rock Compilation Part 34 (2023) [MP3|320 Kbps] <Surf Rock>
@@ -668,33 +695,6 @@ Imazee - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:675E70D565B6EAB2DAB9DC110D785E8CA136CC51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590508   (188754) от 14.11.2022
-
-VA - New Pop Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Dance, Hip Hop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ava Max - Million Dollar Baby
-02. Lizzo - About Damn Time
-03. Ed Sheeran - 2step (feat. Lil Baby)
-04. Alex Warren - Headlights(   Читать дальше...   )Жанр: Synthpop, Disco, Dance, Hip HopПродолжительность: 01:42:39 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5263B42AA4DFBE986CE2BCAB6A84514F501920
 ```
 
 

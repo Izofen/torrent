@@ -1,665 +1,687 @@
-###  Публикация: 1669668   (172670) от 17.10.2023
+###  Публикация: 1670947   (171754) от 22.10.2023
 
-Imagenomic Noiseware for PS (Mac) 6.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Imagenomic Noiseware - плагин для коррекции шумов на цифровых фото. Имеется функция мульти-предпросмотра, позволяющая сравнить результаты работы фильтра с разными настройками, и функция брекетинга основных параметров фильтра, генерирующая серию превьюшек в автоматическом режиме. Удобный интерфейс позволит легко выполнить обработку изображений перед публикацией или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2023Разработчик: © 2023 ImagenomicПоддерживаемая ОС: macOS 13.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7919F26B8A2FFF77C8409FF9B72ECE69CB528A22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669705   (172671) от 17.10.2023
-
-Зигомар против Ника Картера / Zigomar contre Nick Carter (1912) WEBRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нику Картеру, известному детективу, поручено привлечь к ответственности банду Зигомара. Картер попадает в различные непростые ситуации, но каждый раз ему удается сбежать, чему помогает Ольга, бывшая девушка Зигомара.
-Всем известно, что «Ник Картер» пользовался громадным успехом. А «Зигомар» был настоящим триумфом! Поэтому кинопрокатчики уверены, что, показав в своих (   Читать дальше...   )Производство: Франция, Société Française des Films ÉclairЖанр: короткометражный, приключения, детектив, немое киноРежиссер: Викторен-Ипполит ЖассеАктеры: Александр Аркийер, Чарльз Краусс, André Liabel, Джозетт Андриот, Ольга Давыдофф, Paul Guidé, Эмиль Кеппенс, Мариз Дауврай, Камилла Бардо, Léon DuracПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E9836C832D80B884C440115995763764F159FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669552   (172672) от 17.10.2023
-
-Decembre Noir - Your Sunset | My Sunrise (2023) [MP3|320 Kbps] <Melodic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead End
-02. Against the Daylight
-03. Your Sunset | My Sunrise
-04. Sentimental Giants(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C783D90F8D23243B9BB8C0065FD3BCFF2954D21D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669644   (172673) от 17.10.2023
-
-Sieges Even - Life Cycle (1988) Reissue, 2022, Golden Core [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Thrash Metal>
+Lost Girls - Selvutsletter (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art Pop, experimental, electronic, krautrock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Repression And Resistance
-A2 Life Cycle
-A3 Apocalyptic Disposition
-A4 The Roads To Iliad (Instrumental)(   Читать дальше...   )Жанр: Progressive Thrash MetalПродолжительность: 00:43:51
+01. Timed Intervals [00:04:28]
+02. With the Other Hand [00:03:11]
+03. Ruins [00:04:55]
+04. Re-entering the City [00:04:12](   Читать дальше...   )Жанр: Art Pop, experimental, electronic, krautrockПродолжительность: 00:40:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C9ECF181107B420F04BB08026294B065A36FCAC
+magnet:?xt=urn:btih:EA5E7D7C60BB8880CC604C94CA7B2FC80AC6F2A7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669535   (172674) от 17.10.2023
+###  Публикация: 1670839   (171755) от 22.10.2023
 
-Crocodile - The Tale of Otter, Thorn Eater, And the Colored Coyotes of Hidden City (2023) [FLAC|Lossless|WEB-DL|tracks] <progressive rock>
+Lana Lane - Ballad Collection (2000) Special Edition, 2CD [FLAC|Lossless|image + .cue] <Symphonic Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sunrise Overture [00:04:03]
-02. Days Of Bravery And Cruelty [00:00:51]
-03. Thorn Eater [00:05:02]
-04. Pale Eyed Preachers [00:00:53](   Читать дальше...   )Жанр: progressive rockПродолжительность: 00:47:22
+01. Avalon
+02. Athena's Shadow
+03. Stardust
+04. Seasons End(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 00:52:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30D3A1858FE4F396CCE12789AC59C87E489716BF
+magnet:?xt=urn:btih:AD9228FD6CBC19D2553181CCCD1538DA2E0552D1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669607   (172675) от 17.10.2023
+###  Публикация: 1670954   (171756) от 22.10.2023
 
-Default Folder X 6.0.1 [En]
+Evian Christ - Revanchist (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experimental, Electronic>
 
->>Архив торрентов
->>Архив 4Apple
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2023Разработчик: © 1996-2022 St. Clair SoftwareПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+01. On Embers [00:05:05]
+02. Yxguden [00:04:26]
+03. The Beach [00:04:59]
+04. Nobody Else [00:06:36](   Читать дальше...   )Жанр: Experimental, ElectronicПродолжительность: 00:45:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58DAB19BE28181C42BC32AE0C9193A2AA799AC20
+magnet:?xt=urn:btih:F58CC07CC9888B9D618C94088A791BDCE949816B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669656   (172676) от 17.10.2023
+###  Публикация: 1670921   (171757) от 22.10.2023
 
-Roland Hanna Trio - Dream (2001) Venus Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+Bloodred Hourglass - How's The Heart? (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal / Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of Course I Still Love You [00:03:58]
+02. In Lieu of Flowers [00:03:37]
+03. Fragile [00:04:42]
+04. Anomaly [00:03:26](   Читать дальше...   )Жанр: Melodic Death Metal / Modern MetalПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26A3547BF19F48048C9002618A3110C54F01ADB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670850   (171758) от 22.10.2023
+
+Lana Lane - Red Planet Boulevard (2007) [FLAC|Lossless|image + .cue] <Symphonic Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Fire
+02. The Frozen Sea
+03. Capture The Sun
+04. Jessica(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5F2A9AFCE92523864F536E6DE6663AD9DD4E63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670843   (171759) от 22.10.2023
+
+Lana Lane - Love Is An Illusion (2001) Special Edition, 2CD [FLAC|Lossless|image + .cue] <Symphonic Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LIAA Prelude
+02. Love Is An Illusion
+03. Coloured Life
+04. Cold Outside(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23150543E1ED77A7B09FB261B76FC19EC2B66853
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670838   (171760) от 22.10.2023
+
+Lana Lane - Queen Of The Ocean (1999) [FLAC|Lossless|image + .cue] <Symphonic Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Hall Of The Ocean Queen
+02. Night Falls
+03. Queen Of The Ocean
+04. Let Heaven In(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203666DD6E77B6A5927635C7874147D9F2E57411
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670835   (171761) от 22.10.2023
+
+Howard Alden + George Van Eps - 13 Strings (1991) Concord [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. When I Grow Too Old to Dream [4:59]
-02. Street of Dreams [4:18]
-03. You Stepped Out of a Dream [6:05]
-04. Day Dream [6:39](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:03:56
+01. Just You, Just Me [5:22]
+02. My Ideal [4:18]
+03. I Hadn't Anyone Till You [5:42]
+04. A Beautiful Friendship [6:43](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:59:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:778B46FC1B39A54BB0D058816DF2A264777E1B27
+magnet:?xt=urn:btih:9603AD85E99CF62FE0AB316A0E09E5137F90301F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669658   (172677) от 17.10.2023
+###  Публикация: 1670794   (171762) от 22.10.2023
 
-Roland Hanna & George Mraz - Romanesque (2023) Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humoresque [8:23]
-02. Serenade [5:45]
-03. My Reverie [6:14]
-04. Chant Sans Paroles, Op.2, No.3 [4:32](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E10C75C3F9C77CB7B1D8B6D00B1C0C2C5FDEB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669532   (172678) от 17.10.2023
-
-Highway - Viral (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro: Mantra 1 [00:01:26]
-02. Sin Temor [00:04:08]
-03. Una Oportunidad [00:04:05]
-04. Viral [00:03:48](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21083D70A0CC5037BB2BC728AEC4A0DA39FD05D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669731   (172679) от 17.10.2023
-
-Nox Sinister - Knight Terrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fields of Blood
-02 - Crimson Mirror
-03 - March of the Tyrant
-04 - The Curse of the Azure Knight(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F61DE39078303BE3B5F6347C6BAD5FA5B8676866
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669439   (172680) от 17.10.2023
-
-Birth Asphyxia - Human Obelisk (2012) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human Obelisk
-02. Beginning of Collapse
-03. Penetrate the Mind
-04. Burn in Crematory(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E865BD925BED8055FF100C512DBDD8D29BF35F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669654   (172681) от 17.10.2023
-
-David Hazeltine - The New Classic Trio (2012) Sharp Nine Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Stood Still [5:18]
-02. I Wish I Knew [6:14]
-03. Hob Nob with Brother Bob [5:56]
-04. I'll Let You Know [6:49](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C54041773C2AA9448345975B2BF55336BA4E33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669523   (172682) от 17.10.2023
-
-Isengard - Vårjevndøgn (2012) Compilation, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chapter One - Vandreren (1993)
-A1 Vinterskugge
-A2 Gjennom Skogen Til Blaafiellene
-A3 Ut I Vannets Dyp Hvor Morket Hviler(   Читать дальше...   )Жанр: Black Folk MetalПродолжительность: 001:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB7A67230D97F07FF5E23B6F1CAC4671B51BD22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669512   (172683) от 17.10.2023
-
-Isengard - Traditional Doom Cult (2016) EP [FLAC|24/192|tracks|Vinyl-Rip] <Black Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172683.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Light
-B1 The FrightЖанр: Black Folk MetalПродолжительность: 00:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A886DDBFF03D3C7ECFAC8C49F90F5501A1DFB3C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669651   (172684) от 17.10.2023
-
-Sieges Even - Steps (1990)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Progressive Thrash Metal, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172684.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1a Alba (Instrumental)
-A1b Epitome
-A1c Apotheosis
-A1d Seasons Of Seclusion (The Prison)(   Читать дальше...   )Жанр: Progressive Thrash Metal, Progressive MetalПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8923432A52D32990EDE7E67455F82C62975E5B62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669554   (172685) от 17.10.2023
-
-Permutation - Transience (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Feast for Crows (04:38)
-02 - Arrow of Time (04:35)
-03 - Into the Abyss (04:40)
-04 - Lost in Transience (04:48)(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44080925F0ED26F9B3B0041C126A5539743763BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669619   (172686) от 17.10.2023
-
-Profanatica - Crux Simplex (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Condemned to Unholy Death (04:37)
-02 - Take Up the Cross (03:00)
-03 - The First Fall (03:23)
-04 - Meeting of a Whore (03:01)(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F67A43933790B74F0CA062C4D7CB03521F6D10C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669579   (172687) от 17.10.2023
-
-EdgeView 4.3.4 [En]
+n-Track Studio Suite 10.0.0 Intel/ARM [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2023Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+Программа для обеспечения студийного качества записи, редактирования и микширования.
+Программа n-Track Studio привносит профессиональное качество аудио файлов и облегчает рабочий процесс.Тип издания: macOS SoftwareРелиз состоялся: 20.10.2023Разработчик: n-Track S.r.lПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E231BE79DC9135F89607604D085B146494F42734
+magnet:?xt=urn:btih:2D96FDF6749D8BD8857D6DDBF8E9A96BBBBB677B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669580   (172688) от 17.10.2023
+###  Публикация: 1670968   (171763) от 22.10.2023
 
-SiteSucker 5.1.13 [Multi]
+Белый город | Блага земные и блага небесные. Священное Писание и церковный опыт (2017) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171763.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны цитаты из Священного Писания и высказывания святых отцов и священников о том, каковы блага земные и блага небесные, за что нам благодарить Бога, как усиливать стремление к доброй жизни и как испытать вечное блаженство уже здесь, на земле.Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62DAAB7A29AE7989E9D2C1E63D1E7ADAEE56FEA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670976   (171764) от 22.10.2023
+
+Благовест | Покаяние очищает душу. По творениям святителя Филарета Московского (2020) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная работа представляет собой сборник изречений святителя Филарета Московского, относящихся к покаянному деланию христианина. В своих творениях святитель Филарет учит нас тому, в чем заключается суть и необходимость покаяния перед Богом в своих грехах для каждого христианина, каковы этапы и условия покаяния и исповеди, а также духовные плоды покаянного подвига. (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82F556A1CDBA99315A24DB78BFA3DCBDA09686B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670564   (171765) от 22.10.2023
+
+Stahlhammer - Eisenherz (2002) [FLAC|Lossless|image + .cue] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Und Ich Bring Dir Die Holle
+02. Marylin
+03. Eisenherz
+04. Fur Immer(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E602005A91F4A8AA35C3F0A9FE00AFB5D8D17A4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670845   (171766) от 22.10.2023
+
+Lana Lane - Curious Goods (2002)Special Edition, 2CD [FLAC|Lossless|image + .cue] <Symphonic Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информация: Лана Лейн (англ. Lana Lane) — американская певица и композитор. Поёт в собственной группе Lana Lane, исполняет партии бэк-вокала в прогрессивной группе Rocket Scientists. Также принимала участие в проекте Ayreon, рок-опере Genius и альбомах Эрика Норландера. Поклонники называют её «Королевой симфонического рока».01. Curious Goods Part One
+02. Emerald City
+03. Escher’s Staircase
+04. Heart Of Dawn(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 02:18:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FFAB03BA6068E572E42B849420AE345D1EF17A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670980   (171767) от 22.10.2023
+
+Сатисъ | Искание Христа. Из творений Святителя Димитрия Ростовского (2020) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171767.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли избранные творения известного русского церковного писателя, святителя Димитрия Ростовского, которые помогут православному христианину утвердиться в вере и встать на путь спасения.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2F863EABD0F65078943BE44B6B71104EE66865
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670928   (171768) от 22.10.2023
+
+Jack Out - X Salvarsi (2023) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cuore Rotto [00:02:35]
+02. Eco [00:03:22]
+03. Save Yourself [00:03:25]
+04. Aspiri [00:02:57](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:002587905D3F2F7424EE7B7590803F2DF1B13D03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670812   (171769) от 22.10.2023
+
+Johnny Griffin Meets Horace Parlan - Close Your Eyes (2000) Minor Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Close My Eyes [6:38]
+02. Pannonica [9:32]
+03. I Hear a Rhapsody [6:01]
+04. My One and Only One [8:27](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7FB678362B7E5D5E099524655398A8CA63E1C45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670825   (171770) от 22.10.2023
+
+Howard Roberts - Good Pickin's (1959) 1999, Verve [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will You Still Be Mine [4:25]
+02. When the Sun Comes Out [4:18]
+03. All the Things You Are [2:45]
+04. Lover Man [4:30](   Читать дальше...   )Жанр: Cool, Mainstream Jazz, Guitar JazzПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BFBD5E63A6D0DEC1B5F60944D714CB8B163D54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670849   (171771) от 22.10.2023
+
+Lana Lane - Project Shangri-La (2002) [FLAC|Lossless|image + .cue] <Symphonic Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Redemption Part I
+02. Project Shangri-La
+03. Encore
+04. Before You Go(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3B5B15A2E854592A8CEEEECC4067B122D8796E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670567   (171772) от 22.10.2023
+
+Stahlhammer - Opera Noir (2006) [FLAC|Lossless|image + .cue] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vienna
+02. Wie Es Ist
+03. Opera Noir
+04. Kalt Wie Eis(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E8F8925CCB0502F74D639D7388D95A766CE61F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670769   (171773) от 22.10.2023
+
+Solar Sons - Subliminal Criminal (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Worlds Unknown (08:04)
+02 - Crimson Sky (04:02)
+03 - Just a Ride (06:17)
+04 - Into the Beyond (06:16)(   Читать дальше...   )Жанр: Heavy, Progressive MetalПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891C6E697382D16FD1CA36435066CE3EE9F6FCD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670823   (171774) от 22.10.2023
+
+Bill Evans - Nardis (1965 - 1972) 2003, Absord Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How My Heart Sings [4:20]
+02. Time to Remember [5:20]
+03. 12 Toned Tune [4:57]
+04. Waltz for Debby [5:00](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AE91F099E8DE3F4D42872F93B696FC319A9AA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670924   (171775) от 22.10.2023
+
+Hippie Death Cult - Helichrysum (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner/Doom Metal/Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arise [00:06:02]
+02. Shadows [00:05:52]
+03. Better Days [00:06:40]
+04. Red Giant [00:04:47](   Читать дальше...   )Жанр: Stoner/Doom Metal/RockПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F950EF059CB87D7A7A7E975E654E7EB0D4B117E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670828   (171776) от 22.10.2023
+
+John Pizzarelli - Stage & Screen - Stage & Screen (2021) 2023, Palmetto Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Close for Comfort [5:56]
+02. I Love Betsy [3:06]
+03. I Want to Be Happy [5:21]
+04. Tea for Two [7:46](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64623A75BE544741918E6492269D57BD6C423146
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670821   (171777) от 22.10.2023
+
+Grant Green - Sunday Mornin' (1961) 1996, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom March [8:42]
+02. Sunday Mornin' [4:02]
+03. Exodus [7:02]
+04. God Bless the Child [7:23](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6BEB0086D192AFDBC717444FFB9A52EF816ABE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670796   (171778) от 22.10.2023
+
+iShowU Instant (Advanced) 1.4.16 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
-SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2023Разработчик: © 2001-2022 Rick CraniskyПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и т.д.
+Удобный редактор видео поможет вам записывать видео и аудио контент, а затем обработать результаты, сделать свои собственные аннотации, и многое другое.
+iShowU Studio предоставляет эффективные инструменты для редактирования видео в стильной, организованной среде, и направлена на оказание помощи для создания качественных проектов, не тратя слишком много времени.Тип издания: macOS SoftwareРелиз состоялся: 05.09.2023Разработчик: © 2022 shinywhitebox ltdПоддерживаемая ОС: macOS 10.14.4 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A760E530B52E265432FE0352E196C985F883733
+magnet:?xt=urn:btih:C4DABF447BAFBBFE97AA0593D59D75F9EE636F19
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 670673   (172689) от 16.10.2023
+###  Публикация: 1670820   (171779) от 22.10.2023
 
-Дорогой доктор / Пациент всегда прав / Royal Pains (2013) WEB-DLRip (сезон 5, серии 1-13 из 13) NewStudio
+Anita O'Day - My Ship (1975) 2003, Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
 
->>Зарубежные сериалы
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171779.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хэнк Лоусон – молодой талантливый врач, у которого есть все атрибуты успеха: блестящая карьера, невеста-красавица. Но, обвиненный в совершении врачебной ошибки, Хэнк остается без работы и попадает в «черный список» всех медицинских учреждений Нью-Йорка. Невеста тут же «испаряется», оставив ему стопку счетов на оплату несостоявшейся свадьбы. Брат уговаривает Хэнка (   Читать дальше...   )Производство: США, Universal Cable Productions, Master Key Production, Prospect ParkЖанр: драма, комедияРежиссер: Майкл Ройч, Мэттью Пенн, Джей ЧандрашекхарАктеры: Марк Фойерстин, Паоло Костанзо, Решма Шетти, Брук Д’Орсей, Кэмпбелл Скотт, Джилл Флинт, Бен Шенкман, Генри Уинклер, Рупак Джинн, Дитер РислПеревод: Двухголосый профессиональный - NewStudioЯзык озвучки: Русский, английскийПродолжительность: ~00:43:00 серия
+01. Satin Doll [2:19]
+02. Mean To Me [3:35]
+03. Why Shouldn't I [2:13]
+04. Body And Soul [4:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:500D3FD5D8A7FC02ADDE3CDC1CF326F03FACB727
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543732   (172690) от 16.10.2023
-
-Дорогой доктор / Пациент всегда прав / Royal Pains (2012) WEB-DLRip (сезон 4, серии 1-16 из 16) NewStudio
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хэнк Лоусон – молодой талантливый врач, у которого есть все атрибуты успеха: блестящая карьера, невеста-красавица. Но, обвиненный в совершении врачебной ошибки, Хэнк остается без работы и попадает в «черный список» всех медицинских учреждений Нью-Йорка. Невеста тут же «испаряется», оставив ему стопку счетов на оплату несостоявшейся свадьбы. Брат уговаривает Хэнка (   Читать дальше...   )Производство: США, Universal Cable Productions, Master Key Production, Prospect ParkЖанр: драма, комедияРежиссер: Майкл Ройч, Мэттью Пенн, Джей ЧандрашекхарАктеры: Марк Фойерстин, Паоло Костанзо, Решма Шетти, Брук Д’Орсей, Кэмпбелл Скотт, Джилл Флинт, Бен Шенкман, Генри Уинклер, Рупак Джинн, Дитер РислПеревод: Двуголосый профессиональный (NewStudio)Язык озвучки: Русский, английскийПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CCB07DC02F20C0E1D0EB5B0CA9232CB2774DE78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455820   (172691) от 16.10.2023
-
-English Galaxy v1.6.1 Mod by Alex.Strannik [Ru/Multi]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172691.jpg" />
-</div>
-
-
-###  Подробнее
-
-English Galaxy - уникальное приложение для тех, кто хочет выучить английский язык с нуля до продвинутого уровня по грамматике и словарному запасу одновременно. Наша система обучения разработана на основе уникального авторского курса, который не имеет аналогов. Данный авторский курс состоит из 6 разделов, где представлены уроки с нуля до продвинутого (A0 - C1). Данные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 14.06.2023Разработчик: English GalaxyПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694B2F730AB311C75B524558088CDA212EE7B868
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669451   (172692) от 16.10.2023
-
-SketchUp Pro 2023 23.1.340 RePack by KpoJIuK [Ru/En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172692.jpg" />
-</div>
-
-
-###  Подробнее
-
-SketchUP Pro - является профессиональной версией приложения, позволяющего создавать 3D-модели, демонстрировать их в качестве презентации, обмениваться ими. Программа будет полезна везде, где есть необходимость применения 3D-моделей, будь-то проектирование пристройки для дома, обучение школьников геометрии или же создание модели для Google Earth. Множество простых (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCB8D6F134F83A94083FE9A7EA224B1AD98E7D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669294   (172693) от 16.10.2023
-
-Lords of the Fallen (2023) [Ru/Multi] (1.1.191/dlc) Repack Other s
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lords of the Fallen представляет совершенно новое эпическое ролевое приключение в огромном и сложном мире, который как минимум в пять раз больше мира оригинальной игры. После эпохи жестокой тирании демон-бог Адыр наконец был побежден. Но боги не гибнут навеки. И теперь, века спустя, близится воскресение Адыра. Станьте одним из знаменитых Темных крестоносцев и отправляйтесь (   Читать дальше...   )Тип издания: RepackРазработчик: HEXWORKSЖанр: Adventure, Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский (отдельно), Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский (отдельно), Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE38E1FBFE1E40ACBD323F8154AC74F96E74356
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 13743   (172694) от 16.10.2023
-
-OratoricaMedia, Владимир Тарасов - Искусство управленческой борьбы. Видеотренинг. [RU]
-
->>След.
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеокурс представляет уникальную возможность компаниям и менеджерам любого уровня целенаправленно добиваться создания конкурентного преимущества путем совершенствования технологии перехвата и удержания управления.
-Вы получаете эффективную систему приемов и методов ведения управленческой борьбы - от самых простых приемов, вроде держания паузы, до весьма сложных стратегем.Производство: OratoricaMediaЖанр: Обучение, менеджментЯзык озвучки: РусскийФормат: DVD5 (образ диска)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A346A211A876E902BC8E3D40C9BDBE10629D1F17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 168928   (172695) от 16.10.2023
-
-Новая Камасутра XXI века. Современная любовь 2 / Modern Loving 2 (2004)
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172695.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Современная любовь" - это самая простая и приятная обучающая программа, которая уже выбрана миллионами семей во всем мире, так как эта программа действительно сексуальна и показывает именно тот секс, которым миллионы людей занимаются каждый день. Но прелесть программы не только в этом. "Современная любовь" научит Вас, как усилить либидо Вашего (   Читать дальше...   )Жанр: ЭротикаПеревод: Профессиональный (двухголосый)Продолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879D9723DC682988DF62FE9DE956092F37BF1AA5
+magnet:?xt=urn:btih:D8BA11D3F2737125E1B7F642C11EBB7CE203450A
 ```
 
 

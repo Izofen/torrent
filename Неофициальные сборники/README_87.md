@@ -1,3 +1,30 @@
+###  Публикация: 1434222   (153246) от 23.12.2020
+
+VA - Eternal Vices (2020) [MP3|320 Kbps] <Rock Indie, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это возвращение к ушедшим ощущениям музыкантов: от чувства единения с природой до личных эмоций. Это реинкарнация ранних мелодий, которые звучат по-другому в постоянно меняющемся мире вокруг нас. Мелодические эмоции похожи на дежавю - вы ранее уже чувствовали что-то подобное, но эти ощущения новые, еще более воодушевляющие.001. Fire In The Radio - Rewind
+002. Fours - Is This The Night
+003. Lewis Capaldi - Fade
+004. Tim Burgess - Empathy For The Devil(   Читать дальше...   )Жанр: Rock Indie, AlternativeПродолжительность: 07:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B459051EA7ACEC9C653A4DAFE8874325C81577B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086428   (153284) от 24.12.2016
 
 VA - Empire Records - Chill Out 5 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -667,33 +694,6 @@ VA - Best Car Xmas Edition 2019 (2018) Compiled by mCITY [MP3|320 Kbps] <Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:063346D34271EE39A5E6F68D4A7325018B0E140E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433963   (154244) от 22.12.2020
-
-VA - Heavy Metal Collections Vol. 17 (5CD) (2020) [MP3|320 Kbps] <Symphonic, Power, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154244.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Grailknights - Pumping Iron Power (2018) (3:54)
-02. Chaos Magic - One Drop Of Blood (2015) (4:27)
-03. Silverheart - Shadows Maiden (2015) (4:51)(   Читать дальше...   )Жанр: Symphonic, Power, Heavy MetalПродолжительность: 05:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66C85E8DFCBFA8F84FB2DD8F85DBAB9EFB380F4
 ```
 
 

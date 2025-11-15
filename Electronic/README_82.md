@@ -1,3 +1,57 @@
+###  Публикация: 1695149   (120372) от 29.01.2024
+
+VA - Dream Dance Vol. 95 - The Annual (Extended Versions) (2024) [MP3|320 Kbps] <Trance, Progressive, Dance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Sam Smith - Desire (Extended Mix) [4:33]
+02. Hardwell x DJs From Mars x Tomcraft - Loneliness (Extended Mix) [3:39]
+03. Felix Jaehn & Jonas Blue - Past Life (Extended Mix) [5:07]
+04. twocolors x Safri Duo x Chris de Sarandy - Cynical (MistaJam Extended Remix) [5:16](   Читать дальше...   )Жанр: Trance, Electronic, DanceПродолжительность: 05:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420F895B0F28F680DC88A7AEE6768612344FDC9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695124   (120434) от 28.01.2024
+
+Caro Emerald - The Shocking Miss Emerald (The Remixes) (2013) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tangled Up (Yarin & Richwood Remix) [00:03:34]
+02. Tangled Up (Yarin & Richwood Remix) (Yarin & Richwood (Extended Version)) [00:04:36]
+03. Tangled Up (Lokee Remix) [00:03:25]
+04. Tangled Up (Kahedi Remix) [00:03:04](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A3C17969EF1FCFCAC718384906A6065E57B5285
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695101   (120454) от 28.01.2024
 
 VA - Spektra's History - 16th Anniversary (2024) [MP3|320 Kbps] <Breaks, Breakbeat>
@@ -638,60 +692,6 @@ VA - Melodically Trance 02 (2024) [MP3|320 Kbps] <Trance, Progressive, Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FAFB709E43153DE25F13F21029C837D3A211536
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694344   (121119) от 24.01.2024
-
-VA - Redux Selection Vol. 2 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Courbet - Left Alone (Extended Mix) [6:42]
-02. Mark Hide - Close To The Stars (Extended Mix) [7:47]
-03. AREO - Passion (Extended Mix) [7:48]
-04. Erik D & Katty Heath - Love Again (Extended Mix) [6:35](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD1908B2722E6C91D2C5CFCE12DDA880593F1699
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694064   (121306) от 23.01.2024
-
-Pet Shop Boys - Format (B-Sides And Bonus Tracks 1996–2009) (2012) [OGG Vorbis|480 Kbps] <Europop, Synth-pop, Disco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Truck-Driver And His Mate
-02.  Hit And Miss
-03.  In The Night (1995)
-04.  Betrayed(   Читать дальше...   )Жанр: Europop, Synth-pop, DiscoПродолжительность: 02:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F2830D8F20669564544EA97BCA4D96B7F258DC
 ```
 
 

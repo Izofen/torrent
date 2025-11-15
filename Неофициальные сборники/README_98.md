@@ -1,3 +1,30 @@
+###  Публикация: 1596736   (168963) от 11.12.2022
+
+VA - The True Romance (2022) [MP3|320 Kbps] <Pop, Lyric, Romantic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giovanni Toscano - Amore Mio
+02. I Le Lucertole - Supercoppa
+03. Philipp Dittberner - Marie
+04. Pom Poko - Cheater(   Читать дальше...   )Жанр: Pop, Lyric, RomanticПродолжительность: 03:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3E1A09F563B8D9BA5B16945E7658C08381BE70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344750   (168965) от 12.12.2019
 
 VA - Planet Dance Music: Euromix Energia Total (2019) [MP3|320 Kbps] <Dance, Pop>
@@ -668,33 +695,6 @@ VA - Disco House Party (2019) [MP3|320 Kbps] <Disco House, Funky House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CD81EED97BFAE3E8718DB07BB3F7A15644340E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344311   (170545) от 10.12.2019
-
-VA - The Sound Of Dance House (2019) [MP3|320 Kbps] <Dance House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170545.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yinon Yahel - Not Good For Me
-002. Giben Gless - Random (Original Mix)
-003. Mike Candys - Brand New Day
-004. Bassienda - All I Want (Original Mix)(   Читать дальше...   )Жанр: Dance HouseПродолжительность: 13:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ABDD944E099F5AA7709A1F5BB995880A56DF552
 ```
 
 

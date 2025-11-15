@@ -1,3 +1,57 @@
+###  Публикация: 968115   (156353) от 23.12.2015
+
+VA - Anjunabeats Volume 12 (Mixed by Above and Beyond) (2015) [MP3|320 кб/с] <Trance,Progressive Trance,Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Howling - X Machina (Cubicolor Remix)
+02. Thomas Schwartz & Fausto Fanizza - Circles
+03. Oliver Smith - Your Love
+04. Jaytech - Great Divide(   Читать дальше...   )Жанр: Trance,Progressive Trance,Progressive HouseПродолжительность: 05:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E806BEC3E5510D79D6229F3F8E76C4B0DE7F89F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270474   (156408) от 19.12.2018
+
+VA - Christmas Dance Party 2018-2019 (Best of Dance, House & Electro) (2018) [MP3|320 Kbps] <House, Dance, Electro-House, Bigroom>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spikaa feat. Deja - Home (Radio Mix)
+02. Sean Norvis feat. Pacha Man and Alexandra Mitroi - Bad Girls (Radio Edit)
+03. John Reyton - Out Of The Dark (Radio Edit)
+04. Geo Da Silva - Pump It Up (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Electro-House, BigroomПродолжительность: 02:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3619A1AE7B058B83FE2EFB235344ABE8870BE511
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 738108   (156445) от 24.12.2013
 
 VA - Top 40 Ambient Tracks (2013) [FLAC|Lossless|WEB-DL]<Psybient, Ambient, Downtempo, Progressive Trance>
@@ -632,60 +686,6 @@ VA - Angel Voices, Vol. 1 (Enigmatic Chill and Mystic Tracks to Relax) (2020) [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1143B58C3E9C1B475B8173A7A1C4F1F6596DB70E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346756   (157862) от 20.12.2019
-
-Lane 8 - Winter 2019 Mixtape 2019-12-17 [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lane 8 - Just
-02. Baya - Hypno
-03. Gorgon City - Roped In
-04. Ben Böhmer - Maelstrom(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 02:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D228BCA23C0B80374C8F87219A2346D0F0DB561
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194395   (157876) от 24.12.2017
-
-VA - Dark Amsterdam Trance (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gierto - What Dreams May Come (Original Mix)
-02. Owl Stone - Never Coming Back (Original Mix)
-03. Sunmote - Midnight (Original Mix)
-04. Bekar-b - Another Chance (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27338AFCA7F32FA2E0FF72422D45DB49820EB9E1
 ```
 
 

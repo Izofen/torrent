@@ -1,3 +1,57 @@
+###  Публикация: 1674160   (160845) от 06.11.2023
+
+VA - Solarstone Presents Pure Trance 10 (Mixed By Solarstone) (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stoneface & Terminal - Lose My Need (Robert Nickson Chillout Intro Mix) (Mixed) [1:49]
+02. Solarstone & Aquarius - Arpeggiator Shards (Mixed) [6:13]
+03. Pablo Gargano - The Breeze (Mixed) [4:47]
+04. Macker - Arrakis (Mixed) [7:08](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 07:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6956C98BDB4DF98739D23D760C863D43EC4FCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518212   (160956) от 18.12.2021
+
+VA - Angel Voices Vol.2 (Enigmatic Chill & Mystic Tracks To Relax) (2021) FLAC [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Ensemble of Mystic Hours (5:00)
+02. Guardians of Secret - Eternal (Epic Voices Mix) (4:05)
+03. Buddhatronic - Back to the Beginning (4:17)
+04. Artenovum - Beyond The Sky (4:28)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E065A020A6A97C7E88734ECE875BCAD4C2B34CDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433306   (160965) от 20.12.2020
 
 Барто - Светлое завтра (2017) [MP3|320 Kbps] <Electro-Punk, Electro-Clash>
@@ -636,60 +690,6 @@ VA - Recharged 002 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6A5DC68EB5D50177F17B3D58CD178ABEDC062F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517519   (162756) от 15.12.2021
-
-Eli & Fur - Found In The Wild (Remixed) (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Back Around (Maya Jane Coles Remix) (3:42)
- 02. Wild Skies (Marsh Remix) (3:57)
- 03. Walk The Line (Themba Remix) (2:37)
- 04. Come Back Around (Eli & Fur Club Mix) (5:36)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:27:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D3336BE1F79E724D54407B65339C2579C40B3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517367   (162833) от 15.12.2021
-
-VA - Planeta Mix Hits 2022: Winter Edition (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stephan F & YA-YA - U & Me (2:30)
-02. Geo Da Silva & Dani Corbalan - Amore Sincero (2:26)
-03. Deep Emotion - Ready To Let Go (2:20)
-04. Heaven & Alone - I Want To Be Alone (2:27)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73DEE850B963F0C1EE8A2B2AD299F1CE10E7AD6F
 ```
 
 

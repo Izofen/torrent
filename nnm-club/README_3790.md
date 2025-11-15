@@ -1,669 +1,670 @@
-###  Публикация: 1697342   (118920) от 06.02.2024
+###  Публикация: 1698604   (118232) от 10.02.2024
 
-Hammerhead - Lords Of The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118920.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Waiting For The Daisies
-2. Lords Of The Sun Pt. 1: Blood & Sand / Coup De Gras
-3. Lords Of The Sun Pt. 2: Threnody / Dreamscape
-4. Faithful Heart(   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8E582C282D0F128585D151D300087EB9B52912
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697478   (118921) от 06.02.2024
-
-Brutus (Norway) - Studio Albums (3 releases) (2010-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Stoner Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brutus - норвежская хард-рок-группа из Осло, Норвегия, образованная в 2007 году. У Brutus тяжелый грув, основанный на блюз-ориентированном рифф-роке 1970-х годов, в духе Black Sabbath, Grand Funk Railroad, Blue Cheer, Pentagram и других.2010 - Brutus
-2013 - Behind The Mountains
-2016 - Wandering BlindЖанр: Hard Rock, Stoner RockПродолжительность: 02:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222B5D0E09D75613B3C530324777BEF7B6A97287
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697429   (118922) от 06.02.2024
-
-Shaytan - Chapter One (2023) [MP3|320 Kbps] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaytan (03:59)
-02. Salting the Earth (05:10)
-03. Speaking in Tongues (04:56)
-04. Tabula Rasa (04:52)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62317D68A3368E5A12C90B409F3D3FACEEAA793A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697481   (118923) от 06.02.2024
-
-Myrkur - Mareridt (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118923.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Mareridt
-A2 Maneblot
-A3 The Serpent
-A4 Crown(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9828534FC90C6994C3D4D55A35E1C2D993E508E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697322   (118924) от 06.02.2024
-
-Bubba Henry - It Is What It Is (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let the Blues Be the Blues (4:14)
-02. I'm a Bluesman (3:18)
-03. Me and Memphis (3:41)
-04. Losing the Blues (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51711CB938DBF8D8A7762E9E5EDA7D0023AEA64F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697321   (118925) от 06.02.2024
-
-Bourbon Street Revival - Bourbon Street Revival (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absolution (4:44)
-02. No More (5:06)
-03. Nine Minutes of Bliss (3:23)
-04. Ain't No Use (5:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD8C26BEEEF6E73D570993CE7A2A9CD93B3FEFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697108   (118926) от 06.02.2024
-
-Prediction of the Witch - Sworn into the Void (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+The Mountain King - Apostasyn (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118232.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crawling [00:03:07]
-02. Color of Death [00:03:40]
-03. Swamp Water [00:03:03]
-04. Monolith [00:03:30](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:30:27
+01. Dødo [00:09:17]
+02. Apostasyn [00:15:07]
+03. The White Noise From God's Radio [00:11:48]
+04. Axolotl Messiah [00:06:22]Жанр: Doom MetalПродолжительность: 00:42:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3B3635D5916635EDA529AD2C0A5F8974620C445
+magnet:?xt=urn:btih:A2661CA386018286B7307E9D8DCB8C76C8FE770A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697503   (118927) от 06.02.2024
+###  Публикация: 1698698   (118233) от 10.02.2024
 
-Skyscraper - Elevation (2014) [FLAC|Lossless|image + .cue] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sail Away
-02. Monday Morning
-03. Fay Wray
-04. Across The Barricades(   Читать дальше...   )Жанр: AORПродолжительность: 00:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A10FE289AA35741F7DEEA088BA90D47ADC84021
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697423   (118928) от 06.02.2024
-
-Vintage Lounge Orchestra - Ultimate Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Lo-Fi, Easy Listening>
+Stanley Cowell - Live at Maybeck Recital Hall, Vol. 5 (1990) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dreams (feat. Laura Serra)
-02. I've Been Waiting for a Girl Like You (feat. Alessandro Pitoni)
-03. I Can See Clearly Now (feat. Daniele Vit)
-04. Georgy Porgy (feat. Wendy Lewis)(   Читать дальше...   )Жанр: Nu Jazz, Lo-Fi, Easy ListeningПродолжительность: 01:20:21
+01. Softly, as in a Morning Sunrise [2:41]
+02. Stompin' at the Savoy [4:02]
+03. I Am Waiting [6:12]
+04. Nefertiti [4:49](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Piano JazzПродолжительность: 01:04:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B30309CB7061886FBCCFEEC0E9EB3DD6025EAA52
+magnet:?xt=urn:btih:13D1F5DA7FF7B041B37717C7E192CFB835DA6C3C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697397   (118929) от 06.02.2024
+###  Публикация: 1698575   (118234) от 10.02.2024
 
-Laserdance - Technological Mind (1992) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
+Natalie Cole - Natalie Cole Love Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul, Pop, Easy Listening, Disco>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unforgettable [00:03:32]
+02. Miss You Like Crazy [00:03:54]
+03. Angel On My Shoulder [00:04:24]
+04. When I Fall In Love [00:05:07](   Читать дальше...   )Жанр: Jazz, Funk, Soul, Pop, Easy Listening, DiscoПродолжительность: 01:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EBA9DF508208B1958AECE3B11E29D7E265E761D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698870   (118235) от 10.02.2024
+
+Святой праведный Иоанн Кронштадтский | Правда о Боге, мире и человеке (2015) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святой праведный Иоанн Кронштадтский (Иван Ильич Сергеев) – священник Русской Церкви, проповедник, один из самых почитаемых и любимых святых. Как духовный писатель он оставил после себя многочисленные проповеди и дневниковые записи. Слову Всероссийского пастыря свойственны возвышенность и афористичность. И сегодня оно сияет такой же новизной, как будто на странице (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7812DDC310F43F50BBB987FFFBC2CC52B8AB22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698599   (118236) от 10.02.2024
+
+Temptress - The Time Traveler's Continuum (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, Alternative metal, industrial rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rebirth [00:04:11]
+02. Resurgence [00:03:51]
+03. Ritual [00:03:46]
+04. Revelation [00:03:51](   Читать дальше...   )Жанр: Alternative rock, Alternative metal, industrial rockПродолжительность: 00:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5354AA652A6DBA8E9CAD27E0E724A34D8ABF54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698856   (118237) от 10.02.2024
+
+VA - Keep It Trance Vol. 19 (2024) [MP3|320 Kbps] <Trance>
 
 >>Electronic
->>Synthpop, New Wave
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Warriors
-02.  Dead Star
-03.  New Adventure
-04.  Sky Orbit(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:55:03
+01. Epidemika - High (Original Mix) [3:45]
+02. Kaselia & Dalmoori - Glow In The Dark (Original Mix) [4:13]
+03. Dima Krasnik & Vol Deeman - Escape From The Earth (STNX Remix) [6:34]
+04. Istar Project - Patagonia (Extended Mix) [6:04](   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27C33DAAC8E9AE622427987DD24EEF4CFE79AA02
+magnet:?xt=urn:btih:589F578CC33875ECB4DED543EFC8C4D78A2BAFCF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697360   (118930) от 06.02.2024
+###  Публикация: 1698816   (118238) от 10.02.2024
 
-Severed Soul - In the Depths of Mourning (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
+В.А. Жуковский | Золотая коллекция сказок. Сказка о царе Берендее (2007) [MP3, Галина Лебедева]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Золотая коллекция сказок.
+Предлагаем вашему вниманию аудиокнигу со сказками Василия Андреевича Жуковского (1783–1852).Жанр: Русская литература для детей, классика, сказкаИздательство: ТВИК-ЛИРЕКПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE323EABE87FD25BC9C8815B445C4868FB2B2B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698613   (118239) от 10.02.2024
+
+BetterMouse for Mac 1.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118239.jpg" />
+</div>
+
+
+###  Подробнее
+
+BetterMouse — это утилита для macOS, улучшающая производительность и функциональность внешней мыши и призванная заменить громоздкие, навязчивые и ресурсоемкие драйверы мыши, такие как Logitech Options. Это многофункциональная, легкая, оптимизированная по эффективности и абсолютно безопасная для конфиденциальности система, пытающаяся удовлетворить все ваши потребности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2024Разработчик: © 2024 BetterMouseAppПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B785A473C17750A81E75111EB9F6F892D99DD1B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698714   (118240) от 10.02.2024
+
+Dark Haven - IV (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Distant Shores (00:07:16)
-02 - In the Depths of Mourning (00:08:15)
-03 - Bury the Past (00:06:56)
-04 - Twilight's Embrace (00:07:12)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:34:27
+01. Shadows & Dust 01:52
+02. The Deceiver 05:17
+03. Echoes 04:55
+04. Into The Dark 04:39(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D4F07ABF2AED05F3720B7F9C4819527F1594A00
+magnet:?xt=urn:btih:29EFAD8C3171446FFACDB3835600E599B185FBE5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697310   (118931) от 06.02.2024
+###  Публикация: 1698669   (118241) от 10.02.2024
 
-Джейсон Шрейер | Нажми Reset (2021) [MP3, Петр Сальников]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще вчера вы работали над потрясающей игрой, в которую верила вся команда. А сегодня забираете вещи из офиса и оказываетесь безработным. Что же произошло? Ответ игрового обозревателя Bloomberg News и автора этой книги Джейсона Шрейера пугающе прост – в современной геймдев-индустрии сказкам места нет.
-Ежегодно по всему миру закрываются десятки игровых студий, разработчики (   Читать дальше...   )Жанр: Познавательная литератураИздательство: ЭксмоПродолжительность: 09:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0A4B477E41B8CBFECBECBAF015E85AD9590AC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697468   (118932) от 06.02.2024
-
-Sandboxie 5.67.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D09B9BC1FEEF50E8696D02280990100AC9E01C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697422   (118933) от 06.02.2024
-
-Журнал | Кухонька Михалыча №2 (222) (февраль 2024) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDEDCD7F1BDCB62CE37C8429438837DA292A3E54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697246   (118934) от 06.02.2024
-
-VA - Cafe Deluxe Chill Out - Nu Jazz  Lounge, Vol. 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Nu Jazz>
+Metropolitan Jazz Octet Featuring Dee Alexander - It's Too Hot For Words: Celebrating Billie Holiday (2019) Delmark Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Soundset City - Late Night (3:34)
-02. Nightview - Nightdrive (3:15)
-03. Jean Mare - Only Lounge (3:17)
-04. Audiozoom - 5th Pleasure (3:14)(   Читать дальше...   )Жанр: Chill Out, Nu JazzПродолжительность: 01:05:37
+01. Ain't Nobody's Business If I Do [5:12]
+02. Things Are Looking Up [5:41]
+03. You're So Desirable [5:35]
+04. The Blues Are Brewin' [5:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EFE973626ABEFE1532E24D829AA73894E56FDA4
+magnet:?xt=urn:btih:B95074A3AB9F992E6064DE7243F48CF53DBD5175
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697196   (118935) от 06.02.2024
+###  Публикация: 1698739   (118242) от 10.02.2024
 
-Как мужчины делают предложение / How Men Propose (1913) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совсем небольшая киношутка. О том как три джентльмена сделали предложение и подарили колечко одной и той же барышне. А она в ответ подарила свое фото и взяла кольцо у... у всех троих!Производство: США, Crystal Film CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Лоис ВеберАктеры: Честер Барнетт, Грэйс Дарлинг, Филлипс Смолли, Лоис ВеберПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59BA8C2E77A4C9C234EEFD3647725F350C3B5DE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697409   (118936) от 06.02.2024
-
-Icecream Slideshow Maker PRO 5.10 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icecream Slideshow Maker - это приложение для создания видео слайдшоу на основе ваших любимых фотографий. Оживите свои фото с помощью большого количества эффектов и наложения музыки. Программа не требует специальных навыков и позволяет создать слайдшоу всего за несколько минут: добавьте фото, выставите нужные настройки для каждого кадра, проверьте с помощью предпросмотра (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8365B6A8376E38A0DCF3D252E989F5A97385C8D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697326   (118937) от 06.02.2024
-
-Funky Bluester - Expensive & Dirty (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Expensive & Dirty (6:48)
-02. Ain't No Walk In The Park (3:16)
-03. Sleeping On The Couch (5:36)
-04. Tell Me (5:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659602C2DA91384FA64C7C8B48A4147CEB01B998
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697392   (118938) от 06.02.2024
-
-Евгения Решетова | Учитель по неволе (Книга 3) Курс выживания (2022) [MP3, Екатерина Агафонова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118938.jpg" />
-</div>
-
-
-###  Подробнее
-
-роблемы позади? Как бы ни так! Пропавшая сестра моего жениха дала о себе знать, и теперь мы с хвостатым Пушком и любопытным Крысом продираемся через невероятные трудности, влипаем в сумасшедшие истории. А все почему? Потому что я очень не хочу замуж… Третья книга о приключениях серого профессора Пушка и Ко.Жанр: Любовное фэнтези, Магические академии, ПопаданцыИздательство: АСТПродолжительность: 09:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A229AB707508454D4F13D84B9AB2D269ED06BE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697415   (118939) от 06.02.2024
-
-Газета | Невыдуманные истории №4 (408) (январь 2024) [PDF]
+Журнал | Психология и Я №02 (155) (февраль 2024) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+Журнал для тех, кто любит жизнь, стремится к гармонии с окружающим миром и с самим собой. Главная тема каждого номера – взаимоотношения между мужчиной и женщиной, родителями и детьми. С помощью профессиональных психологов и жизненного опыта самих читателей Вы найдете ответы на сложные жизненные вопросы. В каждом номере Вас ждут советы и рекомендации, которые помогут (   Читать дальше...   )Жанр: ПсихологияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:875EA954F34FDAE4D05CFCC9D827012E39C48A35
+magnet:?xt=urn:btih:059A8131E6AE849A2F9960D34B608C79D9A1F420
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697240   (118940) от 06.02.2024
+###  Публикация: 1698751   (118243) от 10.02.2024
 
-VA - Acid Jazz Funk Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Funk>
+Patti Austin - Patti Austin Love Songs (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Soul, R&B>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Smoke Orchestra - Just Kiss My Baby (5:15)
-02. Black & Brown - Tribal Boogaloo (3:39)
-03. Jerome van Rossum - Truth (4:29)
-04. Super Bad - Don't Let The Flies Eat Your Marilyn's Painting (3:36)(   Читать дальше...   )Жанр: Acid Jazz, FunkПродолжительность: 02:11:22
+01. Baby, Come To Me (feat. James Ingram)
+02. True Love
+03. Once In A Lifetime
+04. Any Way You Can(   Читать дальше...   )Жанр: Vocal Jazz, Soul, R&BПродолжительность: 01:00:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BCBA3B05844E69B570A0C35F6676492FBF53014
+magnet:?xt=urn:btih:26AE43AAB753E45763A2885DB0705B3CD3DE66E6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697352   (118941) от 06.02.2024
+###  Публикация: 1698815   (118244) от 10.02.2024
 
-Леонид Череповский - Цыганские Песни И Романсы (1990) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Folk, Gypsy>
+Elena Malaguti - Jazz Chronicles (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz, Lounge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stylish Jazz Nightfall Waltz (2:43)
+02. Risonanza D'amore (2:08)
+03. Urban Jazz Expedition (2:41)
+04. Swaying Palms Jazz (2:28)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary Jazz, LoungeПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:713C0654F680FBC8F7EBE4D8A11C5E54C7397386
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698836   (118245) от 10.02.2024
+
+Абсент / Absinthe (1913) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нравоучительная история. Что греха таить, частенько мужчины становятся жертой влечения к горячительным напиткам. И это плохо. Это тупиковый путь. Говорят, что люди творческие, ну, там, поэты  всякие, художники и прочие писатели, без этого самого вообще никак не могут. Творить не могут. А это плохо. Суета и томление духа. Вот об этом фильм.Производство: США, Gem Motion Picture CompanyЖанр: короткометражный, драма, немое киноРежиссер: нет сведенийАктеры: Сэди Уэстон, Глен УайтПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0317A40065B0CEDCFD5127BFF4C0A5DF66D4FA1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698780   (118246) от 10.02.2024
+
+Поедем, поедим! Мордовия: модные этномотивы, олений рай, африканские сомы и каленые яйца  (10.02.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди и «Поедем, поедим!» отправились в Мордовию, где нашлось чем удивить даже такого опытного путешественника, как Федерико: его научили понимать эрзянский язык, познакомили с благородными оленями и африканскими сомами, отправили на модный показ и даже попытались женить! И, конечно, накормили самыми необычными и яркими национальными блюдами. Ведущий (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A514969D7DC2967998635AF8E22DEB70310FD89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698868   (118247) от 10.02.2024
+
+Священномученик Владимир (Богоявленский) | Отче наш. Беседы на молитву Господню (2018) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святой Владимир (Богоявленский) был первым епископом Русской Православной Церкви, отдавшим свою жизнь за Христа в годы страшного гонения на веру в XX веке. Мученической смертью он засвидетельствовал свою веру, которой дышит каждая страница его литературных трудов. Многие из них носят характер не строгих богословских трактатов, но живых бесед, в которых тем не менее (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265F0B7644F62C2D8A1B509B8ABB5DB42610F8EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698676   (118248) от 10.02.2024
+
+Пятеро на одного (10.02.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6B6F4295FF5C39E56D584F21B3035342FF6CEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698875   (118249) от 10.02.2024
+
+Сибирская Благозвонница | Избранные жития святых, изложенные по руководству Четьих-Миней архиепископа Филарета Черниговского (2011) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жития святых – жизнеописания духовных и светских лиц, канонизированных Русской Православной Церковью. В Древнюю Русь Жития святых перешли с началом письменности – через южных славян, а также в переводах с греческого языка. Первые жития святых – это назидательные сказания о христианских мучениках. В дальнейшем (с IV в.) жития святых объединялись в специальные сборники: (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6755971BE078B8D52DEE06D31AEBF8A26F57566E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698754   (118250) от 10.02.2024
+
+Lacuna Coil - Black Anima (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic, Alternative Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Былое
-A2 По Невскому
-A3 Кони Юности
-Orchestra – Эстрадный Оркестр П/у Ю. Силантьева(   Читать дальше...   )Жанр: Folk, GypsyПродолжительность: 00:35:48
+A1 Anima Nera (Prologue)
+A2 Sword Of Anger
+A3 Reckless
+A4 Layers Of Time(   Читать дальше...   )Жанр: Gothic, Alternative MetalПродолжительность: 00:45:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:877AEA31E1E1748B138278241DAB73BDFB4C02B7
+magnet:?xt=urn:btih:30FCC6D7F71AF0BD0B76DD5147B676EC15FD6B03
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697453   (118942) от 06.02.2024
+###  Публикация: 1698814   (118251) от 10.02.2024
 
-До завтра / Белый омут / Отец (1929) WEBRip [H.264/720p-LQ]
+Elegant People and Lo Greco Bros - Stories Of Us (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие фильма происходит в Западной Белоруссии, входившей в 1920 годы в состав Польши. Дети белорусов учатся в специальной гимназии, при которой имеется приют для детей-сирот. Начальница приюта Боверда обворовывает своих подопечных, присваивая присылаемую им благотворительную помощь. Неудивительно, что гимназисты проявляют интерес к жизни в советской Беларуси, (   Читать дальше...   )Производство: СССР, БелгоскиноЖанр: драма, немое киноРежиссер: Юрий ТаричАктеры: Роза Свердлова, Клавдия Чебышева, Георгий Самойлов, Николай Прозоровский, Николай Витовтов, Иван ХудолеевСубтитры: русские (интертитры)Продолжительность: 01:03:27
+01. For Miles (4:16)
+02. Sons Of Sun (4:17)
+03. Full Rise (4:14)
+04. Stand Up And Dance (5:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F429E14C25875DAD6922684EE568BBC3778F59CF
+magnet:?xt=urn:btih:C1A59ABF4D2F4F18176929DEC4A0824499C24F20
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697446   (118943) от 06.02.2024
+###  Публикация: 1698857   (118252) от 10.02.2024
 
-Журнал | Лечитесь с нами №2 (218) (февраль 2024) [PDF]
+Enemy of Reality - Studio Albums (3 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
 
->>Журналы
->>Другие журналы
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Лечитесь с нами» - уникальное издание о здоровье. Каждый номер составляется по письмам читателей. На страницах представлены подборки советов и рекомендаций по лечению трёх конкретных заболеваний, перечень которых анонсируется заранее. В журнале также есть раздел, посвящённый здоровью детей, — «Румяные щёчки». Самые свежие читательские письма публикуются в (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+Enemy of Reality - симфоник-метал группа из Афин, Греция. Образована в 2013 году.2014 - Rejected Gods
+2016 - Arakhne
+2023 - Where Truth May LieЖанр: Symphonic MetalПродолжительность: 02:22:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F7F18EB12B4A13257477C049BF54BD75BB18A93
+magnet:?xt=urn:btih:44C2D68CFBBF7A88BB661F9E0A0AB01F5028DDAE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697411   (118944) от 06.02.2024
+###  Публикация: 1698672   (118253) от 10.02.2024
 
-Газета | Невыдуманные истории №3 (407) (январь 2024) [PDF]
+Angelo Debarre with Tim Kliphuis - Live At Djangofest Northwest (2005) Gypsy Jazz [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
 
->>Журналы
->>Другие журналы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+01. Swing Gitan [4:17]
+02. Twelfth Year [3:21]
+03. Entre Amis [3:51]
+04. R-Vingt Six [4:31](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 00:44:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65BE29A1E2DA134AAE750C3A8D16F9C3E348B517
+magnet:?xt=urn:btih:7E4D5405D41CB70FCDAD3D3049F72606F24ABB85
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697485   (118945) от 06.02.2024
+###  Публикация: 1698811   (118254) от 10.02.2024
 
-Журнал | Цветок №3 (477) (февраль 2024) [PDF]
+Cooking Jazz Music Academy, Instrumental Music Ensemble, Calming Jazz Relax Academy - Heartfelt Harmonies (Soulful R&B for Passionate Home Cooking) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] &l ...
 
->>Журналы
->>Домоводство (журналы)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Практический журнал для цветоводов и дачников. Хотите еще больше узнать о выращивании растений? Мечтаете превратить свой садовый участок в райский сад? «Цветок» рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей!Жанр: Цветоводство, садоводство, огородничествоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+01. Sizzle & Soul (3:01)
+02. Instrumental Music Ensemble - Simmering Sentiments (3:02)
+03. Instrumental Music Ensemble - Recipe for Romance (3:26)
+04. Butter-Smooth Ballad (3:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:285E2CAAED54C41F140966F71B8FC2CAAED05B85
+magnet:?xt=urn:btih:12F110D6FBF9166D8A39B1F434AA8D8A13008CD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698568   (118255) от 10.02.2024
+
+Ash - Self-Discovery (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foundations [00:05:56]
+02. Thoughts [00:04:07]
+03. Settle [00:04:09]
+04. Self-Discovery [00:07:28](   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE69D148001D62E1B8C19AAF9FE3004DFD877F11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698750   (118256) от 10.02.2024
+
+ActionDirector - Видеоредактор v7.12.1 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118256.jpg" />
+</div>
+
+
+###  Подробнее
+
+ActionDirector- это единственный 📹 видеоредактор, в котором есть все инструменты для 📸 записи и 🎞️ редактирования видео, наложения🎬 видеоэффектов и 📀 публикации. С видеоинструкциями, доступными в приложении, создать эффектный монтаж не составит никакого труда!Тип издания: ModРелиз состоялся: 08.02.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F5B3CCE465587AF9BD278EE3062633437A0F99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698845   (118257) от 10.02.2024
+
+Rollywoodland - Dark Fate For Judgement Day (2024) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judgement Day (01:25)
+ 02. Ugly (02:45)
+ 03. No Dogshit (On The Sidewalk) (03:52)
+ 04. Nunchaku (03:19)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA98B4EC2A5FB1F474A2CB6BA60DDC230DA8ED69
 ```
 
 

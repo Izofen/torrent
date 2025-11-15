@@ -1,3 +1,57 @@
+###  Публикация: 1602324   (204405) от 06.01.2023
+
+Didier Marouani & Space - 12 albums, 21 CD (1977-2002) [FLAC|Lossless|image + .cue | tracks + .cue] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых легендарных французских групп электронной музыки Space создана ее лидером французом из Княжества Монако Дидье Маруани, Роланом Романелли и Янником Топом. Название группы полностью отражает глубину их музыки, которую сложно перепутать со звучанием другого коллектива и напрямую отображает атмосферу их творчества. Фирменный звук с использованием синтезаторов (   Читать дальше...   )--------------------------
+
+01. Voices Of Jupiter (4:17)
+02. Just Blue (4:28)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Space Rock |Продолжительность: 18:16:18 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E2FE3E6284A529B75E9DCE5733E0DDD0D27A10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655235   (204481) от 25.08.2023
+
+VA - Vocal Anthems Ibiza (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - Falling (Extended Mix) [6:09]
+02. ThoBa & Kate Miles - Your Love (Alex M.O.R.P.H. Extended Remix) [6:36]
+03. Feel - Hallelujah (Extended Mix) [5:32]
+04. SMR LVE & Sue McLaren - Until Then (Extended Mix) [7:49](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D775AFDF2255AA782F5676C6738E938D22ABF6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655210   (204546) от 25.08.2023
 
 VA - Extreme Street Workout Songs For Fitness & Workout 2023 (Fitness Version 128 Bpm) [FLAC|Lossless|WEB-DL|tracks] <House, Dance, Pop>
@@ -641,60 +695,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25767181467634AF3EDD7E10540DB0ED05058168
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652752   (206469) от 13.08.2023
-
-VA - Balearic Chill out Edition, Vol. 1 - 4 (2023) [MP3|320 Kbps] <Chillout, Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge Groove Avenue - Wait for Me [03:33]
-02. TAWO - Had Love [03:15]
-03. MILA - The Sounds of Night (Snare Mix) [05:47]
-04. Dreamhunter - Kadinsky [05:10](   Читать дальше...   )Жанр: Chillout, Balearic, DowntempoПродолжительность: 09:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9843BCBEDE21650C0715D9AC9B57F7B6D9B98EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652526   (206530) от 11.08.2023
-
-Blank & Jones - The Best Of Relax // 20 Years // 2003 - 2023 (2023) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Electronic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones - Beyond Time (Ambient Mix) [5:20]
-02. Blank & Jones - Flaming June (Original Mix) [3:36]
-03. Blank & Jones - Desire (Ambient Mix) [4:33]
-04. Blank & Jones - Someone Like You (Original Mix) [5:10](   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, ElectronicПродолжительность: 01:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3723A747B249B28441C6EE4D04AC3C998C62EF65
 ```
 
 

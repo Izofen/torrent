@@ -1,676 +1,674 @@
-###  Публикация: 1752240   (103967) от 29.09.2024
+###  Публикация: 1759246   (103307) от 07.11.2024
 
-Jade Macrae - In My Veins (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul>
+Грязный Король / Banchikwang (2000) BDRip [H.264/720p] [DVO]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Out Of Sight (3:49)
-02. Rose Coloured Glasses (4:13)
-03. A Little Joy (5:10)
-04. Early In The Morning (5:30)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:47:54
+Дэ-Хо обычный банковский служащий. Его жизнь скучна. На работе постоянные проблемы, и босс частенько бьёт его. Но однажды он попадает в тренажёрный зал рестлеров. И судьба даёт ему шанс стать одним из них. Надевая маску ''Грязного Короля'' Дэ-Хо открывает новую главу своей жизни...Производство: Южная Корея / B.O.M. Film Productions Co. Ltd., Cinema ServiceЖанр: комедия, спортРежиссер: Чжи Ун КимАктеры: Кан Хо Сон, Джин Ён Чон, Сан Мён Пак, Ун Ин Чон, Ён Чан Сон, Хан Сон Чан, Су Ро Ким, Вон Чжон Ли, Син Гу, Чжи Иль Пак, Ду Хон ЧонПеревод: любительский двухголосыйЯзык озвучки: русский, корейскийСубтитры: русские (Faylan), английскиеПродолжительность: 01:51:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39B610A31947DE725F151DFA982970E623EF3DC2
+magnet:?xt=urn:btih:2905C5A80184F8752C3F0FB4C32DAB71E6D37AD0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752006   (103968) от 28.09.2024
+###  Публикация: 1759320   (103308) от 07.11.2024
 
-Brant Bjork Trio & Brant Bjork - Once Upon A Time In The Desert (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. U.R. Free (4:47)
-02. Backin' The Daze (3:42)
-03. Higher Lows (3:57)
-04. Down The Mountain (4:21)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D7F4F499A82F92BC4707ED3E7107B7816B5699
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752070   (103969) от 28.09.2024
-
-MotoGP. Этап 15 из 20. Гран-при Индонезии. Квалификация (28.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103969.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 сентября 2024, суббота. 05:50 МСК Этап 18 Мандалика. Гран-при Индонезии. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C62D025E12AF052DB9310B82A935A7961C6DA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751994   (103970) от 28.09.2024
-
-Albert Bover - A Parisian Affair (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Douce amertume (5:10)
-02. Sol en Vigo (4:18)
-03. O Castro (5:38)
-04. Cyclic Episode (4:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE38E8E9078EF84D858D91070CB5F867382100D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751987   (103971) от 28.09.2024
-
-Пятеро на одного (28.09.2024) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8DA24E31D3F8D4AE56D04B42D0CC58F6C56085F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752033   (103972) от 28.09.2024
-
-Axiomatic Dematerialization - Absolute Elimination Of Existence (2024) [FLAC|Lossless|image + .cue] <Slamming Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Collapse 2:05
-02. Spatial Deformation 3:20
-03. Extraterrestrial Paradox 3:20
-04. Absolute Elimination of Existence 3:07(   Читать дальше...   )Жанр: Slamming Brutal Death MetalПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77DCCC215C954FD2E85F0E3A093C2B5304FF8010
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751851   (103973) от 28.09.2024
-
-Sonny Stitt & Don Patterson - The Boss Men (1965) 2001, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All God's Chillun Got Rhythm [3:50]
-02. Answering Service [4:44]
-03. Tangerine [5:30]
-04. Night Crawler [5:54](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB38E871F9FE8ECBC6BE168A526759633DB625D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751920   (103974) от 28.09.2024
-
-Fred Hersch - Silent, Listening (2024) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star-Crossed Lovers [3:58]
-02. Night Tide Light [3:28]
-03. Akrasia [4:15]
-04. Silent, Listening [3:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F492CF8479E7DE9772C71BB57726728C4AEABE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752011   (103975) от 28.09.2024
-
-El Poder de la Infancia - El Poder de la Infancia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eclesiástica (0:54)
-02. Lluvia en Atacama (7:37)
-03. Buscaminas (3:51)
-04. Agente Libre (3:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA3B9E6DCFB5182ACBF535EE1D10E871DA2DA88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752009   (103976) от 28.09.2024
-
-Diz and the Doormen - Diz-Connected (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Same Old Blues (2:57)
-02. I'd Do It All Again (2:59)
-03. Diz-Connected (3:20)
-04. Mess Around (4:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195301866E2DEEC882F4129AD13F373C04C155E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751998   (103977) от 28.09.2024
-
-Amos Hoffman - Minor Operation (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aunt Sharon (6:02)
-02. Minor Operation (7:02)
-03. Hidden Garden (4:30)
-04. All Alone (3:10)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42ED2F0CFFEE11C49ECF0D52D8F1607E9842E01E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751995   (103978) от 28.09.2024
-
-Alex Kautz - Where We Begin (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chorinho (4:40)
-02. Bebe (6:15)
-03. Mira Eso (6:18)
-04. Within (6:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BB830422E05A31750BAD841892AC562B79E3E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752089   (103979) от 28.09.2024
-
-Хоккей. КХЛ 2024-2025. Металлург (Магнитогорск) - Ак Барс (Казань) (27.09.2024) WEBRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Металлург (Магнитогорск) - Ак Барс (Казань) (27.09.2024)
-СУДЬИ Беляев Сергей (Воскресенск, Россия) Кочетов Евгений (Россия)
-СТАДИОН «Арена Металлург» (Магнитогорск) Зрителей: 6845Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC664D873B2FA3347856AEAD162C9856A88E5C1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752083   (103980) от 28.09.2024
-
-Хоккей. КХЛ 2024-2025. Трактор (Челябинск) - Авангард (Омск) (27.09.2024) WEBRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Трактор (Челябинск) - Авангард (Омск) (27.09.2024)
-СУДЬИ Белов Алексей (Ярославль, Россия) Оскирко Юрий (Ярославль, Россия)
-СТАДИОН «Арена Трактор» (Челябинск) Зрителей: 7500Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D749E40D8AA3F5D104F18DF3B6CFA5A1EE41597E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752092   (103981) от 28.09.2024
-
-Хоккей. КХЛ 2024-2025. СКА (Санкт-Петербург) - Северсталь (Череповец) (27.09.2024) WEBRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. СКА (Санкт-Петербург) - Северсталь (Череповец) (27.09.2024)
-СУДЬИ Метальников Эдуард (Россия) Сидоренко Максим (Белоруссия)
-СТАДИОН «МСРК «Ледовый Дворец»» (Санкт-Петербург) Зрителей: 12156Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115C047DC03CC33E33B85D7459763DC326B302A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752100   (103982) от 28.09.2024
-
-Хоккей. КХЛ 2024-2025. Лада (Тольятти) - Нефтехимик (Нижнекамск) (27.09.2024) WEBRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Лада (Тольятти) - Нефтехимик (Нижнекамск) (27.09.2024)
-СУДЬИ Мочалов Владимир (Москва, Россия) Соин Александр (Москва, Россия)
-СТАДИОН «Лада-Арена» (Тольятти) Зрителей: 4556Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9BED9AD2F455222899B709142DB4396648C2225
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752007   (103983) от 28.09.2024
-
-Голос Омерики - Люди против рептилий (2024) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103983.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пролог
-2. Быдло
-3. На земле
-4. Синица (feat. Пётр Гланц, Влом!)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE07B5CCDC7E5F5B13ADAB722CEC9393656FEC1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752005   (103984) от 28.09.2024
-
-PhotoRoom v5.3.6 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 27.09.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FAAE2C376197FE319F4FEC97C5CEBBB27CA792
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751978   (103985) от 28.09.2024
-
-Димитрий Ростовский | Жития святых. Месяц июнь (2023) [MP3, Л. Лепшина]
-
->>Обучающие аудиоматериалы
->>Религия (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жития святых издавна были основным содержанием Миней-Четьих - произведений русской церковно-исторической и духовно-учительной литературы. Повествования о жизни святых Православной Церкви излагаются в Минеях-Четьих по порядку месяцев и дней каждого месяца. Из четырех известных сочинений такого рода Минеи-Четьи Св. Димитрия Ростовского, написанные на церковно-славянском (   Читать дальше...   )Жанр: ПравославиеИздательство: Неофициальное изданиеПродолжительность: 21:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC65747DD98023FA3CCF7B1A7079466E875BBC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752008   (103986) от 28.09.2024
-
-Голос Омерики - Люди против рептилий (2024) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103986.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пролог
-2. Быдло
-3. На земле
-4. Синица (feat. Пётр Гланц, Влом!)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC930FBCEFF6B4E2D2072F9BF4AD2C7EDEB3D5FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752111   (103987) от 28.09.2024
-
-VA - Sunset Dreamer (Lounge & Chill out Sessions), Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+VA - Coastal Chill: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
 >>Electronic
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Cataldo - Inoubliable Homme (Original Mix) (06:40)
- 02 - TAWO - Had Love (03:15)
- 03 - Man In A Room - The Confidential (Original Mix) (06:01)
- 04 - Calmabohain - Liquid Star (04:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:23:50
+01. Dreamhunter - Moonrise (3:08)
+02. Supira - Cool Lounge (7:02)
+03. Natalie Z - In My Soul (4:01)
+04. Pier-O - Desire (5:16)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:52:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7840AEB767C3B5F686ADDBF39DBD2CF10AEFDFA6
+magnet:?xt=urn:btih:22150EF9A4AB335930583696952441D71430D009
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751941   (103988) от 28.09.2024
+###  Публикация: 1759077   (103309) от 07.11.2024
 
-Markus Schulz - Global DJ Broadcast (In Search of Sunrise 20 Companion Mix) (2024-09-26) [MP3|320 Kbps] <Progressive House, Trance, Melodic House, Techno>
+John Askew - A Room Full of Pros & Cons (2024) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103309.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chicane - Sunstroke (DC Symphonic Rehearsal Mix)Жанр: Progressive House, Trance, Melodic House, TechnoПродолжительность: 02:00:40
+01. Grave Digger (Mixed) [00:03:53]
+02. Steady & Stronger (Mixed) [00:05:01]
+03. Push It (Mixed) [00:03:53]
+04. UFO (Mixed) [00:04:06](   Читать дальше...   )Жанр: TranceПродолжительность: 2 CD, 02:09:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C034CF35BD896DB172569D8B8A72E10065BD6A53
+magnet:?xt=urn:btih:C343DF5AF28F5253B6FF7157BB2254D4F8A563A1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752075   (103989) от 28.09.2024
+###  Публикация: 1759290   (103310) от 07.11.2024
 
-Главная дорога (28.09.2024) WEBRip [H.264/720p]
+Delain - Dance with the Devil (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal>
 
->>Документалистика и Телепередачи
->>За рулем
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103310.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жертвы ОСАГО: когда полис не защищает от автоподставщиков.
- Вечный спор водителей — разбитые дороги проезжать лучше на скорости или, наоборот, лучше замедлиться, проваливаясь и чувствуя каждую ямку?! Андрей Федорцов и Денис Юченков проверили на прочность себя и автомобиль: вместе с врачами, гонщиками и испытателями ведущие рассказали, как сэкономить не только на ремонте, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+01. Dance with the Devil (3:55)
+02. The Reaping (3:48)
+03. Sleepwalkers Dream (2024 Version) (4:26)
+04. The Cold (Live) (3:43)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:03:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9688B1350A1E2A0D9F2A0CF6D1B2F189F56B1E4
+magnet:?xt=urn:btih:025AD190ED35F3554E8CE14DA20436CF231EFFC1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752149   (103990) от 28.09.2024
+###  Публикация: 1759080   (103311) от 07.11.2024
 
-High-Logic FontCreator Professional Edition 15.0.0.3003 [En]
+Aerosmith - Live in Boston (1994) HQ Remastered, 2024, DMG [MP3|320 Kbps] <Rock, Hard Rock>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103311.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FontCreator - Редактор шрифтов FontCreator может создавать свои собственные шрифты, переводить в файл шрифта любой шрифт с бумаги через сканирование, редактировать уже установленные шрифты. Для создания собственного рукописного шрифта можно просто написать на бумаге от руки (если нет планшета) все русские и английские буквы, цифры, специальные знаки, знаки препинания (   Читать дальше...   )Язык интерфейса: Английский
+01 - Train Kept A Rollin' [00:03:59]
+02 - Same Old Song And Dance [00:05:21]
+03 - Big Ten Inch Record [00:04:34]
+04 - Walk On Water [00:04:46](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:15:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B60BCE8F821902677203D5E607C174098EE73A3
+magnet:?xt=urn:btih:98D29AA6564504124F2807342DA95788B5F498A9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751939   (103991) от 28.09.2024
+###  Публикация: 1759237   (103312) от 07.11.2024
 
-David Eugene Edwards - Best (as Part of 16 Horsepower, Wovenhand) (1995-2012) Compilation Album [MP3|320 Kbps] <Alternative Rock, Folk Rock, Country Rock>
+Грязный Король / Banchikwang (2000) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэ-Хо обычный банковский служащий. Его жизнь скучна. На работе постоянные проблемы, и босс частенько бьёт его. Но однажды он попадает в тренажёрный зал рестлеров. И судьба даёт ему шанс стать одним из них. Надевая маску ''Грязного Короля'' Дэ-Хо открывает новую главу своей жизни...Производство: Южная Корея / B.O.M. Film Productions Co. Ltd., Cinema ServiceЖанр: комедия, спортРежиссер: Чжи Ун КимАктеры: Кан Хо Сон, Джин Ён Чон, Сан Мён Пак, Ун Ин Чон, Ён Чан Сон, Хан Сон Чан, Су Ро Ким, Вон Чжон Ли, Син Гу, Чжи Иль Пак, Ду Хон ЧонПеревод: любительский двухголосыйЯзык озвучки: русский, корейскийСубтитры: русские (Faylan), английскиеПродолжительность: 01:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227144EE83B87D91273F7F30C4A1172196CA5D36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758321   (103313) от 07.11.2024
+
+Druidess - The Product Of My Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Alternative Rock, Psychodelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undine (03:20)
+02. The Sniffing Accountant (03:48)
+03. Lavender (04:04)
+04. Vacancy (06:01)(   Читать дальше...   )Жанр: Grunge, Alternative Rock, Psychodelic RockПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4E17C5AA6EEA3C672BDB6F1F6ACFE2CC4A9356
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759267   (103314) от 07.11.2024
+
+Футбол. Лига Чемпионов 2024/2025. Основной турнир. Тур 4-й. Обзор матчей (06.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол.Лига Чемпионов 2024/2025. Основной турнир. Тур 4-й. Обзор матчей (06.11.2024)Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F48AA75BFAB67C6FFCD72D93801FC77CCD69FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758979   (103315) от 07.11.2024
+
+Windrow - Deus Universi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shades of Power (00:59)
+02. Overcome Your Fears (05:25)
+03. Humanity (04:14)
+04. Untouchables (05:46)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94382172D2ED9EBCBA02D8EE2C5ABED0A47AAF77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759331   (103316) от 07.11.2024
+
+InnerWish - Ash Of Eternal Flame (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forevermore (6:26)
+02. Sea Of Lies (feat. Hansi Kürsch) (6:15)
+03. Higher (4:50)
+04. Soul Asunder (4:41)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F130B6F9F5D4B1862DBC84A4A33E786E96BE2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759257   (103317) от 07.11.2024
+
+Андре Моруа | Письма незнакомке (2021) [MP3, Павел Конышев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андре Моруа (1885–1967) – признанный мастер и великолепный стилист французской прозы.
+В «Письмах незнакомке» Моруа раздумывает над поведением и нравами людей, взаимоотношениями мужчин и женщин, приемами обольщения, над тем, почему браки оказываются счастливыми, почему случаются разводы и угасают чувства. Автор обращает свои письма к женщине, но кто она – остается (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Яков ЛесюкИздательство: Азбука-АттикусПродолжительность: 05:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BBBC81E51E59130AD99EE02474BE5C27E753CF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759265   (103318) от 07.11.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 4-й. Црвена Звезда (Белград, Сербия) - Барселона (Испания) (06.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 4-й. Црвена Звезда (Белград, Сербия) - Барселона (Испания) (06.11.2024)
+СУДЬЯ Эскос Эспен (Норвегия)
+СТАДИОН «Райко Митич (Црвена Звезда)» (Белград)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9238F9C1560E208CF0FFDA9B59632E8D34F4BDCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759090   (103319) от 07.11.2024
+
+Alice In Chains - Lives In Seattle, in Dallas (1990-1992) HQ Remastered, 2024, DMG [MP3|320 Kbps] <Alternative Rock, Grunge, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Junkhead [00:05:30]
+02. Put You Down [00:03:15]
+03. It Ain't Like That [00:04:38]
+04. Love Hate Love [00:06:42](   Читать дальше...   )Жанр: Alternative Rock, Grunge, Hard RockПродолжительность: 2 CD, 02:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF846057F6353F6259265D440DB6F5F288EB80B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759264   (103320) от 07.11.2024
+
+Paragon - Metalation (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fighting The Fire (4:46)
+02. Slenderman (4:34)
+03. Battalions (4:49)
+04. Beyond The Horizon (6:20)(   Читать дальше...   )Жанр: Power, Speed MetalПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED1E9DAB35C19BDF984E8D5FFBEDC55CF23E81F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759039   (103321) от 06.11.2024
+
+Charlie Byrd - Midnight Guitar (1957) 1994, Nippon [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues for Night People [20:32]
+02. Blues My Naughty Sweetie Gave to Me [3:42]
+03. Blue Prelude [5:23]
+04. This Can't Be Love [2:43](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B5DFCAA61CC6AEDBD2D415F4AA979D72CA4247
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759098   (103322) от 06.11.2024
+
+НХЛ 2024-2025. Питтсбург Пингвинз - Нью-Йорк Айлендерс (05.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103322.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 ноября 2024 г. 03:30 по московскому времени. Стадион: UBS Arena (Элмонт, США), 14 025 зрителей (81% от вместимости 17 255)
+Главный судья: Майкл Маркович (Скарборо, Канада); Главный судья: Гислен Эберт (Батерст, Канада); Линейный судья: Стив Бартон (Ванлик Хилл, Канада); Линия: Трэвис Гаврилец (Trail, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF0EDBC4B0CB8B590F6D8DCD43DC62CAF2CD125
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759143   (103323) от 06.11.2024
+
+Shaed - Compilation (2024) [MP3|320 Kbps] <Electropop, indie pop>
 
 >>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 16 Horsepower - American Wheeze
-02. 16 Horsepower - Black Bush
-03. 16 Horsepower - Black Soul Choir
-04. 16 Horsepower - Dead Run(   Читать дальше...   )Жанр: Alternative Rock, Folk Rock, Country RockПродолжительность: 01:33:06
+01.  Dizzy
+ 02.  Osaka
+ 03.  We Live We Die
+ 04.  Part Time Psycho(   Читать дальше...   )Жанр: Electropop, indie popПродолжительность: 00:50:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE3B6EBCAB312FF85C62C2CF499792E4C90D9A13
+magnet:?xt=urn:btih:2B2F1CDD2D116ED73D190FD9F9F999529DE77B77
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752038   (103992) от 28.09.2024
+###  Публикация: 1758935   (103324) от 06.11.2024
 
-VA - Vocal Anthems Amsterdam (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+Avarice In Audio - Tear Heaven in Half (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthpop, Electro>
 
 >>Electronic
->>Trance
+>>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roman Messer & NoMosk - Statue (Extended Mix) [3:37]
-02. SMR LVE & Caitlin Potter - Love Story (Extended Mix) [6:57]
-03. Roman Messer & Richard Bedford - Breathe (Alex M.O.R.P.H. Extended Remix) [7:44]
-04. Adip Kiyoi - Closer (Around Me) (Extended Mix) [4:58](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:02:25
+01. Start The Show [00:04:18]
+02. Wicked Die Alone [00:03:43]
+03. You Are The Carbon [00:04:09]
+04. Drowning One [00:03:42](   Читать дальше...   )Жанр: EBM, Synthpop, ElectroПродолжительность: 01:10:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B30D0AAEF1B064A0A3BAD3E45B6D980B5E1A94E3
+magnet:?xt=urn:btih:54D07E1B1BA6B7174243EBF48E016DBC2F53B38D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759060   (103325) от 06.11.2024
+
+Журнал | Квантик №7 (июль 2024) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103325.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
+В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F203134370A576858964FE41821EFF771C6360
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759113   (103326) от 06.11.2024
+
+Футбол. Лига Чемпионов 2024/2025. Основной турнир. Тур 4-й. Обзор матчей (05.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол.Лига Чемпионов 2024/2025. Основной турнир. Тур 4-й. Обзор матчей (05.11.2024)Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:121E6A009E3DB7174C4DD9D080A4DA0702D95022
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759074   (103327) от 06.11.2024
+
+Dare - Blood From Stone (1991) Remastered, 2024, Legend Records [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wings Of Fire [00:04:55]
+02. We Don't Need a Reason [00:03:35]
+03. Surrender [00:03:39]
+04. Chains [00:04:00](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0D02B4120148E74D89EF62A18975EF32ED23E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759062   (103328) от 06.11.2024
+
+Алькасар - Цитадель души (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хранитель цитадели [00:04:24]
+02. Знай! [00:03:33]
+03. Луч света [00:03:01]
+04. Чарующий мир [00:04:34](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22B6D9AB9A57563DC51BD330AD4F38CEFF8BC059
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759096   (103329) от 06.11.2024
+
+Rimbacher - High Hopes On The Rocks (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worldkiller 04:08
+02. Luxury 04:26
+03. Dry Body Passion 03:36
+04. Loving You (Is Loving A Broken) 03:44(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71A4475889A2F2822A34950BA2A990553468ACD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759114   (103330) от 06.11.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 4-й. Реал (Мадрид, Испания) - Милан (Италия) (05.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 4-й. Реал (Мадрид, Испания) - Милан (Италия) (05.11.2024)
+СУДЬЯ Винчич Славко (Словения)
+СТАДИОН «Сантьяго Бернабеу» (Мадрид)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 02:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A21CB5A31CF58FD10F4125521B96997E60F350E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758698   (103331) от 06.11.2024
+
+Своя игра (03.11.2024) WEBRip [H.264/1080p] (15-я игра)
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103331.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF7E5554BBDA722D9348DFD2543591A79959EF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758699   (103332) от 06.11.2024
+
+Своя игра (03.11.2024) WEBRip [H.264/1080p] (16-я игра)
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103332.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B5BDE98228CAE744398BDC4A7F443B227BBA6E
 ```
 
 

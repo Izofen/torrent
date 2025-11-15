@@ -1,3 +1,111 @@
+###  Публикация: 1712822   (112129) от 03.04.2024
+
+Красная плесень - Вечный бульбец Бибизинского (2024) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112129.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Рецепт щей. Кулинарная битва
+2. Тихо в лесу (Eins fantastisch mix)
+3. Сантехник Лёша Кабанов и мачта
+4. Гимн хоккею(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:31:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C7E781AF3D746F1DB5DE745A590CAD1A0AA9C2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712442   (112196) от 02.04.2024
+
+Макс ИвАнов & Торба-на-Круче - Дневники капитанов (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112196.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Начинаем сначала
+2. Ночь сентября
+3. Последний звонок
+4. Привет, Элизабет(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57CDF1FDB26AD4151ECBB20A1E0409602EB9168
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709412   (112834) от 24.03.2024
+
+Собаки Табака - Чернь (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Какие планы? [00:03:16]
+02. Голод [00:03:36]
+03. Ногами вперёд [00:04:32]
+04. Новой чумы пробуждение [00:02:57](   Читать дальше...   )Жанр: Industrial Rock, ExperimentalПродолжительность: 00:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB98BA22D9F7899D12884ACDEDF69E0DA13E8F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708769   (112961) от 22.03.2024
+
+Слот - Мэшап (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112961.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Танцуй, Вселенная (feat. 7000$)
+2. Марсово поле (feat. Нейромонах Феофан)
+3. Северный Слот (feat. Северный Флот)
+4. Жесть и чернуха (feat. ТАйМСКВЕР & Гарри Топор)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8282997BC790D5AEB6C59A8AF667EB9F59806780
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708608   (113002) от 21.03.2024
 
 Схоластика - На Абордаж (2013) Reissue, 2018, Narcoleptica Prod; More Hate Productions; United By Chaos [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -587,114 +695,6 @@ magnet:?xt=urn:btih:55EE546A42BC4CBCC7996010BDB2C35FC68332B5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D49AB0762E1BED0B06D281A8F5868C299DF1AD06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701012   (116685) от 19.02.2024
-
-Коррозия Металла - 1.966 + Угар в Полярном! (2024) 2 x CD, Compilation, Reissue, Remastered, Meat Stocks Records [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116685.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - 1.966:
-01. Apocalypse Time
-02. Punk Not Dead
-03. Nicht Kapitulieren(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65161D72E7D4644DB1405AC0EECAA40A92B2E71D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696420   (116726) от 19.02.2024
-
-Сектор Газовой Атаки - Рождённый на Земле (2024) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116726.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Изменился мир
-2. Беги без оглядки
-3. Компромисс
-4. Злые дома(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A920AD359DBB73D0730CD933632D6A89C8D6358
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700538   (117019) от 17.02.2024
-
-Гнилой Район - В Деревне У Дедушки (2022) Переиздание Bonus Edition, 2023, RUMEDIA.IO [FLAC|Lossless|WEB-DL|tracks] <Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Забойная Песня [00:03:07]
-02. Никому не отдам [00:03:51]
-03. В деревне у дедушки [00:04:04]
-04. Город [00:03:24](   Читать дальше...   )Жанр: Punk, New WaveПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D93049C4A91648C44BE039629905E8009D81EE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700520   (117022) от 17.02.2024
-
-Гнилой Район - В деревне у дедушки (2023) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Забойная
-02. Никому не отдам
-03. В деревню дедушки
-04. Юра ХойЖанр: RockПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D553AE88915739B9AE8E417EA46BDFABA54A98C
 ```
 
 

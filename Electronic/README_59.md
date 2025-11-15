@@ -1,3 +1,57 @@
+###  Публикация: 1742716   (105499) от 13.08.2024
+
+S.I.N.A - Alte Liebe... (2024) [MP3|~245 Kbps (V0)] <EBM, Industrial, Female Vocal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105499.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nicht Ich [00:04:29]
+2. Little Girl [00:04:36]
+3. Gefühlschaos [00:04:37]
+4. Bauchgefühl [00:03:39](   Читать дальше...   )Жанр: EBM, Industrial, Female VocalПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB76004B41DFB419DF3910CDD926E8C0FC6E94F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742718   (105500) от 13.08.2024
+
+keldin - There is no future (Будущего нет) (2024) [MP3|320 Kbps] <Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Машина [00:02:55]
+02 - Сталь [00:03:10]
+03 - Технобитва [00:03:44]
+04 - Техноконструктор [00:03:04](   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC236E884511CC5997C28F657CFA148CA5A90E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742766   (105503) от 13.08.2024
 
 VA - Anjunabeats pres. Summer House 01 (DJ Mix) (2024) [MP3|320 Kbps] <Progressive House, Deep House, Melodic House & Techno>
@@ -641,60 +695,6 @@ VA - Open Seas (Ibiza Island Mood), Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB60593EF3AD2579A4CD402C30744F152CE6AE0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740797   (105794) от 03.08.2024
-
-VA - Electronica Confessions, Vol. 12 (2014) [MP3|320 Kbps] <Electro, House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antony Well - Lua Solidaria (6:27)
-02. Diogo Salvador & Walker G. - London City (4:35)
-03. Dr.H - Love (5:21)
-04. Dave Qri - Mama (4:40)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 02:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C032146D2690FFA242CA4CC8D5847E89C29287
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740796   (105795) от 03.08.2024
-
-VA - Electronica Confessions, Vol. 11 (2014) [MP3|320 Kbps] <Electro, House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faksikas & D'layna - Take Me There (The Squeeze Soul Shift Instrumental) (6:40)
-02. Or'l - Love Etc. (8:47)
-03. Heather Walker - Freedom (Peacey P Moody Dub Mix) (8:35)
-04. DJ Wings - Give It to Me (Wings & Accidental Notes Island Mix) (4:24)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 02:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97035700E0BF9A9EE5FAA2E141A28EA245F3EB80
 ```
 
 

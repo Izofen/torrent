@@ -1,3 +1,57 @@
+###  Публикация: 1689401   (124695) от 02.01.2024
+
+Tiesto - New Year's Eve Best of 2023 Mix (Countdown to 2024) (2023-12-31) [MP3|320 Kbps] <Dance, Electro Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - Lay Low
+02. MK - Take My Chance
+03. John Summit ft. Hayla - Where You Are
+04. Tiësto & 21 Savage & Bia - BOTH(   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 00:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BD1E23992DED2065F114285F8FDA599169F65C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689357   (124774) от 01.01.2024
+
+Eisfabrik - Gotter in Weiss (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hearts [00:04:26]
+02. Götter in Weiss [00:03:52]
+03. Lost My Mind [00:03:48]
+04. King of the Cold [00:04:06](   Читать дальше...   )Жанр: Synthpop, Futurepop, EBMПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D19C70C50E84D40B37984A791A45F50582B7B10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689252   (124776) от 01.01.2024
 
 Public Memory - Elegiac Beat (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Leftfield, Experimental, Downtempo>
@@ -640,60 +694,6 @@ Mike Williams - Live @ Storylines, Hotel Arena, Amsterdam Dance Event (2023-10-2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C8A7D5BDE91FA6A914A8795733961DAE8125A34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686960   (126236) от 24.12.2023
-
-VA - Turbo Drive, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betamaxx - Integrated Circuitry (4:02)
-02. Le Matos - Overdog (6:30)
-03. Absolute Valentine - She Is a Dancer (4:22)
-04. Das Mortal - The Curse (3:26)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DarkwaveПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAFFC7875B4620BFB775A27F43E6540AD2CCAB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686962   (126239) от 24.12.2023
-
-VA - Turbo Drive, Vol. 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NightCrawler - Nemesis (3:56)
-02. Turbo Knight - Rasengan (5:08)
-03. Jessy Mach - You Can Change (4:10)
-04. New Arcades - Solace (4:05)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DarkwaveПродолжительность: 01:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E05DEC74037EFC7410C5A320A374DA74D8349A
 ```
 
 

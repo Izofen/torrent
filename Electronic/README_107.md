@@ -1,3 +1,57 @@
+###  Публикация: 1517519   (162756) от 15.12.2021
+
+Eli & Fur - Found In The Wild (Remixed) (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Back Around (Maya Jane Coles Remix) (3:42)
+ 02. Wild Skies (Marsh Remix) (3:57)
+ 03. Walk The Line (Themba Remix) (2:37)
+ 04. Come Back Around (Eli & Fur Club Mix) (5:36)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D3336BE1F79E724D54407B65339C2579C40B3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517367   (162833) от 15.12.2021
+
+VA - Planeta Mix Hits 2022: Winter Edition (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stephan F & YA-YA - U & Me (2:30)
+02. Geo Da Silva & Dani Corbalan - Amore Sincero (2:26)
+03. Deep Emotion - Ready To Let Go (2:20)
+04. Heaven & Alone - I Want To Be Alone (2:27)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73DEE850B963F0C1EE8A2B2AD299F1CE10E7AD6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517363   (162908) от 15.12.2021
 
 VA - Coffee & Jazz: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -639,60 +693,6 @@ VA - Spacechillers Vol. 3 (Сompiled by Maiia) (2019) Mystic Sound Records [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7A5580C275DB87114CA22087E287F2795CFB25E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346198   (164403) от 18.12.2019
-
-Monolink - Amniotic (2019) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amniotic (7:31)
- 02. Black Day (5:37)
- 03. Sirens (5:58)
- 04. Rearrange My Mind (7:18)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 01:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDE9531B92FC01A48040751E8A533B447A07C6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516936   (164435) от 13.12.2021
-
-VA - FSOE 700 - Rise Up (Mixed by Fuenka & Paul Denton) (2021) [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ANUQRAM - Brume (Extended Mix) (7:20)
-02. Juan Pablo Torrez, Gux Jimenez & Luli Diaz - Let Me Love You (Extended Mix) (7:44)
-03. Leghet - Ascenso (Extended Mix) (6:21)
-04. Paul Thomas, Fuenka & Schieber - Noir (Extended Mix) (6:12)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 06:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937490DAD0D0164C14AD174C63D6A61786682B70
 ```
 
 

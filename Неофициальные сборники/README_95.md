@@ -1,3 +1,30 @@
+###  Публикация: 1432214   (164307) от 17.12.2020
+
+VA - Beatport Deep House: Electro Sound Pack #209 (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микстейп клубных треков 209-го релиза от Beatport, соблюдённых в стилях дип хауса и тек хауса - это музыка для Вас! Музыка создаёт ощущение лёгкости и настроение грядущих праздников, на альбоме каждый трек несёт в себе глубокий заряд энергетики и несущих добро переживаний и с лёгкостью разрушает истину невозможности написать что-то оригинальное и интересное  в электронной (   Читать дальше...   )001. Fog - Knob Junktion
+002. Juliet Sikora & Ashibah - Pain In My Brain
+003. Jo Paciello - Goes Around Comes
+004. Cent0 & Tea Bag - Ocean (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6889CFA90D4A77FC0BA045FC65B248FB8D07D12F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432234   (164404) от 17.12.2020
 
 VA - Oxygenesis: Clubbing Techno Mix (2020) [MP3|320 Kbps] <Club, Dance, Tech House, Techno>
@@ -668,33 +695,6 @@ VA - Music News vol.56 (2020) [MP3|256-320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C25851639C3B82169C43955DDB00A4C537C08D7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431745   (166228) от 15.12.2020
-
-VA - Beatport Electronic: Sound Pack #210 (2020) [MP3|320 Kbps] <Electronic, Synthwave, Experimental Music>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка экспериментальной электроники в 210-м релизе от Beatport готова порадовать Вас оригинальными и интересными треками.001. Volta Cab - Ramatuelle Tahiti
-002. Till Trench - Paint Of Strange
-003. Deckmaster - Childrens
-004. Mateis E. Aqir - All Possible Stars(   Читать дальше...   )Жанр: Electronic, Synthwave, Experimental MusicПродолжительность: 11:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE812D6B64EFD3939F8796AE9C74215E54311F10
 ```
 
 

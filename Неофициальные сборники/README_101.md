@@ -1,3 +1,30 @@
+###  Публикация: 1429834   (175035) от 08.12.2020
+
+VA - 900 Days (2020) [MP3|320 Kbps] <Alternative, Indie, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тематический сборник рок музыки "900 Days" выдержан в едином стиле неприятия и непримирения. Бунтарский дух – это когда душа горит огнём, когда испытываешь жажду быть свободным от условностей, когда есть смелое и бескомпромиссное желание быть тем, кто ты есть.001. Status Quo - The Anniversary Waltz
+002. No Love For The Middle Child - Frozen
+003. The Galileo 7 - Dandy In Aspic
+004. Tyler Bryant - Couldn’t See The Fire(   Читать дальше...   )Жанр: Alternative, Indie, RockПродолжительность: 07:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8DC0A55BDAECBF7614206CDCB75DF1B3B7B095D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668018   (175036) от 10.10.2023
 
 VA - Осень на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - Music For You vol. 26 (2022) [MP3|320 Kbps] <Rock, Metal, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AA5CC09F7EC75C8AB5AB80E5DE93CC66C0CE876
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594265   (178644) от 30.11.2022
-
-The Savage Rose - Compilation (2022) [MP3|320 Kbps] <Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Day
-02. Children of Mine
-03. City of Angels
-04. Early Morning Blues(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81B2D625D59F616F5193A804056CE8C993DFF38A
 ```
 
 

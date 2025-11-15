@@ -1,3 +1,30 @@
+###  Публикация: 1703202   (114692) от 02.03.2024
+
+VA - Straight to the Heart (Buddha-Bar) (2024) [MP3|320 Kbps] <Chillout, Relax, Downtembo, Ambient>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114692.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Buddha Bar, VS Prjct - A Night in Napoli [03:56]
+002. Craig Armstrong - Weather Storm [06:04]
+003. Ravin, Gosha, Tomash - Vira v Peremogu [04:45]
+004. Sina Vodjani - Straight to the Heart [07:27](   Читать дальше...   )Жанр: Chillout, Relax, Downtembo, AmbientПродолжительность: 10:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6579F4CFEA141CDDEBD9D224D21F2D59DF4D3EF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703793   (114695) от 02.03.2024
 
 VA - Electronic compilation part 60 (2024) [MP3|320 Kbps] <Electronic>
@@ -668,33 +695,6 @@ VA - Music News vol.343 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E40F47A3E77EF6DBFAA11B43943C150319CE06F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700432   (116874) от 18.02.2024
-
-VA - Electronic compilation part 56 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hamidshax - Soul
-02. Roudeep - I Miss You
-03. Adik - One Love
-04. Riltim - Desert(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C95D3CA21764A159C43F84E36A3A3A6A3B4F79
 ```
 
 

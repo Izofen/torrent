@@ -1,3 +1,30 @@
+###  Публикация: 1673710   (163123) от 03.11.2023
+
+ORS / Orlando Riva Sound - Compilation (2023) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fire On The Water
+ 02.  Indian Reservation
+ 03.  Body To Body Boogie (Late Nite Tuff Guy Edit)
+ 04.  The Blaze(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD5FD6E276F47C7C43EAF002CAC33E24C841FEE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598110   (164054) от 17.12.2022
 
 VA - German Top 100 Single Charts 16.12.2022 [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Totally Dance (2022) [MP3|320 Kbps] <Electropop, Synthpop, Dance, Rhythm & 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:170C5A3F0207B8238A939CEF986FED743AD8D751
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590509   (188804) от 14.11.2022
-
-VA - Let's Dance Baby Vol. 2 (2022) [MP3|320 Kbps] <Dance, Electro Pop, Progressive, Groove>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skuado - Live It Up
-02. Deviz B - Saved Gema (Original Mix)
-03. Fijin - The One (Radio Edit)
-04. Krokodile Kruegel - Fog in the Moonlight (Radio Edit)(   Читать дальше...   )Жанр: Dance, Electro Pop, Progressive, GrooveПродолжительность: 02:01:24 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FFFC67633FF4A86EE84C1539844084680E260B
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1745078   (105085) от 25.08.2024
+
+Markus Schulz - Global DJ Broadcast (End of Summer Mix) (2024-08-22) [MP3|320 Kbps] <Progressive House, Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yotto - Just Another Piano Track
+02. Martin Roth - Ultraviolet (Nordfold Remix)
+03. 16BL, Colle & deroos - One Place
+04. Craving - Flare (NUMJA & SoulTrain Remix)(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45AA121CFA6AD7717D56E74BFF768B64BCB2EEB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745340   (105086) от 25.08.2024
+
+Geneva Jacuzzi - Triple Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <dance-pop, darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laps of Luxury [00:04:04]
+02. Art is Dangerous [00:03:41]
+03. Speed of Light [00:03:57]
+04. Nu2U [00:03:03](   Читать дальше...   )Жанр: dance-pop, darkwaveПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744E1E7CF568AAE112A9951AF8BDA27EC102DDF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745121   (105090) от 25.08.2024
 
 VA - Perfecto Black: The Sound of the Underground (2024) [MP3|320 Kbps] <Progressive House>
@@ -639,60 +693,6 @@ VA - Rated in the Mix with Grant Trowbridge (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53F9B95136554805B1A5A8DACEE19173DAABA630
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742716   (105499) от 13.08.2024
-
-S.I.N.A - Alte Liebe... (2024) [MP3|~245 Kbps (V0)] <EBM, Industrial, Female Vocal>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105499.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nicht Ich [00:04:29]
-2. Little Girl [00:04:36]
-3. Gefühlschaos [00:04:37]
-4. Bauchgefühl [00:03:39](   Читать дальше...   )Жанр: EBM, Industrial, Female VocalПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB76004B41DFB419DF3910CDD926E8C0FC6E94F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742718   (105500) от 13.08.2024
-
-keldin - There is no future (Будущего нет) (2024) [MP3|320 Kbps] <Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Машина [00:02:55]
-02 - Сталь [00:03:10]
-03 - Технобитва [00:03:44]
-04 - Техноконструктор [00:03:04](   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC236E884511CC5997C28F657CFA148CA5A90E9
 ```
 
 

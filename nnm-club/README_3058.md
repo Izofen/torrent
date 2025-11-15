@@ -1,728 +1,713 @@
-###  Публикация: 470164   (97263) от 20.03.2012
+###  Публикация: 468727   (96913) от 17.03.2012
 
-VA - Beat Generation 2 (2009) [MP3|320 кб/с]<Psy-Prog>
+VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.13 (2012) [MP3|128-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.DJ Dark & Shidance feat. Raisa - Da Bomb (Radio Edit)
+02.Митя Фомин - Beautiful Rose
+03.Play-N-Skillz feat. Pitbull - Richest Man
+04.DJ Sanny J & D@niele feat. Xavi One - Bomb Of Love (Radio Edit)
+05.Soda - Разлука
+06.Kato feat. Snoop Dogg & Brandon Beal - Never Let you Go
+07.Павла - One Million Butterflies
+08.Ірина Федишин - Твоя
+09.DJ Clubactive (In & Out) - Разбитые Слова (Original Mix)
+10.Andra - What About Us (Radio Edit)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 04:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7753739B2C6F545C19C9BDC5368BF2A4A9D245
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468512   (96914) от 17.03.2012
+
+[Wallpapers] Fantasy Desktop Wallpapers Pack
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96914.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Fantasy Desktop Wallpapers Pack 
+Название:  Fantasy Desktop Wallpapers Pack 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х960 - 4096х1823
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996656306FBA9B1A027F43E288210E2D186F09D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469377   (96916) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 23
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96916.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 23 
+Название:  Desktop Wallpapers Pack 23 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C442F9740445AD031D329EF4DBC8290DED7A7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469023   (96918) от 17.03.2012
+
+Эллери Квин | Король умер [1995] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название:1995Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AAE770FB3016FCB328947373A22DD7F1EE671CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468372   (96920) от 17.03.2012
+
+Dada Life - March 2012 Mix (01-03-2012) [MP3|160 кб/с]<House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Zyce & Flegma - Afterglow (8:41)
-2. Cabal - The sacred Spirit (7:38)
-3. Aquafeel - GloryLand (6:43)
-4. Aqualize - Land of 2 Suns (7:51)
-5. Audioload - Way Out (7:42)
-6. Andromeda - Sensation (Aquafeel RMX) (6:32)
-7. Time in Motion - Colour (8:07)
-8. Progenitor - Typical Human Behaviour (8:18)
-9. Ocean and Display - Kastefa Beach (7:59)2009Жанр: Psy-ProgПродолжительность: 01:09:40
+01 Angger Dimas & Bassjackers - RIA
+02 Kenneth G - Bazinga (Original Mix)
+03 Kaskade ft. Skylar Grey - Room For Happiness (Gregori Klosman Remix)
+04 Dimitri Vangelis & Wyman - Roll The Dice
+05 Steve Aoki - Ladida (Tommy Trash Instrumental Remix)
+06 Felix Cartal - Domo
+07 Wolfgang Gartner - There and Back
+08 Yves V - Mandala
+09 Style Of Eye - Devastate
+10 Bobby Burns - Next(   Читать дальше...   )Жанр: HouseПродолжительность: 00:49:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
+magnet:?xt=urn:btih:7D8B7C58895C6D001443C72A2DFACB41C298A8BC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470988   (97264) от 20.03.2012
+###  Публикация: 468913   (96921) от 17.03.2012
 
-[Wallpapers] Nature Pictures №32
+[Wallpapers] Girls Desktop Wallpapers Pack 4
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №32
-Название: Nature Pictures №32
+[Wallpapers] Girls Desktop Wallpapers Pack 4 
+Название:  Girls Desktop Wallpapers Pack 4 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Разрешение файлов: 1920х1080 - 1920х1440
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
+magnet:?xt=urn:btih:3A9D94898C56527B2822F2530A03FF90275E2DFE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470987   (97265) от 20.03.2012
+###  Публикация: 469412   (96922) от 17.03.2012
 
-[Wallpapers] HD Pictures №1
+Грегори МакДональд | Покойник из Найроби [1995] [MP3]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №1
-Название: HD Pictures №1
+Оригинальное название:Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC56FDE7B4A1FEC23E7640F197AC2705FED2C685
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468495   (96923) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 13
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96923.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 13 
+Название:  Desktop Wallpapers Pack 13 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2EF2635889029D43BDA055BDE56B9212C770B003
+magnet:?xt=urn:btih:54E079BF71EABC8E4F6DFA731C7D4A373DFDF2FB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471008   (97266) от 20.03.2012
+###  Публикация: 468532   (96924) от 17.03.2012
 
-[Wallpapers] HD Wallpapers Pack 3
+[Wallpapers] Fantasy Desktop Wallpapers Pack 2
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers Pack 3
-Название: HD Wallpapers Pack 3
+[Wallpapers] Fantasy Desktop Wallpapers Pack 2 
+Название:  Fantasy Desktop Wallpapers Pack 2 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Разрешение файлов: 1280х1024 - 6496х3723
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD48F16BBB94DAC2E89DD8457524139FD7AB7034
+magnet:?xt=urn:btih:3E8ACA4CB95844ACDD4A9944424D20173C908CB8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471029   (97267) от 20.03.2012
+###  Публикация: 469364   (96928) от 17.03.2012
 
-[Wallpapers] Mixed Wallpapers (21.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB9A9D24D3E633A82675033F1B2F866D3E7D8A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471007   (97268) от 20.03.2012
-
-[Wallpapers] HD Pictures №2
+[Wallpapers] Girls Desktop Wallpapers Pack 8
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96928.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №2
-Название: HD Pictures №2
+[Wallpapers] Girls Desktop Wallpapers Pack 8 
+Название:  Girls Desktop Wallpapers Pack 8 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Разрешение файлов: 1920х1080 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F15FAAA55AF321846C0EE531B642260BDCB61F25
+magnet:?xt=urn:btih:9849459131DABA7D169AD9F8FDE79C6E9FDE6EB1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469652   (97272) от 20.03.2012
+###  Публикация: 469612   (96929) от 17.03.2012
 
-Patе de Fuа - Boquita Pintada (2011) [MP3|320 кб/с]<Ethnic Jazz, Easy Listening, Swing, Latin>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boquita pintada
-02. Mujer que te peinas
-03. Bas-Aut
-04. A donde vas?
-05. La Lupita
-06. El loco Igor
-07. El vals del circo
-08. El sonador
-09. Balcarce
-10. Madre querida(   Читать дальше...   )Жанр: Ethnic Jazz, Easy Listening, Swing, LatinПродолжительность: 00:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E15F6F4563F55DD8D74854344A64B918B437CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470678   (97274) от 20.03.2012
-
-Overkill - The Electric Age (2012) [MP3|~245 кб/с (V0)]<Thrash Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come And Get It (6:18)
-02. Electric Rattlesnake (6:20)
-03. Wish You Were Dead (4:19)
-04. Black Daze (3:55)
-05. Save Yourself (3:44)
-06. Drop The Hammer Down (6:25)
-07. 21ST Century Man (4:13)
-08. Old Wounds, New Scars (4:12)
-09. All Over But The Shouting (5:30)
-10. Good Night (5:37)2012Жанр: Thrash MetalПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72374426FBB158F9FD2CAAE04534E55D32E0FAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470623   (97275) от 20.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (19.03.12)
+[Wallpapers] Fantasy Desktop Wallpapers Pack 3
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7695ABA69FAFB895C16F5C90ED17DEC2C911432
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471016   (97276) от 20.03.2012
-
-[Wallpapers] Flower Wallpapers Pack 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97276.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Flower Wallpapers Pack 2
-Название: Flower Wallpapers Pack 2
+[Wallpapers] Fantasy Desktop Wallpapers Pack 3 
+Название:  Fantasy Desktop Wallpapers Pack 3 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Разрешение файлов: 1600х1200 - 6970х4764
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5D173E7876C3CFAA959A6B245F140421B14EF1C
+magnet:?xt=urn:btih:55109C1EB815825F62CE514EBB43C92A0CB71B42
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468054   (97277) от 20.03.2012
+###  Публикация: 469227   (96930) от 17.03.2012
 
-VA - The Dance Cube XXXX 2CD (2011) [MP3|320 кб/с]<Trance>
+0,9 Ампер / 0,9 Ampere (2009) SATRip
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 Продолжительность: 01:10:48
-====================================
-01 - Mat Zo - Bipolar (Original Mix)
-02 - Robbie Rivera Feat. Jes - Turn It Around Feat Jes (David Solano & Landis Remix)
-03 - Tigran Oganezov - Kronos (Original Mix)
-04 - Cathy Burton - Reach Out To Me (Chris Schweizer Dub)
-05 - Tigran Oganezov - Brainbug (Original Mix)
-06 - DJ Madwave & Steve Sanders - Nooza (Damian Wasse Remix)
-07 - DJ Munder - Fly Away (Original Mix)
-08 - Solis & Mike Danis - Eleven (Broning Remix)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 02:26:19
+Электросудорожная терапия, ранее известная как электрошок, является самым противоречивым методом лечения, но до сих пор применяется в медицине. Электрошок был изобретен невропатологом Уго Черлетти, профессором психиатрии Римского университета в конце 1930-х годов. Этот метод лечения основан на вызывании большого судорожного припадка путем пропускания электрического тока мощностью 0,9 Ампер через головной мозг пациента с помощью прикрепленных к голове электродов. Некоторые специалисты считают, что использование электросудорожной терапии должно быть прекращено, а по мнению других она по-прежнему является единственным способом лечения психических патологий. Но что на самом деле мы знаем об электрошоке?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:54:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FFE9BDF572A927D24A25AD226CE3AC2C91C9BA6
+magnet:?xt=urn:btih:E98C79DA283B8E59EB3C6A60E77B1910DBD2981B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467132   (97278) от 20.03.2012
+###  Публикация: 469366   (96931) от 17.03.2012
 
-Artёm Puchkoff & Sasha Fresh - Jam Sation vol.1 (2012)/2012, Resonanse Records/ [MP3|320 кб/с]<Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Erick Decks & DJ Sign feat. Felice - Running 2012 (Original Erick Decks Extended Mix)
-02 - A. Romeo & Plage & Alateya - Summer Night (Dabruck & Klein Remix)
-03 - Moguai - Mpire (Original Mix)
-04 - Nadia Ali, Starkillers & Alex Kenji - Pressure (Alesso remix)
-05 - Yves Larock & Jesus Luz & Liliana Almeida - Running Man (Hard Rock Sofa Remix)
-06 - Hardwell - Cobra (Official Energy Anthem 2012)
-07 - Tommy Trash - Cascade (Original Mix)
-08 - Ce Ce Rogers & Syke 'n' Sugarstarr - I Believe (Max Lean Remix)
-09 - Vitodito & Oza - Kawaii (Dirty Club Mix)
-10 - Neon Hitch - F U Betta (Chuckie Club Remix)(   Читать дальше...   )2012Жанр: Progressive HouseПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E26455219E571A7EB96933669653FC767DE684A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471009   (97279) от 20.03.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (21.03.12)
+[Wallpapers] Girls Desktop Wallpapers Pack 10
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC5608541E078AB6BB2AEEC7DA82D8260EDE267
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471010   (97281) от 20.03.2012
-
-[Wallpapers] Nature Pictures №33
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97281.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №33
-Название: Nature Pictures №33
+[Wallpapers] Girls Desktop Wallpapers Pack 10 
+Название:  Girls Desktop Wallpapers Pack 10 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Разрешение файлов: 1920х1080 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E6C61E8D03082F53F54E93518BFB94381A51412
+magnet:?xt=urn:btih:F55D39196EBFD42BDA75EE80B991B5909D36E43E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470262   (97282) от 20.03.2012
+###  Публикация: 469094   (96932) от 17.03.2012
 
-[Wallpapers] Cityscapes HD Wallpapers (18.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D9D649278E8773194D4317FD331DA42E44C2A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471070   (97284) от 20.03.2012
-
-[Wallpapers] HD Wallpapers Pack 5
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97284.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers Pack 5
-Название: HD Wallpapers Pack 5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC10CDAE3E9787ECF4FCD42CD5FBFDC4CA15F1A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471028   (97285) от 20.03.2012
-
-[Wallpapers] Nature Wallpapers (21.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F398CC1D2919493682A653306DD499FE3908648
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471030   (97286) от 20.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (21.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE8360E46310E8B9BA1433536CE0EFEB046AC2A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470984   (97287) от 20.03.2012
-
-[Wallpapers] HD Wallpapers Pack 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97287.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers Pack 2
-Название: HD Wallpapers Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38135ED9BB938218C94DD9B060E01F1191A91FD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470716   (97288) от 20.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (20.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:034547BFE923DB0EE4F66B9AF9DA553BD1220ED3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471011   (97291) от 20.03.2012
-
-[Wallpapers] Wallpapers Sexy Girls (21.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B2F5589A5CD15536EBE9DAEC1C1787916CD09D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470937   (97292) от 20.03.2012
-
-[EN] Вонючка / Muckman (2009) DVDRip
+Желание моего отца / My Father's Will (2009) DVD5
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Согласно сведениям очевидцев, в лесах и болотах Пенсильвании обитает скверно пахнущий аналог снежного человека, которого местные жители ласково кличут Вонючкой. Найти и запечатлеть этого легендарного монстра на плёнку — последний шанс на продолжение карьеры для тележурналиста Микки. А это значит, что Микки и его съёмочная группа должны отыскать Вонючку во что бы то ни стало, даже если его не существует.Жанр: УжасыРежиссер: Бретт ПайперАктеры: А.Дж. Кхан, Элисон Уитни, Йен Пайпер, Джаред Уоррен, Даниэль ДонахьюПеревод: ОтсутствуетПродолжительность: 01:20:02
+Богатый и успешный бизнесмен Ферро Оливетти наслаждается всеми привилегиями, которые только могут дать деньги и высокое социальное положение. Но вот умирающий отец хочет, чтобы сын исполнил его последнее желание…Жанр: ДрамаРежиссер: Фред МэнокэриэнАктеры: Виктор Альфьери, Айони Скай, Рон Сильвер, Джерри Бэммен, Уильям Уайз, Ивонна Копач, Мэтт Ньютон, Мелисса Клер, Иган Marнa, Алонсо СаундерсПеревод: Многоголосый закадровыйПродолжительность: 01:24:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C1F3E8314116F5E0B165BFBD15ED6A4340E43BC
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471071   (97293) от 20.03.2012
+###  Публикация: 468916   (96935) от 17.03.2012
 
-[Wallpapers] Green Wallpapers
+[Wallpapers] Girls Desktop Wallpapers Pack 5
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Green Wallpapers
-Название: Green Wallpapers
+[Wallpapers] Girls Desktop Wallpapers Pack 5 
+Название:  Girls Desktop Wallpapers Pack 5 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Разрешение файлов: 1920х1080 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:838ED7FAA00DE083DC81075748C1A7BD0AEE1E4D
+magnet:?xt=urn:btih:50D5BEF5C95D1475866246A2EE9EFB40F8FA49F9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470390   (97295) от 20.03.2012
+###  Публикация: 469029   (96936) от 17.03.2012
 
-VA - Мощная Dance Атака. Зарубежный (2012) [MP3|256 кб/с]<Рор>
+Эллери Квин | Тайна китайского апельсина [2007] [MP3]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dido - This Land Is Mine
- 002. Basto! - Again And Again
- 003. Kaskade feat. Skylar Grey - Room For Happiness (Gregori Klosman Remix)
- 004. Sunrise Inc. & Liviu Hodor - Still The Same (Radio Edit)
- 005. No Mercy - Where Do You Go (Johan K & Eddie Mono Horny Bootleg Edit)
- 006. Inna - Endless
- 007. Jochen Miller - Flashback (Gregori Klosman Remix)
- 008. Switchfoot - You
- 009. Anastacia - Heavy On My Heart
- 010. Bob Sinclar feat. Pitbull & DragonFly & Fatman Scoop - Rock The Boat (Club )(   Читать дальше...   )2012Жанр: РорПродолжительность: 07:14:37
+Оригинальное название:2007Жанр: Детектив
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDB2F29EFCA8898D7B91FE85C1185AFE525C9A33
+magnet:?xt=urn:btih:7B2711F665F4CF050AE0EE2B0E74642B3D4E5B5F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467622   (97298) от 20.03.2012
+###  Публикация: 468927   (96937) от 17.03.2012
 
-VA - Лучшая 100ка - Взорви танцпол 2 (2012) [MP3|256 кб/с]<Pop>
+[Wallpapers] Desktop Wallpapers Pack 19
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Винтаж - Деревья (Kapler Radio Mix)
- 02. Вельвеt - Нанолюбовь
- 03. Макс Барских - Глаза-убийцы (Kozyr Remix)
- 04. Бьянка & St1m - Ключи
- 05. БандЭрос - Не под этим солнцем
- 06. Аня Шаркунова - Я Знаю Ее В Лицо
- 07. Алиса ей - Baby Не Плачет
- 08. Shaplin & Siatria - Я Река
- 09. Reflex & Ирина Нельсон - Селяви
- 10. Юрий Шатунов - От Белых Роз(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:31:21
+[Wallpapers] Desktop Wallpapers Pack 19 
+Название:  Desktop Wallpapers Pack 19 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE86E61E711995F160CA5DB63568A5BE73CA844E
+magnet:?xt=urn:btih:33613245815F7C67DF04B74C3C031C174AC4653F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470191   (97299) от 20.03.2012
+###  Публикация: 469051   (96938) от 17.03.2012
 
-Nike Beats - Instrumental vol.4 (2012) [MP3|320 кб/с]<Instrumental>
+Формула 1. Гран-При Австралии. 2-ая свободная практика (2012) HDTV [1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Австралии 2012 года — автогонка чемпионата мира «Формулы-1», проходит с 16 по 18 марта 2012 года на трассе Альберт-Парк, Мельбурн, Австралия.
+Эта гонка отрывает сезон 2012 Формулы-1. Длинна трасы составляет 5303 м., на ней 16 поворотов из них 10 правых и 6 левых.Жанр: СпортПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68AFB5FE6CB5087A526B8CA37DD4104569561857
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469111   (96939) от 17.03.2012
+
+VA - Avto Club March (2012) [MP3|320 кб/с]<Dance, House, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sebastian Pena - Black Dance (Original Mix)2012Жанр: Dance, House, ClubПродолжительность: 05:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5B03F1EC97B869AD073237D6BB734532574817
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469013   (96944) от 17.03.2012
+
+Эллери Квин | Застекленная деревня [2010] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название: The Glass Village 1954 год.
+Роман «Застекленная деревня» занимает особое место среди детективов, написанных Эллери Квином. По сути дела, это психологический роман с криминальной подоплекой, в котором описывается своеобразная жизнь традиционной американской глубинки. Главный герой здесь — не хорошо известный сыщик, а Джонни, племянник судьи Шинна — одного из жителей деревни Шинн-Корнерс. Убита известная жительница деревни, а в её смерти обвинён бродяга, на свою беду посетивший в этот момент Шинн-Корнерс.2010Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47CB14E66DBE7B3AFB1F4A52A6ADF05A07060F88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468769   (96945) от 17.03.2012
+
+Mortad - The Myth Of Purity (2012) [MP3|320 кб/с]<Melodic Death Metal / Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96945.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:53] 01 - All Thats Born Must Be Destroyed 
+ [03:54] 02 - Waste Of My Rage 
+ [05:14] 03 - The Heights 
+ [05:17] 04 - Mirage 
+ [04:36] 05 - Feels Like Suffocation 
+ [04:48] 06 - The Myth Of Purity
+ [03:08] 07 - Im Not Interested In Being Interesting 
+ [04:11] 08 - By Default 
+ [06:58] 09 - The Voice 
+ [05:49] 10 - That Which Is Humane(   Читать дальше...   )2012Жанр: Melodic Death Metal / Thrash MetalПродолжительность: 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DBAFBFE10FF283E3F2DDC7822C035A57AB117A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469371   (96946) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 21
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96946.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 21 
+Название:  Desktop Wallpapers Pack 21 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D208573A179BA95C1FEE07C4CE2C34A6FA89AFD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468752   (96948) от 17.03.2012
+
+Свободная Стая (Маста Кэш и Женя Лир) - Кто я без тебя (2012) [MP3|320 кб/с]<Hip-Hop, Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mongrel
-02. Mexico
-03. 1001 night
-04. Chasm
-05. I shall love
-06. Fragments of a diary
-07. Lullaby of the fairy
-08. Cypress hil
-09. Fists2012Жанр: InstrumentalПродолжительность: 00:24:32
+01. Мишель (интерлюдия)
+02. Мишель
+03. Приговор
+04. Скажи мне (интерлюдия)
+05. Скажи мне
+06. Танец с огнем
+07. 29 марта
+08. Кто я без тебя
+09. Yaroslavna
+10. Мишель (акустическая версия)Жанр: Hip-Hop, RockПродолжительность: 00:40:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E44F9CB5B01C267322E217847F3AF14D0C0519C8
+magnet:?xt=urn:btih:14F5E170C1B9D4765DFE80CF3656F4A5B3B7B319
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469373   (96949) от 17.03.2012
+
+VA - Trance World Vol. 14 (Mixed by Shogun) (2012)  [MP3|320 кб/с]<Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96949.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance World Vol. 14 (Mixed by Shogun) (2012) 
+Год: 2012
+Жанр: Uplifting Trance
+Продолжительность: 04:41:00Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. John O'Callaghan ft Cathy Burton - Perfection (Shogun Remix)
+02. Kyau & Albert - Always A Fool (2011 Rework)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B54018BAC4A2B2F95D5F4E966965B5144D7DB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469091   (96950) от 17.03.2012
+
+Росс МакДональд | Человек в Кадиллаке [1995] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл  Лью Арчер / Lew Archer
+Оригинальное название:1995Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2079B9D4C29D04540E0A2FCEC922A3501B7568
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469086   (96951) от 17.03.2012
+
+Росс МакДональд | Предсмертный взгляд [2002] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл  Лью Арчер / Lew Archer
+Оригинальное название:2002Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D9703F84F032A006E614CA87C3B33172FFBE1D
 ```
 
 

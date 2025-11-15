@@ -214,6 +214,39 @@ magnet:?xt=urn:btih:F2A22D47BDF8629BF86C054B065806A59CD06E85
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461981   (95316) от 03.03.2012
+
+VA - MAYDAY (2011) [FLAC|Lossless]<Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Members Of Mayday - Ravemobil
+02. Moguai & Westbam - Original Hardcore (Moguai Edit)
+03. Funkerman - Crash Test
+04. Sebrof - In A Club (So Make Some Noise)
+05. Felix Da Housecat pres… Thee Nese Djouma Projesi - Zaman (Moguai Remix)
+06. Jaydee - Plastic Dreams (Koen Groeneveld Remix)
+07. Inpetto - Hit Back
+08. Toper & Andrian - Laziness
+09. The BeatThiefs - Umbungo (Chocolate Puma Remix)
+10. Jochen Miller - Troucid(   Читать дальше...   )2011Жанр: Progressive HouseПродолжительность: 01:11:02
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 464461   (95955) от 08.03.2012
 
 VA - Clubbin 2012 Vol. 1 (2012) [MP3|~224 кб/с ]<House>
@@ -341,6 +374,37 @@ VA - Swedish House Album (2012) [MP3|~245 кб/с (V0)]<House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1513E762128A87881843EF7A86CA77F660D7C372
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473544   (97835) от 27.03.2012
+
+Kinack - Ondas WEB (2012) [FLAC|Lossless]<Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kinack - Ondas WEB (2012)
+Год: 2012
+Жанр: Chillout, Lounge
+Продолжительность: 01:08:19Кодек: FLAC
+Битрейт: Lossless
+Тип рипа: tracks+.cueТрек лист:
+01. Mossback (4:18)
+02. Nym (4:34)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -718,60 +782,6 @@ VA - The Best Releases 2024 Of Sounds Of The Stars (2024) [MP3|320 Kbps] <Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03CDA94C2DEB5D6E0A2EF38C008F3A452D738CFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770088   (100591) от 30.12.2024
-
-V.A. - Music For Dreams, Best Of 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troels Hammer - I Done All I Could
-02. The Swan and The Lake - Primavera Gelato
-03. Jacob Gurevitsch - Morning View
-04. Ambala, Troels Hammer, Anders Ponsaing - Quiet Yellow Purple(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373B47AB8239D470137B9C9A7971D9353CCD372F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770099   (100607) от 30.12.2024
-
-VA - The Best Releases 2024 of Endlessky Audio (By Abstract Moon & André Wildenhues) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.J.G. & M.I.K! - Who You Are (Forceflow Remix) (06:38)
-02. Andy Newtz - Take Me to the Stars (Rick Art Remix) (05:16)
-03. Gayax - Midnight Bird (Original Mix) (06:47)
-04. Iberian - Lose Yourself in the Dream (D.J.G. & M.I.K! Remix) (06:18)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB3719D90615DDE996270DBFC03EF4D5E72907A
 ```
 
 

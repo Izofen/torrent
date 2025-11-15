@@ -1,3 +1,57 @@
+###  Публикация: 1589710   (189654) от 11.11.2022
+
+a-ha - True North (2022) [FLAC|Lossless|image + .cue] <Synth-pop, Pop Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm In (5:06)
+02. Hunter In The Hills (4:11)
+03. As If (4:56)
+04. Between The Halo And The Horn (4:11)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39CA0BF491A1110DB81A31598EFBDE30EA94BACE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589498   (189739) от 11.11.2022
+
+VA - Chillout Autumn Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fake and True - Seas of Passion (5:04)
+02. Beamy - Rising Sun (4:18)
+03. Martin Hiska - Remember (4:44)
+04. V-Sta - Slum of Dream (Original Mix) (4:40)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC6BD6A22D491D3378CFCB3C2D5CAE5A3F8F2FE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589670   (189758) от 11.11.2022
 
 NOIYSE PROJECT - Path Of The Sun 1 (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
@@ -638,60 +692,6 @@ VA - Wonderful Days: Best Of 90s Classic Rave Tracks (2021) CD, Compilation [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26E7187D2D8285AC9E1663B6B6C293FF90FB2C6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657612   (192434) от 04.09.2023
-
-Cygnosic - Demystify (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sea [00:03:04]
-02. Darkout [00:03:05]
-03. Nothing to Regret [00:03:11]
-04. Into the Flames [00:04:08](   Читать дальше...   )Жанр: Dark Electro, EBMПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A51EE4B4648DD3A4FEE761DDFE655C356147A6B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657610   (192436) от 04.09.2023
-
-The Midnight - Red, White and Bruised: The Midnight Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Dream Wave, Electronic, Songwriter, Synth Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heroes (Live) [00:06:11]
-02. Change Your Heart or Die (Live) [00:03:13]
-03. Brooklyn. Friday. Love. (Live) [00:04:08]
-04. Gloria (Live) [00:04:39](   Читать дальше...   )Жанр: Dream Wave, Electronic, Songwriter, Synth PopПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAEA008B26A168B94666712FBD60F3B09ADC1657
 ```
 
 

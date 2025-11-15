@@ -1,3 +1,30 @@
+###  Публикация: 1344311   (170545) от 10.12.2019
+
+VA - The Sound Of Dance House (2019) [MP3|320 Kbps] <Dance House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170545.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yinon Yahel - Not Good For Me
+002. Giben Gless - Random (Original Mix)
+003. Mike Candys - Brand New Day
+004. Bassienda - All I Want (Original Mix)(   Читать дальше...   )Жанр: Dance HouseПродолжительность: 13:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ABDD944E099F5AA7709A1F5BB995880A56DF552
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671807   (170849) от 26.10.2023
 
 VA - Beast Mode Hip Hop 2 (2023) [MP3|320 Kbps] <Hip-Hop, Rap>
@@ -668,33 +695,6 @@ The Hillbilly Moon - Compilation (2023) [MP3|320 Kbps] <Rockabilly>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14F6C83896DD32BB86269B8E5B68142DF641F93D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669206   (172789) от 16.10.2023
-
-VA - Electronic compilation part 38 (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Gamid - Staying faithful
-02. Redfeel - Nobody Cares You
-03. DJ Gamid - Maybe
-04. Redfeel - Something(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83A883164B7CF802520C3D2502D5EDE55BC530F
 ```
 
 

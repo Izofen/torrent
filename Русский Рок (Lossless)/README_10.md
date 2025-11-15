@@ -1,3 +1,111 @@
+###  Публикация: 1731767   (107621) от 22.06.2024
+
+Карабас и НесуРазности - Золото (2023) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Золото
+02. Путаны
+03. Квадрат
+04. Эрудиты(   Читать дальше...   )Жанр: RockПродолжительность: 00:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6692EA6B227157B203425589A738AD5F3417E1ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731132   (107740) от 20.06.2024
+
+Дорога Домой - Жить не зря? (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Приходи ночевать [00:02:34]
+02. Из далёкого детства [00:03:14]
+03. Положение дел [00:02:53]
+04. Мёд и вино [00:04:14](   Читать дальше...   )Жанр: RockПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B9E7569F0EA1F83ACB6C6FA7EAA3D9A6962D9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731133   (107745) от 20.06.2024
+
+Хороший год - От небес до земли (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Морская соль [00:03:57]
+02. Все это сон [00:03:59]
+03. Каждому свое [00:04:27]
+04. Лайфхак [00:04:16](   Читать дальше...   )Жанр: RockПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496B848E1243B24828EB9D8FD16DF9924DC43C0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730453   (107866) от 16.06.2024
+
+Storm Inside - Серый человек (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore, Post Hardcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дыши [00:01:54]
+02. Один на один [00:03:52]
+03. Серый человек [00:04:27]
+04. Маяки [00:03:38](   Читать дальше...   )Жанр: Melodic Metalcore, Post Hardcore, ElectronicПродолжительность: 00:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8624E89A49525B24703050C94F0E8801CCD937
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730449   (107867) от 16.06.2024
 
 The Iron Bees - Ржавый Тромбон (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Ska-Punk>
@@ -587,114 +695,6 @@ MAMA RUSSIA - Любовь, комсомол и роботы (2024) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1817606275C019CFABEAFAAD3D3138E5B56C13C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722218   (109729) от 10.05.2024
-
-Эдi - Сомачувствия (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сома [00:04:00]
-02. Ядра золотые [00:03:29]
-03. Деньги [00:03:12]
-04. Откровенные тайны [00:03:24](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B49AE5E60A77083E49F98B4D5FAD21D05AAF099
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722219   (109730) от 10.05.2024
-
-Похороны Друзей - Кардиосклеп (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Манекен [00:02:06]
-02. Фатум [00:02:54]
-03. Индифферентизм [00:02:33]
-04. Парамнезия [00:01:57](   Читать дальше...   )Жанр: Alternative, Indie Pop, Indie RockПродолжительность: 00:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578DF94E1633C6D6C79C2AB14AC742ACBDADB93C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722265   (109759) от 10.05.2024
-
-Ресентименты - Суперпозиция (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Суперпозиция [00:06:02]
-02. Место и время [00:02:40]
-03. Разве здесь не прекрасно [00:05:12]
-04. Сон смешной собаки [00:05:18](   Читать дальше...   )Жанр: Indie, Psychedelic RockПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622ADCFA057C56AFC94F8683931779E66D731947
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721928   (109897) от 09.05.2024
-
-Бахыт-Компот - Все девчонки любят пацанов (2002) [FLAC|Lossless|tracks + .cue] <Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Глухонемая девушка
-02. Все девчонки любят пацанов
-03. Эльмира
-04. Прокладка-1(   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FB4284AFEB2013CD28A56E10B03A59E2C3198A
 ```
 
 

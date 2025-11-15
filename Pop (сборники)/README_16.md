@@ -1,3 +1,30 @@
+###  Публикация: 1590509   (188804) от 14.11.2022
+
+VA - Let's Dance Baby Vol. 2 (2022) [MP3|320 Kbps] <Dance, Electro Pop, Progressive, Groove>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skuado - Live It Up
+02. Deviz B - Saved Gema (Original Mix)
+03. Fijin - The One (Radio Edit)
+04. Krokodile Kruegel - Fog in the Moonlight (Radio Edit)(   Читать дальше...   )Жанр: Dance, Electro Pop, Progressive, GrooveПродолжительность: 02:01:24 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70FFFC67633FF4A86EE84C1539844084680E260B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588748   (191024) от 06.11.2022
 
 VA - Dance Remixes 2022 Formentera Edition (2022) [MP3|320 Kbps] <Euro Dance, Club, House, Synthpop>
@@ -667,33 +694,6 @@ VA - German Top 100 Single Charts 18.08.2023 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44F8F5D6CA43F91B48E1ED9F0B9AEA9640423461
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649369   (207811) от 28.07.2023
-
-Sinead O'Connor - How Nice A Woman Can Be (2023) 2 CD Compilation  [MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lamb's Book Of Life [04:58]
-02. Troy [06:35]
-03. 'Til I Whisper U Something [06:08]
-04. Just Like U Said It Would B [04:32](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0369371CFF8ED0EAE69036342E9C6C61E1CDA989
 ```
 
 

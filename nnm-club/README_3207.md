@@ -1,690 +1,665 @@
-###  Публикация: 1754308   (103725) от 09.10.2024
+###  Публикация: 1761243   (103073) от 18.11.2024
 
-Reverber - The Satan Creation (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+Святитель Василий Великий | Письма (2007) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prelude Of Chaos
-02. The Satan Creation
-03. Kill The Clown
-04. Culpa Gravis(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:14
+«В эпистолярном наследии Святителя ярко отразился огромный духовный путь, который святитель Василий прошел от юношеской риторической экспрессии до сдержанной умудренной вдохновенности Писанием. Кроме того, письма святого Василия представляют собой и ценный исторический источник: по его письмам можно проследить, как разворачивалась борьба с различными ересями, противостоявшими (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2562917A8B263287E5A554EBD1D836B41D8F6477
+magnet:?xt=urn:btih:0663E2CAE0BD9D968B28CFB626DC01CB38BF8A33
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754238   (103726) от 09.10.2024
+###  Публикация: 1761223   (103074) от 18.11.2024
 
-Ted Heath & His Music - Swing Is King! (1992) Limelight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying Home [2:26]
-02. Cherokee [3:19]
-03. Begin the Beguine [2:42]
-04. One O'Clock Jump [3:33](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76A96B85810D332780C6C4FB65678CE3534A339
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754246   (103727) от 09.10.2024
-
-Our Graves - System Overload (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Industrial, Dark Electro>
+Mark Farner - Closer To My Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. System Overload (4:39)
-02. Precious Lies (3:57)
-03. We Want It All (4:37)
-04. Faceless (4:54)(   Читать дальше...   )Жанр: EBM, Industrial, Dark ElectroПродолжительность: 00:41:42
+01. Anymore (3:12)
+02. The Prisoner (4:14)
+03. Same Game (2:51)
+04. Facade (3:07)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:44:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:580F4DDB1657A65AD4DBB61EAA3169580CE74E4F
+magnet:?xt=urn:btih:C041DC2C6FC42CA5DCA4E6EDBEEF7801E69F4858
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754097   (103728) от 09.10.2024
+###  Публикация: 1761216   (103075) от 18.11.2024
 
-Charles Mingus - Something Like A Bird (1978) 2013, Atlantic [FLAC|Lossless|tracks + .cue] <Post Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something Like A Bird [31:13]
-02. Farewell, Farwell [6:57]Жанр: Post Bop, Big BandПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDE3AC108E0B838006C8150CEC6A1EDA1E40ACC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754143   (103729) от 08.10.2024
-
-Rehab Black - I'm Fighting (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+Divisive Echoes - Twilight Of The Round Table (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Struggles in the Shadows (2:11)
-02. I'm Fighting, (2:11)
-03. Chains of Despair (2:11)
-04. Echoes of Reflection (2:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:03
+01. Chronicles Of The Chosen King (6:26)
+02. Crown Of Thorns (6:23)
+03. Crown Of Night (6:58)
+04. Knights Of The Unbreakable Oath (6:59)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:53:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED4F216DC5F47D575AE77B5E9096342DFE42989F
+magnet:?xt=urn:btih:EDBAF1D3266A0CFE7BB7D4FC7FB40F699EE17AA1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754125   (103730) от 08.10.2024
+###  Публикация: 1761227   (103076) от 18.11.2024
 
-The New Roses - Attracted To Danger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Singing River - Talkin' Destination Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Rock, Americana>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. When You Fall In Love (3:57)
-02. Natural Born Vagabonds (4:01)
-03. Attracted To Danger (3:23)
-04. Four Wheels (3:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:30
+01. Talkin' Destination Blues (2:29)
+02. A Hill Worth Climbing (3:13)
+03. I Keep Running (3:12)
+04. Gideons Bible (3:58)(   Читать дальше...   )Жанр: Blues, Rock, AmericanaПродолжительность: 00:25:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:328CC23F6113B7A5578C4DAC58F609426E8CA1F3
+magnet:?xt=urn:btih:31DCC6592589897065D518ACB2666ADA87D681D0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754137   (103731) от 08.10.2024
+###  Публикация: 1761250   (103077) от 18.11.2024
 
-Little Steve and The Big Beat - Circles (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+Enforced - A Leap Into the Dark (2024) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal, Crossover>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 99 LBS (2:35)
-02. The Shame Is On You (4:08)
-03. Anna Lee (4:37)
-04. Walking At Night (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:48
+01. Betting on the End (3:42)
+02. A Leap into the Dark (4:16)
+03. Deafening Heartbeats (3:11)
+04. Casket (2024 Remaster) (1:54)(   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:19:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37C72FE1A5A9A21A642501E5CB2153ABF8E28682
+magnet:?xt=urn:btih:7F56B5187C54F9F9E5CC5BED401E3C0D014EF5BC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754104   (103732) от 08.10.2024
+###  Публикация: 1761246   (103078) от 18.11.2024
 
-April Art - Rodeo (2024) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Alt.Metal, Electronic, Female Vocal>
+Wabi King - Turn over the Game (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103078.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rodeo [00:03:22]
-02. Burn [00:02:54]
-03. Who I Never Meant to be [00:03:27]
-04. Not Sorry [00:03:14](   Читать дальше...   )Жанр: Alt.Metal, Electronic, Female VocalПродолжительность: 00:36:12
+01. Iron Face (3:48)
+02. We play Rock N Roll (3:37)
+03. Turn over The Game (3:37)
+04. I Got it That Go (3:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:858C93B02B5B8CBABA2C026B27800DC4A0A590FD
+magnet:?xt=urn:btih:FF652B526B33A53636D22B58EC836F7D6836A3D6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754132   (103733) от 08.10.2024
+###  Публикация: 1761219   (103079) от 18.11.2024
 
-Сильнейший / Den staerkeste (1912) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это не совсем кoмедия, в те стародавние времена этот новый киножанр называли "любовная игра". Хотя на мой взгляд подобная стилистика намного старше самого кинематографа. Достаточно вспомнить "Укрощение строптивой". И еще до Шекспира - многие новеллы "Декамерона"... Но не ждите от фильма каких-нибудь пошлостей. Все очень прилично.
-Красивая, (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, комедия, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Axel Boesen, Роберт Динесен, Эльза Фрёлих, Anton Gambetta Salmson, Alma Hinding, Карл Лауритцен, Ааге Лоренцен, Эксел Маттсон, Альф Нилсен, Вальдемар ПсиландерПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EE6D710912AC3A2A9ABB23F6DE80D96DABC323
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754138   (103734) от 08.10.2024
-
-Marc Broussard - Time Is A Thief (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+Lonerider - Down in the Dust (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103079.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fire (3:58)
-02. Mood (3:30)
-03. Cold Blooded (3:10)
-04. You Deserve More (3:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:12
+01. Shiver (4:22)
+02. Three Steps Back (4:34)
+03. Getting Closer (4:35)
+04. Help Me Brother (3:59)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F1377C3AD417CEEAC2E5F52095954797069B141
+magnet:?xt=urn:btih:05440208EEC208FC2C15E684181B8ED45E70484A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754041   (103735) от 08.10.2024
+###  Публикация: 1761214   (103080) от 18.11.2024
 
-k.d. lang - Three Albums (1981-1990) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Country, Western Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103735.jpg" />
-</div>
-
-
-###  Подробнее
-
-00:42:28
-
-Side A:
-A1 Save Me(   Читать дальше...   )Жанр: Country, Western SwingПродолжительность: 02:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A53376C0D615700A1EF6434179825DD83BA0CFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754047   (103736) от 08.10.2024
-
-Oceanator - Everything is Love and Death (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+Distant Past - Solaris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103080.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. First Time (2:57)
-02. Lullaby (4:06)
-03. Cut String (2:50)
-04. Happy New Year (4:07)(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:35:40
+01. End Of Life (Intro) (0:58)
+02. No Way Out (3:29)
+03. Warriors Of The Wasteland (4:14)
+04. Sacrifice (4:08)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A92CA47951D61E912E9143A1EDD5E2DAE2DE69CA
+magnet:?xt=urn:btih:BA17133FFDCEC116AF63809FE11DFCFF63524C79
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754042   (103737) от 08.10.2024
+###  Публикация: 1761213   (103081) от 18.11.2024
 
-Wind Rose - Trollslayer (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power metal>
+Desert Song - Desert Song (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103081.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Of Ice and Blood (2:25)
-02. Dance of the Axes (4:48)
-03. The Great Feast Underground (4:44)
-04. Rock and Stone (5:05)(   Читать дальше...   )Жанр: Power metalПродолжительность: 00:42:07
+01. Awakening (1:08)
+02. Desert Flames (4:23)
+03. One for all, all for one (3:25)
+04. Rain in Paradise (4:12)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:32:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67A53E4A38B5264C0FF042B79037ECBA893DFB45
+magnet:?xt=urn:btih:EF27B746683BF78AE5852FB376C75F07DCA559F9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754133   (103738) от 08.10.2024
+###  Публикация: 1761180   (103082) от 18.11.2024
 
-Andrew Moore and Hooch - Artists of the Moon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+НХЛ 2024-2025. Вашингтон Кэпиталз - Вегас Голден Найтс (17.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103082.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Another Ride With You (5:11)
-02. First Love (2:47)
-03. Tyrant (5:20)
-04. Freedom (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:25
+18 ноября 2024, понедельник. 04:00 МСК. Стадион: Ти-Мобайл Арена (Парадайс, США), 17 877 зрителей (96% при вместимости 18 702)
+Главный судья: Брэндон Бландина (Сентенниал, США); Главный судья: Ти Джей Люксмор (Тимминс, Канада); Линейный: Кил Марчисон (Кловердейл, Канада); Линейный: Брэндон Гаврилетц (Трэил, Канада)Телекомпания: NHLЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:21:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9316E40D74545AD8255E9AAEB00F23948AC76C4
+magnet:?xt=urn:btih:7AFCE41C67E0BA968DDC05CCB8415FDCFB6FEE0D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754144   (103739) от 08.10.2024
+###  Публикация: 1761143   (103083) от 18.11.2024
 
-Ten eleven XII bluesband - Something Different (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Auburn Sounds - Panagement 2 2.6.0 (FULL) VST, VST 3, AAX (x86/x64) Retail [En]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tonight (6:12)
-02. Always on My Mind (8:05)
-03. Every Time You Come Home (5:59)
-04. 20 - Wien - 20 (6:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:18
+Panagement 2 - плагин для управления стереополем с бинауральной обработкой.
+Panagement 2 - это лаборатория пространственного преобразования, которая работает в тысячах студий по всему миру. Panagement 2 дает вам полную власть над вашими стереодорожками.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F062EB87B37BBACA4D190C0FCC560350924D2C7C
+magnet:?xt=urn:btih:6129969BD79B4C8C208A5404A5AA75272176A140
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754130   (103740) от 08.10.2024
+###  Публикация: 1761149   (103084) от 18.11.2024
 
-Abraham - Swing Low, Rock Hard (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+Newfangled Audio - Recirculate 1.1.9 VST, VST 3, AAX (x64) RePack by R2R [En]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103084.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Go Tell It on the Mountain (3:40)
-02. Oh Happy Day (3:05)
-03. Come Down Angels (3:29)
-04. Wade in the Water (3:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:34
+Recirculate - это не просто дилей плагин; это квинтэссенция того, каким должно быть эхо с обратной связью. Отбросив ненужный багаж и сосредоточившись на звуке и управлении, мы создали идеальный инструмент для придания глубины и объема вашим миксам..Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3158B08EA50E6935E6E4E6E4F2A4AA5622F5AFA3
+magnet:?xt=urn:btih:786927821CE35E015A23A25ED34AC2B92C09378B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754134   (103741) от 08.10.2024
+###  Публикация: 1761224   (103085) от 18.11.2024
 
-Krzysiek Ponieważ - The Devil, the Past and the Countryside: The Blues Collected (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Конвертер Валют Плюс / Currency Converter Plus 2.13.1 Mod by srajawwal09 [Ru/Multi]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103085.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Was It the Devil? (2:49)
-02. Heavy Delta Blues (Electric) (4:29)
-03. Where Everything Began (Electric) (6:20)
-04. Called by the Devil (5:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:12
+Конвертер Валют Плюс - максимально простой, а значит и очень удобный, конвертер валют. Что предоставляет пользователям точные данные сразу по нескольким позициям. Достаточно просто задать базовую валюту, а так же желаемые варианты. Программа обновляется через Европейский центральный банк, что обеспечивает использование только актуальных данных. При этом есть поддержка (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.10.2024Разработчик: Digitalchemy, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA5C584D373FBEEBB3BEA5A6D322B35BAE348184
+magnet:?xt=urn:btih:48B374BB796908BC1B70C3663A9C42902E4D7451
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754123   (103742) от 08.10.2024
+###  Публикация: 1761140   (103086) от 18.11.2024
 
-Lights of Marfa - Light of Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Eventide - Blackhole Immersive 1.3.0 VST 3, AAX (x64) RePack by R2R [En]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103086.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Heaven Knows (3:37)
-02. My Burning Flower (2:50)
-03. Light of Day (3:35)
-04. Double Vision (3:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:09
+Разработанный с нуля для иммерсивных рабочих процессов, Dolby Atmos и объемного звучания, Blackhole Immersive расширяет фирменное звучание стереоверсии Eventide во всем вашем иммерсивном миксе. От деликатной атмосферы до массивных затуханий вы создаете и формируете погружение слушателя - что, когда и где он это чувствует.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B842C68CA65071136BEA3A4BB6BB5B248A4572E
+magnet:?xt=urn:btih:E2280F9FAE4C516A121E8D413D03EA26C0E3ACCE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754120   (103743) от 08.10.2024
+###  Публикация: 1761156   (103087) от 18.11.2024
 
-Chris Killz and The Family - Mister Move On (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+Неужто я больше не главная героиня? / Hiroin shikkaku (2015) BDRip [H.264] [DVO]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Зарубежное кино
+>>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mister Move On (2:29)
-02. Are We Gonna Make It (5:09)
-03. Would You Believe Me (4:22)
-04. Give Me Time (2:53)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:30
+На её месте могла оказаться любая. Представьте, что вы стали главной героиней любовной истории... Хатори верила, что однажды выйдет замуж за своего друга детства Риту. К сожалению, мир устроен совсем не так... Перед вами умопомрачительная история непростой любви одной молодой девушки.Производство: ЯпонияЖанр: мелодрама, комедияРежиссер: Цутому ХанабусаАктеры: Мирэи Киритани, Кэнто Ямадзаки, Кэнтаро Сакагути, Това Араки, Аяно Фукуда, Мари Хамада, Акира Накао, Сэйдзи Роккаку, Маридзюн Такахаси, Рики ТакэутиПеревод: любительский двухголосыйЯзык озвучки: русский, японскийСубтитры: русские (ФСГ Cardinals), английскиеПродолжительность: 01:52:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E796C3614F19A3C3DD9829090CD1A7A1FE15B848
+magnet:?xt=urn:btih:2AFDAEFEB9A66CD5ADCC1F64950238C65E5FCB94
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754031   (103744) от 08.10.2024
+###  Публикация: 1761239   (103088) от 18.11.2024
 
-Agnes Darelid - RISE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Преподобный Никодим Святогорец | О хранении чувств (2000) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stakes Are High (6:43)
-02. Liliana Zavala - Anten (5:51)
-03. If it Were All About Feelings (6:54)
-04. Bloom of November (5:42)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:50:31
+Никто не отказался бы взойти на Небеса и наслаждаться нескончаемым блаженством, если бы этого можно было достичь, не прилагая усилий и подвига. Все мы готовы быть с Господом во славе Его, но мало найдется тех, кто пребудет верным Ему в скорбях и поношениях. И даже если уже решились идти вслед за Христом, при первой трудности наш ветхий человек начинает вопиять о (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1658F3A522998DE5F7A460C339A433CC62DE7E48
+magnet:?xt=urn:btih:8F18DE3C487F2136AFD0E771D0FA5D8859E38051
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754117   (103745) от 08.10.2024
+###  Публикация: 1761148   (103089) от 18.11.2024
 
-Bobbie Dazzle - Fandabidozi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Newfangled Audio - Generate 1.6.9 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lightning Fantasy (4:29)
-02. Merry-Go-Round (4:36)
-03. Revolution (4:38)
-04. Magic of Music (3:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:42
+Поднимите хаос на новый уровень с помощью Generate. Разработанный компанией Newfangled Audio, Generate представляет собой полисинтезатор marquee, сочетающий в себе пять революционных хаотических генераторов со всеми функциями, которые вы ожидаете от первоклассного синтезатора. Создавайте красивые сложные пэды, теплые скользящие клавишные, нервные секвенированные (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BCB4E60B5A4A4FF2C44628059E570A7BE3A4E6E
+magnet:?xt=urn:btih:6FFE7C228DEC4D7B321D380098663980177639E6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754032   (103746) от 08.10.2024
+###  Публикация: 1761226   (103090) от 18.11.2024
 
-Antonio Dayyani - Trop op (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Конвертер Валют Плюс / Currency Converter Plus 2.13.1 Mod by CMAPTOC [Ru/Multi]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103090.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wow, det er nat (3:45)
-02. Skiftevisen (3:52)
-03. Fyldt op (…pludselig af kærlighed) (6:07)
-04. Snefald på Lyravej (4:39)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:32:33
+Конвертер Валют Плюс - максимально простой, а значит и очень удобный, конвертер валют. Что предоставляет пользователям точные данные сразу по нескольким позициям. Достаточно просто задать базовую валюту, а так же желаемые варианты. Программа обновляется через Европейский центральный банк, что обеспечивает использование только актуальных данных. При этом есть поддержка (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.10.2024Разработчик: Digitalchemy, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский и Украинский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11A116BF752DC7753967C44A1A5AE9A144234138
+magnet:?xt=urn:btih:8F672EE1FA953937089462839793355AA87FADB1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753990   (103747) от 08.10.2024
+###  Публикация: 1760851   (103091) от 18.11.2024
 
-Coldplay - Moon Music (Full Moon Edition) (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+Оленев Илья - 2 Albums, 1 Single (2019-2024) [FLAC|Lossless|WEB-DL|tracks] <Авторская песня>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD-1:
-01 - MOON MUSiC [4:37]
-02 - feelslikeimfallinginlove [3:57]
-03 - WE PRAY [3:54](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:19:08
+01. Интро [00:01:24]
+02. Молоко [00:03:54]
+03. Не печалься, отец [00:02:11]
+04. Отцу [00:03:26](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 3 CD, 01:19:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D0C6D8060B5C80E1DF963D5D84AEB005381A178
+magnet:?xt=urn:btih:72CFCD0798F4D662B14AFC4388859D379DAEA6B0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754040   (103748) от 08.10.2024
+###  Публикация: 1761153   (103092) от 18.11.2024
 
-Л.Э. Генденштейн, А.А. Булатова и др. | Физика. Учебник для 11 класса (базовый уровень) (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Линия учебных изданий для среднего общего образования ориентирована на обучение решению задач. Параграфы представляют собой канву сценариев уроков, реализующих системно-деятельностный подход к обучению: тщательно подобранные задания погружены не-посредственно в теорию. В 10-м классе изложены темы: кинематика, динамика, законы сохранения в механике, статика и гидростатика, (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94AD048F48CEC91DD7AFA0214EDCF835F96CF2AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753931   (103749) от 08.10.2024
-
-Aphex Twin - Selected Ambient Works Volume II (2024) Expanded Edition, 2024, Warp Records [FLAC 24/44,1|Lossless|WEB-DL|tracks] <Breaks, Techno, Abstract>
+Major Lazer - Guns Don't Kill People... Lazers Do (2009) 15th Anniversary Edition, 2024, Mad Decent [FLAC|Lossless|WEB-DL|tracks] <Electronic, Hip Hop, Reggae, Dub>
 
 >>Electronic
->>IDM (Lossless)
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103092.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – #1
-02 – #2
-03 – #3
-04 – #4(   Читать дальше...   )Жанр: Breaks, Techno, AbstractПродолжительность: 03:04:42
+01. Hold The Line [00:03:39]
+02. When You Hear The Bassline [00:03:18]
+03. Can't Stop Now [00:04:03]
+04. Lazer Theme [00:02:32](   Читать дальше...   )Жанр: Electronic, Hip Hop, Reggae, DubПродолжительность: 00:55:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE84759F63BAE14740C5836588F3A5A1A8D7ECF0
+magnet:?xt=urn:btih:DB5BF128270ACF1EFB88BA5646DD913098C841F0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754145   (103750) от 08.10.2024
+###  Публикация: 1761058   (103093) от 18.11.2024
 
-Журнал | Живу с диабетом №10 (70) (октябрь 2024) [PDF]
+Сергей Воропаев - 3 Albums (2023-2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Наше лето [00:04:58]
+02. Моя [00:03:34]
+03. My Lady [00:03:47]
+04. Пташка [00:03:37](   Читать дальше...   )Жанр: PopПродолжительность: 3 CD, 01:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBA27CD5329AE916D53663AB2DEC70BAC80A5D07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761139   (103094) от 18.11.2024
+
+Газета | Народный совет №45 (29 октября 2024) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Живу с диабетом» - уникальное издание, посвященное сахарному диабету. Это одно из наиболее распространенных и серьезных заболеваний эндокринной системы человека, требующее повышенного внимания больного к своему здоровью. Консультанты издания готовы ответить на самые сложные вопросы, связанные с этой проблемой, а также рассказать о самых передовых методиках (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C55416409C7BF1C2096BEC3E78B714DBEB737667
+magnet:?xt=urn:btih:614BC59821402ADE41769A1A3FDE83446CAFBD18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761245   (103095) от 18.11.2024
+
+Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной Церкви | Патерик для детей [2 тома] (2018) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание, предлагаемое вниманию благочестивого читателя, рассказывает о жизни и подвигах святых монахов древности. Мы узнаем, как они возрастали в любви к Богу и ближним, жертвовали собой ради других, молились в пустынях и глубоких пещерах за весь мир.
+
+Книги богато иллюстрированы и могут стать замечательным наставлением в вере и надежде на Бога, любви и самопожертвовании (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3BB3C9C9511874F944C86886C12DB11300AEC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761232   (103096) от 18.11.2024
+
+Denzel Curry - KING OF THE MISCHIEVOUS SOUTH (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Rap, Underground Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KOTMS II INTRO (0:32)
+02. ULTRA SHXT (3:17)
+03. SET IT (2:40)
+04. HOT ONE (2:45)(   Читать дальше...   )Жанр: Hip-Hop, Rap, Underground Hip-HopПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A21E99675CE49ED6548707B2BDA26FF43E860EA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761130   (103097) от 18.11.2024
+
+Тень сомнения / Shadow of a Doubt (1943) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильм основан на реальной истории серийного душителя 1920-х годов Эрла Леонарда Нельсона... Жизнь тихого пригорода медленно разлагается из-за убийств и обманов. Чарли рада приезду дяди, которого тоже зовут Чарли. Вскоре она начинает подозревать, что её уважаемый дядюшка на самом деле серийный убийца и не знает, как примирить любовь и страх. Догадываясь о её (   Читать дальше...   )Производство: США / Skirball Productions, Universal PicturesЖанр: нуар, драма, детективРежиссер: Альфред ХичкокАктеры: Тереза Райт, Генри Треверс, Джозеф Коттен, МакДональд Кэри, Патрисия Коллиндж, Хьюм Кронин, Уоллес Форд, Эдна Мэй Уонэкотт, Чарльз Бейтс, Ирвинг Бэйкон, Кларенс Мьюз, Джанет Шоу, Эстелль Джуэлл, Билл Бейтс, Вирджиния БриссакПеревод: дублированный, профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские (надписи; Blu-Ray; SomeWax), английскиеПродолжительность: 01:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08AE68591209353B3BD74635540E5C564D950CA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761046   (103098) от 17.11.2024
+
+Satyrian - The Dark Gift (2007) [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invictus (Master of Fate ReMix) Remix by The Dreamside
+02. The Dark Gift (The Lygophilia ReMix) Remix by The Dreamside
+03. Eternitas (Infinite Synthesis) Remix by TmV (The Shade Factory)
+04. Fall from Grace (The Fallen Remix) Remix by Orkki (SinMasters)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78592767348756494839A3039206E8A9B7009A9D
 ```
 
 

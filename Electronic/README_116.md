@@ -1,3 +1,57 @@
+###  Публикация: 1593096   (181713) от 25.11.2022
+
+VA - Beautiful Vocal Trance - Chapter 10 (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Costa - My Own Way (4:01)
+02. Costa - I See His Eyes (4:17)
+03. Raz Nitzan - Called By A Whisper (4:20)
+04. Raz Nitzan - Unconditional (3:52)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B598F262A052B7930E864959D187925D4D3ADDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593062   (181763) от 25.11.2022
+
+VA - Ministry of Sound - The Annual 2023 (2022) [MP3|320 Kbps] <Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eliza Rose & Interplanetary Criminal - B.O.T.A. (Baddest Of Them All) (Edit)
+02. LF System, Silk - Afraid To Feel
+03. Alok x Ella Eyre x Kenny Dope feat. Never Dull - Deep Down
+04. Nathan Dawe - 21 Reasons (feat. Ella Henderson)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5979E3DCC7BEC52200AFC1179076425E88B20E1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592883   (181777) от 25.11.2022
 
 VA - 100% Club Hits 2023 (2022) [MP3|320 Kbps] <Electro, House>
@@ -634,60 +688,6 @@ VA - House Clubhits 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4D4EFD9CB7917B66309338E84B4BEA73772C271
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427424   (183390) от 28.11.2020
-
-VA - A State Of Trance - Future Favorite - Best Of 2020 - (Extended Versions) (2020) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Avira feat. Be No Rain - Hollow (Extended Mix)
-02. System F - Out Of The Blue (Ilan Bluestone Extended Remix)
-03. Aly & Fila feat. Plumb - Somebody Loves You (Extended Mix)
-04. Andrew Rayel & Robbie Seed feat. That Girl - Stars Collide (Aimoon Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 03:07:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03AC5183C2286860BC519933E1EE1A84296381E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591811   (183680) от 22.11.2022
-
-VA - Trance: The Vocal Session 2023 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183680.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Talla 2XLC & Alexandra Badoi - Revive My Light (Extended Mix) (7:42)
-02. Armin van Buuren & Gareth Emery feat. Owl City - Forever & Always (Extended Mix) (6:52)
-03. Cosmic Gate & Diana Miro - Hear Me Out (Extended Mix) (7:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B86F8588B22A202738EE32AD51D46235A899A03A
 ```
 
 

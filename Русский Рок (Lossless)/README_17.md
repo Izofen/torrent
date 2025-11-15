@@ -1,3 +1,111 @@
+###  Публикация: 1686317   (126423) от 23.12.2023
+
+The Must Die - Праздники прошли... (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Куда уходят мечты [00:04:08]
+02. Зима [00:04:44]
+03. Новый день [00:02:58]
+04. Следующим будешь ты [00:05:43](   Читать дальше...   )Жанр: RockПродолжительность: 00:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D417C96B58FA9E915597CA35319D22EE5A720D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686277   (126590) от 22.12.2023
+
+Animal ДжаZ - Корни (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Никогда
+02. Оранжевый Дао
+03. Лёд.жесть
+04. Уходишь(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B382784E870DE950E1E1D48439E1B9841A5820EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686136   (126592) от 22.12.2023
+
+Томшин Бэнд - Калинов мост (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Человек [00:03:57]
+02. Калинов мост [00:04:12]
+03. Нелюди [00:03:14]
+04. Полный бак бензина [00:03:32](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228F27E3DE3085B0568BB227CA6FEF1CC488194D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686198   (126598) от 22.12.2023
+
+Ангел-Хранитель - Неизданное, Том 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Horror Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Книга лешего (Live) [00:05:00]
+02. Эксперимент [00:04:58]
+03. Гокстадский корабль (Live) [00:06:31]
+04. Его прозвали Людоед [00:04:34](   Читать дальше...   )Жанр: Heavy Metal, Horror MetalПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66AE8F936655C9846BE0A625BE86FF3655E56A43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686129   (126602) от 22.12.2023
 
 Albert - Береговое братство (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
@@ -587,114 +695,6 @@ magnet:?xt=urn:btih:4BBF7E7519CADCD05C40238E69A3BAEB48A61472
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBD23DA7BEA95FA43AE95FEF640414FD4091E374
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684967   (127398) от 17.12.2023
-
-Аэлита - Здесь и сейчас (2023) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Post Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Засыпан город [00:02:37]
-02. Я смотрю в окно [00:02:49]
-03. Не весна [00:03:04]
-04. Грустно [00:03:40](   Читать дальше...   )Жанр: New Wave, Post PunkПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5BFCC3384077AA232166BADF74D0FC07C433BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684615   (127544) от 16.12.2023
-
-Olshanoe - What a Great and Sad World It Is (2023) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Folk Metal, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Winter Р-254 7:19
-02 Flax 6:29
-03 Lament Of Nau 6:26
-04 The Last Summer Of Childhood 5:15(   Читать дальше...   )Жанр: Atmospheric Black Metal, Folk Metal, AmbientПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D78BC00903676D08D8A971B8DAF42492AADE7F9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684650   (127562) от 16.12.2023
-
-Смерш - ... (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Гражданская	04:13
-02.	День победы	03:31
-03.	Два народа	04:21
-04.	Примирение	04:50(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2139E226B67A1529D1A1F15DFBD1D7B601F3419C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684754   (127568) от 16.12.2023
-
-Casual - #Не_Умру_По_Утру (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127568.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вниз
-2. Все дороги ведут...
-3. Ничего не жаль (feat. Оркестр «Градский Hall»)
-4. Прощай(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE5F9C88FE58C026AE9088A11A5E444C4E8F282
 ```
 
 

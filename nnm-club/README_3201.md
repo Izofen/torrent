@@ -1,664 +1,687 @@
-###  Публикация: 1756061   (103567) от 19.10.2024
+###  Публикация: 1762345   (102917) от 25.11.2024
 
-Stephan Georg - Blood Of The Witches (2024) [MP3|320 Kbps] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкий гитарист Штефан Георг (Stephan Georg), известный по мелодик-рок-группам TIGHT и SECRET FIRE, выпустит новый сольный альбом "Blood Of The Witches" 19 октября. Все песни на этом альбоме исполняют девушки - Лив Син (Liv Sin, SISTER SIN), Лаура Гулдемунд (Laura Guldemund, BURNING WITCHES), Джейми Бекхэм (Jamie Beckham, VIOLET), Свенья Романн (Svenja (   Читать дальше...   )01 - Blood Of The Witches (03:52)
- 02 - The Nighthawk (04:31)
- 03 - Nothing Goes Unpunished (04:26)
- 04 - When Love Goes Wrong (04:07)(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9AE7B327E8A81D20A0F36EBA1EA44DED45E57C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756024   (103568) от 19.10.2024
-
-Димитрий Ростовский | Жития святых. Месяц декабрь (2023) [MP3, Л. Лепшина]
-
->>Обучающие аудиоматериалы
->>Религия (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жития святых издавна были основным содержанием Миней-Четьих - произведений русской церковно-исторической и духовно-учительной литературы. Повествования о жизни святых Православной Церкви излагаются в Минеях-Четьих по порядку месяцев и дней каждого месяца. Из четырех известных сочинений такого рода Минеи-Четьи Св. Димитрия Ростовского, написанные на церковно-славянском (   Читать дальше...   )Жанр: ПравославиеИздательство: Неофициальное изданиеПродолжительность: 28:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB4F2DEC9441CA7A802CC0B0986858CE4A52782
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756077   (103569) от 19.10.2024
-
-Photo Lab PRO v3.13.32 Mod by Mixroot [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 18.10.2024Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD969188C42CDE6EC3806B49A4B8B832969DAAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756078   (103570) от 19.10.2024
-
-SnapEdit - AI photo editor v7.1.3 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103570.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 17.10.2024Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C7F63A2685DD771DF4A31ADB5723D31A4FAE57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756083   (103571) от 19.10.2024
-
-Поворот дверной ручки / Retour de manivelle (1957) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сценарий фильма по роману "Всегда есть ценник" 1956 года Джеймса Хэдли Чейза... Робер Монтильон, молодой человек без определенных занятий, попадает в богатый дом финансиста. Хозяйка дома Элен, загадочная красавица, очень быстро покоряет Робера. Столь же быстро её муж кончает жизнь самоубийством, что зачёркивает планы Элен на получение большой страховки. (   Читать дальше...   )Производство: Италия, Франция / Cinematografica Associati, Intermondia FilmsЖанр: драма, криминалРежиссер: Дени де Ла ПательерАктеры: Мишель Морган (I), Даниэль Желен, Мишель Мерсье, Франсуа Шометт, Бернар Блие, Петер ван Эйк, Пьер Лепру, Жан Оливье, Элен РуссельПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские (Lisok), английскиеПродолжительность: 01:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB611CEE8BB1D550E8B855B6F26C75AFD40F1A48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756079   (103572) от 19.10.2024
-
-Главная дорога (19.10.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поставили на учет чужой автомобиль: как мошенники продают чужие машины без документов?
- Как пройти проверку на алкоголь? Андрей Федорцов и Денис Юченков показали процедуру и вместе с экспертами программы рассказали, как нетрезвые остаются с правами и почему можно отказаться от освидетельствования на состояние опьянения без последствий.
-Чем медицинское освидетельствование (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E01FA540216239465BC37A9D309847EF10EB3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755969   (103573) от 18.10.2024
-
-Veonity - The Final Element (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+The Minus 5 - Down With Wilco: A Tragedy In Three Halfs (2003) [FLAC|Lossless|tracks + .cue] <Rock. Indie Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102917.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Premonition
-02. Chains of Tyranny
-03. Horsemen of the Dark
-04. Carry On(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:34
+01. The Days of Wine and Booze (3:42)
+02. Retrieval of You (3:51)
+03. That's Not the Way That It's Done (3:29)
+04. The Town That Lost Its Groove Supply (2:35)(   Читать дальше...   )Жанр: Rock. Indie Rock, Alternative RockПродолжительность: 00:42:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF81D596D66CC7E2A53DE5ADE3A22DBE599730FF
+magnet:?xt=urn:btih:BD0D8C0B4D9B792B4539920CECFD6FB6E7C83E7D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755803   (103574) от 18.10.2024
+###  Публикация: 1762437   (102918) от 25.11.2024
 
-Health - Rat Wars (2023) Ultra Edition, 2024,  Loma Vista Recordings [FLAC 24/48|Lossless|WEB-DL|tracks] <Experimental, Alternative, Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demigods [00:05:41]
-02. Future of hell [00:02:32]
-03. Hateful [00:04:08]
-04. (of all else) [00:02:30](   Читать дальше...   )Жанр: Experimental, Alternative, IndieПродолжительность: 00:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66E1244A287496371E818C3B5F3F06C7D5B2D8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755790   (103575) от 18.10.2024
-
-Бродяги / Lumpacivagabundus (1912) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодого плотника выгоняет работодатель за то, что парень ухлестывет за его дочкой. И пошел паренек солнцем палимый по дороге бедствий. Ни жилья, ни работы - беда. По дороге познакомился с двумя такими же бедолагами, по сути бродягами. И завязалась у них дружба, крепкая как напитки, возлиянием которых они скрепили знакомство. Но и таким чудакам судьба преподносит (   Читать дальше...   )Производство: Дания / Filmfabrikken SkandinavienЖанр: короткометражный, комедия, немое киноРежиссер: нет сведенийАктеры: Alfred Arnbak, Ааге Брандт, Эмма Кристиансен, Арнольд Дженсен, Герхард Йессен, Альма Лагони, Берта Линдгрен, Ёрген Лунд, Fru Lønssman, Charles LøwaasПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F869193754AFC8832BEE9990FC8E780FC8BA29CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755719   (103576) от 18.10.2024
-
-Widespread Panic - Warfield 2000 #4 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Rock, Alternative Rock, Blues Rock, Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Joe (Live) [00:04:12]
-02. Driving Song (Live) [00:04:42]
-03. Pilgrims (Live) [00:09:12]
-04. Party at Your Mama's House (Live) [00:11:18](   Читать дальше...   )Жанр: Southern Rock, Alternative Rock, Blues Rock, Country RockПродолжительность: 03:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E766A3542EFDE4760BB70CD215919283CF879F8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755912   (103577) от 18.10.2024
-
-DGM - Endless (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итальянские мастера прогрессив-метала DGM с радостью объявляют о выходе своего нового студийного альбома “Endless”, который выйдет 18 октября 2024 года на лейбле Frontiers Music Srl.
-Гитарист Симоне Муларони (Simone Mularoni), комментируя новую пластинку, сказал: “Endless” - это первый по-настоящему концептуальный альбом группы. И это также первый альбом DGM, который (   Читать дальше...   )01. Promises (5:17)
-02. The Great Unknown (7:03)
-03. The Wake (7:30)
-04. Solitude (5:28)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21444571B8FAF18E20B871D65D25B8AF8B1F791C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755561   (103578) от 18.10.2024
-
-Erskine Hawkins - 1941 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing>
+Teddy Wilson - Gentleman Of Keyboard (1934 - 1957) 1990, Giants Of Jazz [FLAC|Lossless|image + .cue] <Swing, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102918.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wrap Your Troubles in Dreams [3:20]
-02. Don't Cry Baby [3:21]
-03. Bicycle Bounce [3:24]
-04. Lucky Seven (Bill's Tune) [2:59](   Читать дальше...   )Жанр: SwingПродолжительность: 01:03:34
+01. Somebody Loves Me [2:54]
+02. I'm Painting The Town Red [2:57]
+03. All My Life [3:11]
+04. Why Do I Lie To Myself About You? [3:03](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:13:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B4AF070D25D104057F77F2897B5504A50E8874A
+magnet:?xt=urn:btih:FF819BB43D3047C22D58F0360DE7333C0903762F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755924   (103579) от 18.10.2024
+###  Публикация: 1762164   (102919) от 24.11.2024
 
-НХЛ 2024-2025. Даллас Старз - Вашингтон Кэпиталз (17.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+НХЛ 2024-2025. Виннипег Джетс - Питтсбург Пингвинз (22.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102919.jpg" />
 </div>
 
 
 ###  Подробнее
 
-18 октября 2024, пятница. 02:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 17 034 зрителя (92% при вместимости 18 573)
-Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Джастин Кеа (Вудвиль, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:06:52
+23 ноября 2024, суббота. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 15 232 зрителя (82% при вместимости 18 673)
+Главный судья: Кори Сиврет (Милгров, Канада); Главный судья: Брэндон Бландина (Сентенниал, США); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада); Линейный: Дэвид Брисбуа (Садбери, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:43:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6E4027FB327C55FD66034C5BA396515744B12DB
+magnet:?xt=urn:btih:39D0A924F557320CEE2F4EC68AE8F83CAE47576F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755871   (103580) от 18.10.2024
+###  Публикация: 1762067   (102920) от 24.11.2024
 
-u-he - ColourCopy 1.0.2 VST, VST 3, AAX (x86/x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виртуальный аналоговый эффект, вдохновленный классическими дилеями Bucket-Brigade (BBD), но расширенный современными функциями. Мы назвали наше новое детище "Colour Copy", потому что оно может обеспечить тот тип окраски, который люди все еще любят в классических устройствах BBD, но с более широким диапазоном окраса. Colour Copy начал свою жизнь как небольшое (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49329C1F8FC7898C2417D3A124D12F2FDA03BE87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755889   (103581) от 18.10.2024
-
-Архимандрит Андрей Конанос | Кислород души. Беседы о молитве (2019) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103581.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом сборнике собраны беседы известного греческого проповедника архимандрита Андрея (Конаноса) о молитве, о ее значении в жизни каждого, о необходимости выстраивания личных отношений с Богом, о том, без чего не может существовать ни одна христианская душа.Жанр: ПравославиеИздательство: Сретенский монастырьФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134E0361BCFE276935ACD388D94B6EDEBF8A9A6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755687   (103582) от 18.10.2024
-
-DGM - Endless (2024) [MP3|320 Kbps] <Progressive Metal, Heavy Prog>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Promises (5:17)
-02. The Great Unknown (7:03)
-03. The Wake (7:30)
-04. Solitude (5:28)(   Читать дальше...   )Жанр: Progressive Metal, Heavy ProgПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A39474B655A9229475F8D42B0B55946DC66DEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755847   (103583) от 18.10.2024
-
-Твин Пикс - Что ты делаешь на крыше среди ночи (2024) [MP3|320 Kbps] <Post Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103583.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Письмо
-2. Позабытые детства друзья
-3. Королева аптеки
-4. Последний автобус(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F764C501B00E02F7696E162020127B1F5E1F05CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755849   (103584) от 18.10.2024
-
-Твин Пикс - Что ты делаешь на крыше среди ночи (2024) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103584.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Письмо
-2. Позабытые детства друзья
-3. Королева аптеки
-4. Последний автобус(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAA04E8A3A4AA1A8A8FCB91C05D0C35AC3FFF53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755856   (103585) от 18.10.2024
-
-Aries Descendant - From The Ashes Of Deceit (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+Mellowtoy - Lies (2015) [FLAC|Lossless|image + .cue] <Metalcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. From the Ashes of Deceit (1:47)
-02. Aflame the Cold (4:48)
-03. Oblivion (5:18)
-04. Symphony of Demise (4:17)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:56
+01. Nitro Dk 00:58
+02. Lies 03:48
+03. Visions 04:15
+04. Destroy Yourself 03:33(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:41:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F9A0FD06F5673ACF644D851E5B3EB5F67E0DE67
+magnet:?xt=urn:btih:ABC5EA37985F534427E2ADE4439072597233842A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755878   (103586) от 18.10.2024
+###  Публикация: 1762199   (102921) от 24.11.2024
 
-Журнал | Дачный сезон №10 (октябрь 2024) [PDF]
+НХЛ 2024-2025. Юта - Питтсбург Пингвинз (23.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Журналы
->>Домоводство (журналы)
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+24 ноября 2024, воскресенье. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 16 324 зрителя (87% при вместимости 18 673)
+Главный судья: Крис Ли (Сейнт Джон, Канада); Главный судья: Кори Сиврет (Милгров, Канада); Линейный: Килиан МакНамара (Лейк Уорт, США); Линейный: Девин Берг (Китченер, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:02:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A67FFA86E5FAEBBF97407B04225220E36D353FA8
+magnet:?xt=urn:btih:B2E6ACEA3457F1F6326D1464CB186D180E33BC4F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755888   (103587) от 18.10.2024
+###  Публикация: 1762328   (102922) от 24.11.2024
 
-Сатисъ | Молитвы за детей (2010) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глубокий знаток духовной жизни – святой Исаак Сирин основным условием для успеха всякого дела человека считал следующее: «всякую вещь, малую и великую, должно ему в молитве испрашивать себе у Создателя своего».
-
-Итак, первым условием воспитания детей является усиленная молитва о них родителей. А если чувствуем слабость и невнимательность нашей молитвы, то, по учению (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3020007AFC53F718F10F687C0680AB9C9F1104E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755910   (103588) от 18.10.2024
-
-Символик | Батюшки Амвросия наследник. Священноисповедник Георгий Коссов (2023) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Священноисповедник протоиерей Георгий Коссов был обычным семейным священником, которого послали служить на нищий приход Болховского района Орловской области. Но, пройдя через многие испытания и искушения, он обрёл огромную духовную силу и стал всенародно любимым старцем, слава о котором ещё при его жизни распространилась далеко за пределы Орловской земли. Не зря (   Читать дальше...   )Жанр: ПравославиеИздательство: СимволикФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908EB6FE5D3507ACE43C3A05FFF10B801C2C4A06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755927   (103589) от 18.10.2024
-
-Fate - Reconnect N' Ignite (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Thargos - Killfukk (2003) [FLAC|Lossless|image + .cue] <Thrash Metal, Black Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Around The Sun
-02. Reason For Everything
-03. This Won’t Last
-04. I’m On Fire(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:00
+01. Funeral in GreenЖанр: Thrash Metal, Black MetalПродолжительность: 00:39:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1AD0324F733B85E744E7551D1A1FE7A49E51055
+magnet:?xt=urn:btih:F1CA626D620975E41510E1823CB4274AB8084F5C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755891   (103590) от 18.10.2024
+###  Публикация: 1761972   (102923) от 24.11.2024
 
-Олег Казаков | Откажись от мести. Мысли христианина (2002) [PDF, FB2, EPUB, MOBI, TXT]
+R.O.D. - Death For All (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В брошюре рассказывается о христианском отношении к мести; прилагается Акафист Божией Матери перед иконой ее, именуемой «Умягчение злых сердец».Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+01. Intro (instrumental) 01:03
+02. Choice 01:32
+03. Сука блядь 02:48
+04. Fatal Mistake 03:10(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:25:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63A5CA9B74406789A0AE2A9B53A46F0CF5E23212
+magnet:?xt=urn:btih:A50607846548183DDBFE25D4F8BD52DA5E96B329
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755915   (103591) от 18.10.2024
+###  Публикация: 1762070   (102924) от 24.11.2024
 
-Наталья Иртенина | Святая новомученица Татиана Гримблит (2016) [PDF, FB2, EPUB, MOBI, TXT]
+Sacramental Sachem - Recrucifiction (1995) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Документально-художественное повествование знакомит читателя с судьбой Татьяны Гримблит (1903–1937), подвижницы милосердия и святой новомученицы, избравшей в самые страшные годы нашей истории путь христианского служения людям – тем, кто, как и она сама, был неугоден советской власти. Помимо фактической канвы биографии в книге рисуется внутренняя жизнь подвижницы (   Читать дальше...   )Жанр: ПравославиеИздательство: СимволикФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+01. Pure & Simple (9:53)
+02. Feed My Hate (7:50)
+03. Bloody Cages (8:18)
+04. Recrucifiction (7:16)(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:56:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:165262D8CF8D35539560556A74019964A63B6644
+magnet:?xt=urn:btih:9A65F88ED4EFA00B89BBA556147FA9FC082D0F9D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755741   (103592) от 18.10.2024
+###  Публикация: 1762057   (102925) от 24.11.2024
 
-Agoria - Unshadow (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Techno>
+Ocean Chief & Runemagick - The Northern Lights (2007) Split [FLAC|Lossless|image + .cue] <Doom Death Metal>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102925.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Teardrops (Don't Stop The Music) [00:03:40]
-02. Heart to Heart [00:03:22]
-03. Getaway [00:04:46]
-04. Olympe [00:03:13](   Читать дальше...   )Жанр: Progressive House, Deep House, TechnoПродолжительность: 00:41:22
+01. Ocean Chief - Gathering Souls (28:10)
+02. Runemagick - Bound in Magick Haze (9:39)
+03. Runemagick - Chthonic Temple Smoke (10:13)Жанр: Doom Death MetalПродолжительность: 00:48:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F03622CF4CA1327CBE681DBDEB49BBA78BC55546
+magnet:?xt=urn:btih:65A5B794DE227696D4DFF88F6AC7DAFC53E3E822
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762060   (102926) от 24.11.2024
+
+Pero Defformero - Undergrand (2009) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Došli smo do kraja puta (3:21)
+02. Silvana (4:35)
+03. Gotičarka (4:44)
+04. Ferrari (3:47)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37219FA72C6712C09C53E2C2731E7DBB5CCB66FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761975   (102927) от 24.11.2024
+
+Trinakrius - Massacro (2010) [FLAC|Lossless|image + .cue] <Power Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massacro 03:18
+02. La morte del mondo 05:40
+03. ...e vivere sarà 04:45
+04. Come stai 05:03(   Читать дальше...   )Жанр: Power Doom MetalПродолжительность: 01:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58537228EADAE0AE8740514825D7CCF483FB8E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761995   (102928) от 24.11.2024
+
+Malediction - Reductio ad Absurdum (2008) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reductio ad AbsurdumЖанр: Death MetalПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6050514A8EC1E5E6AAC5D6FA2B96384F07FF9C15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761992   (102929) от 24.11.2024
+
+Veins - Innocence (2017) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Animula Vagula Blandula 00:33
+02. Pt. 1 03:19
+03. Until Dawn 04:42
+04. Reflections 03:57(   Читать дальше...   )Жанр: Death Metal, Thrash Metal, Groove MetalПродолжительность: 00:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6243E1618688D04213A3A949B6CCCB998893ACA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762193   (102930) от 24.11.2024
+
+НХЛ 2024-2025. Нью-Джерси Дэвилз - Вашингтон Кэпиталз (23.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102930.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 ноября 2024, воскресенье. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Фурман Саут (Сьюикли, США); Линейный: Дэн Келли (США); Линейный: Дерек Нансен (Оттава, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67731E1EC733D4136427609EE92646B8FCBEEB22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762021   (102931) от 24.11.2024
+
+Famishgod - Roots Of Darkness (2016) [FLAC|Lossless|image + .cue] <Doom Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abyss of the Underworld (7:40)
+02. Bad Omen (9:18)
+03. Molested, Defiled, Disrupted (9:47)
+04. Chamber of Chaos (8:12)(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1294B14A5A48AEE134D37EC49F2B5A8D84EAD1AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762322   (102932) от 24.11.2024
+
+Castle - Castle (1994) [FLAC|Lossless|image + .cue] <Doom Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The 7th Empire (4:50)
+02. The Emperor's Children (4:01)
+03. Alter Reality (7:07)
+04. Exposed (9:41)(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338E7D3EC93FAA5D9DF0FD2FC14437BF7F21DB02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761942   (102933) от 24.11.2024
+
+Supergrass - Life on Other Planets 2003 (2003) [FLAC|Lossless|tracks + .cue] <Pop Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Za (3:05)
+02. Rush Hour Soul (2:55)
+03. Seen the Light (2:26)
+04. Brecon Beacons (2:56)(   Читать дальше...   )Жанр: Pop Rock, Alternative RockПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9718C2F5986ED8A330F3E11208C29B0FD29EF8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762169   (102934) от 24.11.2024
+
+Stu Williamson - Stu Williamson Plays (1956) 1989, Fresh Sound [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lady Is a Tramp [4:16]
+02. Stu's Due Blues [5:42]
+03. The Things We Did Last Summer [2:52]
+04. Yardbird Suite [3:52](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, CoolПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:105F1E39D0D4A3FFFF0438419D8DE780577A973D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762059   (102935) от 24.11.2024
+
+Teddy Wilson - 1947 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sheik Of Araby [2:39]
+02. Limehouse Blues [2:54]
+03. After You've Gone [2:41]
+04. Georgia On My Mind [3:09](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F1A160DD29FB9D0E21ECBF7ABCF2F8A47F3D0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762269   (102936) от 24.11.2024
+
+The End - Within Dividia (2004) Deluxe Edition, 2024, Relapse Records[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Math Rock, Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. These Walls (2024 Remaster) [00:04:41]
+02. Fetesque (2024 Remaster) [00:03:55]
+03. The Sense of Reverence (2024 Remaster) [00:03:04]
+04. The Scent 0f Elegance (2024 Remaster) [00:03:13](   Читать дальше...   )Жанр: Math Rock, HardcoreПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C76C9C16317C63D2D24897B29A395672887E23E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762109   (102937) от 24.11.2024
+
+Zombie Death Stench - Here I Die... Zombified (2007) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quietus 01:26
+02. The Fog 03:43
+03. Death 1 04:56
+04. Dessicate 05:04(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F91F2190585CD62B44224C7A15FF0E9974E8B59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762329   (102938) от 24.11.2024
+
+Venduzor - Covered By The Blood (2010) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning in Hell 05:42
+02. Covered by the Blood 05:59
+03. Hidup Penuh Penindasan 04:59
+04. Rotten Dead Bodies 05:44(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA69C85A7C10B1A4419405E71D71B6585E985A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762074   (102939) от 24.11.2024
+
+Shardless - Fairytales... Out Of The Dark (2008) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thrust
+02. Through the Stars
+03. Fairytales... Out of the Dark
+04. Black Empire(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13387DBF837EDF868D3C45A61C227710734190CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762051   (102940) от 24.11.2024
+
+Master's Hammer - (Slagry) Šlágry (1995) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Šavlový tanec 03:28 instrumental
+02. Ach, synku, synku 07:54
+03. Půjdem spolu do Betléma 03:41
+04. Indiánská píseň hrůzy 05:17(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6595FEAB70050B34B6F0A9E9BA5CACE54F0A438
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762108   (102941) от 24.11.2024
+
+Fleshbomb - Reincarnated In Abomination (2014) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude to Demolition (Intro) instrumental 00:50
+02. Compulsive Clitoridectomy 03:34
+03. Reincarnated in Abomination 03:03
+04. Abdominal Self-Mutilation 03:07(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111984B0B436428D45DD014E6BB5522FBAFDD05C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762072   (102942) от 24.11.2024
+
+Seven Tears - In Every Frozen Tear (2007) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twist Of Fate
+02. Faded Memory
+03. Hollow Ground
+04. Reflections(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53C2EB5F98A035AEC5BD9C04134D955FCFD7492
 ```
 
 

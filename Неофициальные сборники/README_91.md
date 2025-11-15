@@ -1,3 +1,30 @@
+###  Публикация: 1194253   (157952) от 24.12.2017
+
+VA - Sunstate Trance (2017) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157952.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Genix - 6 AM Saint
+002. Laura May - Acid Orchestra
+003. Monoverse - Aftermath (Extended Mix)
+004. Rafael Osmo - Airtight(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 08:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C9CEEF736B0F7A69745F25EE6DBE180F2C75A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433328   (158080) от 20.12.2020
 
 VA - The 100 Best Songs of 2020 by APPLE MUSIC [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Trance In Motion Vol.366 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE9D396D1920688A6F55E9D2D50882BA18E5005D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676169   (158943) от 12.11.2023
-
-VA - Trance In Motion Vol.365 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allende - Horizon Painter (Original Mix)
-02. Myon - Albion (Pavel Khvaleev Extended Remix)
-03. Ron with Leeds - Obsidian (Extended Mix)
-04. Sunlight Project - Darkstar (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15194472E83BCBDAECE8AAF20E7C7EE0B93F69B6
 ```
 
 

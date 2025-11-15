@@ -1,3 +1,57 @@
+###  Публикация: 1087255   (146987) от 27.12.2016
+
+VA - Sensual Lounge Stage Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrico Donner - Xonado por Voce 05:54
+02. Don Gorda Project - Feeling Free 05:43
+03. Cane Garden Quartet - Love Goddess 05:24
+04. Baghira - Put Your Arms 06:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0820B5ED03AB7969C7783E12777ADC73512E2DB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087212   (147006) от 27.12.2016
+
+VA - Winterbreath Vol.3 (Chilled Lounge Tunes For The Winter Season) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weathertunes - Destiny - Lemongrass Rmx (03:27)
+02. Jens Buchert - Aztec (04:47)
+03. Lazy Hammock - Nothing Is Stopping Me (04:34)
+04. Big Al - Miracle (04:46)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84534B4F2A7B8654254348015D0BB0BC23AB0F1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272029   (147039) от 25.12.2018
 
 Morcheeba - The Best Of Morcheeba 1995-2003 (2011) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Trip-Hop, Downtempo>
@@ -640,60 +694,6 @@ Pylot - Axiom (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, retrowave, synthpop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30F021FABDA5DCF081FC96C623E25C3915C183B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677908   (149210) от 19.11.2023
-
-Kollektiv Turmstrasse - Unity of Opposites (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Bass, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kollektiv Turmstrasse - Betwixt 1
-02. Kollektiv Turmstrasse - Distant Love
-03. Kollektiv Turmstrasse - When the Lights Go Lower
-04. Kollektiv Turmstrasse - Betwixt 2(   Читать дальше...   )Жанр: Tech House, Deep House, Bass, ProgressiveПродолжительность: 00:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90CC5BE157083BBBA69683B13CA70F36D762E6A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677682   (149248) от 19.11.2023
-
-VA - Amsterdam Music Festival, Johan Cruijff ArenA, ADE (2023-10-21) [MP3|320 Kbps] <Tech House, Melodic House, Hard Dance, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headhunterz - Guess Who's Back
-02. Yellow Claw & Juyen Sebulba - Do You Like Bass? (Headhunterz Edit)
-03. Joy Kitikonti - Joyenergizer (Dr. Rude Remix)
-04. Headhunterz - The Flame Inside(   Читать дальше...   )Жанр: Tech House, Melodic House, Hard Dance, TranceПродолжительность: 06:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047A47758A64AAE104C218E3C44AF4534244A86E
 ```
 
 

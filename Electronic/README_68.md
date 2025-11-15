@@ -1,3 +1,57 @@
+###  Публикация: 1724313   (109251) от 19.05.2024
+
+Soul Button - Phantom Existence (2020) Remix Edition [MP3|320 Kbps] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Utopia (Armen Miran Remix) [00:08:30]
+02 - Silhouettes (Clawz SG Remix) [00:07:14]
+03 - Shapeshifter (Matan Caspi Remix) [00:07:09]
+04 - Deception (Whirl Remix) [00:07:51](   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C189CBA31453324BBEDF4FA73171D8D834B9223B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724213   (109253) от 19.05.2024
+
+Soul Button - Phantom Existence (2020) Remix Edition [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Utopia (Armen Miran Remix) [00:08:30]
+02 - Silhouettes (Clawz SG Remix) [00:07:14]
+03 - Shapeshifter (Matan Caspi Remix) [00:07:09]
+04 - Deception (Whirl Remix) [00:07:51](   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7874996C24F941401ACF525F53D4600AC303CE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724230   (109267) от 19.05.2024
 
 Darren Tate - Metamorphosis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
@@ -636,60 +690,6 @@ Kris Baha - Cyber Body Music Vol.1 (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF016A4589666144D361E41B42CB4A30BCC1BD93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723503   (109465) от 16.05.2024
-
-VA - EDC Las Vegas 2024 (2024) [MP3|320 Kbps] <Trance, House, Melodic House & Techno, Dubstep, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto & Prophecy - My City (Original Mix) [3:19]
-02. Mau P - On Again (Original Mix) [6:47]
-03. SLANDER & Trivecta feat. Chris Howard - A Better World (Original Mix) [3:51]
-04. NGHTMRE & Liquid Stranger feat. Mougleta - Restless (Original Mix) [3:26](   Читать дальше...   )Жанр: Trance, House, Melodic House & Techno, Dubstep, ElectronicПродолжительность: 07:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250F2C51FA6767DED31AB052BF20044E6064743A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723424   (109466) от 16.05.2024
-
-VA - Epifania Part I-II (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Dance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karassimeon - Nightmare Disco (5:55)
-02. Cyda - Machine (6:43)
-03. Kevrolet - Let's Drance (5:07)
-04. Tallac - Pulsar (6:58)(   Читать дальше...   )Жанр: Trance, DanceПродолжительность: 01:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51670EAB3EF75A9D4B65A087924B9C71D67B7288
 ```
 
 

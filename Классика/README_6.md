@@ -1,3 +1,27 @@
+###  Публикация: 594868   (133043) от 27.12.2012
+
+VA- Wien, 1850 Dances - Strauss, Diabelli, Lanner: Michael Dittrich (1993) [FLAC|Lossless]<Classical, Chamber, Waltz, Polka, Galop, Landler>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, Romantic Period, Chamber Music/Recitals, Renaissance Period, Waltz, Operetta, Polka, Galop, Landler, MedleyПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F174617FDF56C2ADA8D468376E56408DA812A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594769   (133120) от 27.12.2012
 
 Шнитке - Concerto Grosso no. 1, Quasi una sonata, Moz-Art а la Haydn, A Paganini: Kremer, Gridenko, Smirnov, Schiff (2010) [FLAC|Lossless]<Classical, Modern, Avant-garde>
@@ -700,33 +724,6 @@ Galina Vishnevskaya, Mstislav Rostropovich/Галина Вишневская, М
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0D682CB6716ADEF6604A405AEF3B8F254683E9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434390   (150817) от 24.12.2020
-
-VA - Christmas With The Stars And The Royal Philharmonic Orchestra (2019) Jewelbox [FLAC|Lossless|tracks + .cue] <Classical, Romantic, Christmas>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150817.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Christmas with The Stars and The Royal Philharmonic Orchestra» заимствует лучшее от прошлого и настоящего Рождества. В альбом вошли 13 знаменательных и любимых композиций рождественского сезона от таких музыкальных кумиров, как Элвис Пресли, Тони Беннет, Дорис Дэй, Эрта Китт, Гарри Белафонте, Перри Комо, Джонни Мэтис, Дин Мартин, Рой Орбисон и Энди Уильям — и каждый (   Читать дальше...   )01. Elvis Presley & Royal Philharmonic Orchestra - Blue Christmas  (2:09)
-02. Tony Bennett & Royal Philharmonic Orchestra - Have Yourself a Merry Little Christmas  (3:21)
-03. Doris Day & Royal Philharmonic Orchestra - I'll Be Home for Christmas  (2:35)
-04. Perry Como & Royal Philharmonic Orchestra - It's Beginning to Look a Lot Like Christmas  (2:47)(   Читать дальше...   )Релиз состоялся: 29 ноября 2019 годаЖанр: Classical, Romantic, ChristmasПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25046305E7F726B678CA9DE708D73BF5F6A065CE
 ```
 
 

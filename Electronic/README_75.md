@@ -1,3 +1,57 @@
+###  Публикация: 1711125   (112534) от 29.03.2024
+
+VA - Armin van Buuren - A State Of Trance 1166 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Cosmic Gate & Christian Burns - Brave
+02.	Laura van Dam & Ginchy - Save Me (Progressive Pick)
+03.	Jaytech - Nebula
+04.	JODA - Spark (Jono Grant & Harry Diamond Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D765666157FC26788A482B8C352951BA136A9DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711347   (112548) от 29.03.2024
+
+VA - Deep-House Heaven, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi.5 - Out Of My Mind (Extended Mix) (04:18)
+02. Steen Thottrup & Denver Knoesen - Another Day (Anders Ponsaing Remix) (07:21)
+03. Living Room - Strand (Instrumental Mix) (04:29)
+04. Charly'n Black - Genève Rive Droite (03:44)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8CFA799A70E640F1A2512E258C8F755EDDCF11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710403   (112646) от 27.03.2024
 
 Cyber Space - Cyber Space Plays A Tribute To Hotsound (2011) [MP3|320 Kbps] <Spacesynth>
@@ -639,60 +693,6 @@ VA - Black Hole House Music 03-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE4B358D9966F48A6C9228F7EADA4BB4E1E45973
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706991   (113417) от 15.03.2024
-
-LAO - Chapultepec (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, Electro, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axolotl [00:06:49]
-02. Corriente de aire [00:01:59]
-03. Manantial [00:04:27]
-04. Alita [00:03:29](   Читать дальше...   )Жанр: House, Techno, Electro, MinimalПродолжительность: 01:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1E2904349CDCFE59C46ABA665F05A533925DD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706999   (113418) от 15.03.2024
-
-Irene Dresel - Rose Fluo (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, Electro, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fluo [00:09:03]
-02. Valkyrie [00:05:05]
-03. Moul [00:03:33]
-04. Glam [00:04:56](   Читать дальше...   )Жанр: House, Techno, Electro, MinimalПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416C98DD0002B9FCFA43A3621EB306A4F1032197
 ```
 
 

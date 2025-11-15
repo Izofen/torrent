@@ -1,3 +1,57 @@
+###  Публикация: 1595865   (174498) от 07.12.2022
+
+VA - Remix Rockets (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chantola, J-Junior -  Don't You Know (Hector Sawiak Remix)  (8:08)
+02.  Thorin -  Ancient Times (Chris M Progressive Mix)  (10:14)
+03.  21Street -  Mind Bender (Phony Orphants Remix)  (7:00)
+04.  Zas, Sanze, Mindgamers -  Soul To Soul (Fab Code Remix)  (7:24)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C1E855224D65601E2AAA84D2143D60B38BBEF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595632   (175051) от 06.12.2022
+
+Any Second - Enemies (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Futurepop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scalpel [00:04:19]
+02. I Shout [00:04:19]
+03. Dreamer [00:04:28]
+04. Me And My Enemy [00:04:48](   Читать дальше...   )Жанр: Dark Electro, EBM, FuturepopПродолжительность: 01:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9924EF3811F6A2A2B879AD3FB531B5A9E92D184D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335363   (175081) от 08.12.2020
 
 Globular - Untangled Everything (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Psydub, Psychill>
@@ -641,60 +695,6 @@ Michael Rother - Solo (2019) 5×CD, Compilation [FLAC|Lossless|tracks + .cue] <A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:287C7AC181F961E5875F79E482A1451709A7D17E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666064   (178929) от 05.10.2023
-
-Alexey Teplykh - Different Styles (2023) [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Simply the Best Hit [00:04:56]
-02 - Through the Flickering Stars [00:04:41]
-03 - From the Morning to the Dark [00:04:11]
-04 - Lonely Moon [00:03:53](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C833B48E9FD29EB0ED2EBA688F6178E9F23C1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593959   (179255) от 29.11.2022
-
-Michael Rother - Solo II (2020) 7 × CD, Box Set, Compilation [FLAC|Lossless|tracks + .cue] <Ambient, Krautrock>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179255.jpg" />
-</div>
-
-
-###  Подробнее
-
-1983 - Lust
-1985 - Suessherz und Tiefenschaerfe
-1987 - Traumreisen
-1996 - Esperanza(   Читать дальше...   )Жанр: Ambient, KrautrockПродолжительность: 05:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF4C868280CF2DFC4A3CDA6F397F3B824734113
 ```
 
 

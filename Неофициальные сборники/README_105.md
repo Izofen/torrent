@@ -1,3 +1,30 @@
+###  Публикация: 1657834   (191822) от 06.09.2023
+
+VA - Compilation rock, blues rock,  part 33 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bleu Jackson - Women, Whiskey, Guns and Knives
+02. Bleu Jackson - Some Never Learn
+03. Bleu Jackson - Breakdown
+04. Jay Owens - Wishing Well(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A59D8D8A2D0E29027021788B24ED2E75D40C2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548265   (191893) от 02.11.2022
 
 GAYAZOVS BROTHERS - Синглы и ремиксы (2015 - 2022) [MP3|320 Kbps] <Pop, Deep-House>
@@ -667,33 +694,6 @@ VA - Musical kaleidoscope part 59 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D28781B0E7DC8A2DDD34BA109AAEC49BD83A5FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828049   (193612) от 23.10.2025
-
-Jumanov - Favorites Collection (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Disorder
- 02 - Feel Fresh
- 03 - Action
- 04 - Remember Me(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECAB22AF683FC2BE4618C9DB069313E21C6FBF4
 ```
 
 

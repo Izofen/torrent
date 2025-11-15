@@ -1,3 +1,30 @@
+###  Публикация: 1824607   (162281) от 18.10.2025
+
+Reyvi - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Day
+ 02 - Stay Forever
+ 03 - Je Danse
+ 04 - You’re My Heart(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADBCBCA090EBABEA5F708620157AB990872F78F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517497   (162285) от 16.12.2021
 
 VA - National Pop Dance Music (Vol.28) (2021) [MP3|320 Kbps] <Pop, Dance, Schlager>
@@ -668,33 +695,6 @@ VA - Indigo Baby: Rap Theme Music (2020) [MP3|320 Kbps] <Rap, Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24B2DA537A4650F0F08C91721822FE72A93BDBBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432214   (164307) от 17.12.2020
-
-VA - Beatport Deep House: Electro Sound Pack #209 (2020) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микстейп клубных треков 209-го релиза от Beatport, соблюдённых в стилях дип хауса и тек хауса - это музыка для Вас! Музыка создаёт ощущение лёгкости и настроение грядущих праздников, на альбоме каждый трек несёт в себе глубокий заряд энергетики и несущих добро переживаний и с лёгкостью разрушает истину невозможности написать что-то оригинальное и интересное  в электронной (   Читать дальше...   )001. Fog - Knob Junktion
-002. Juliet Sikora & Ashibah - Pain In My Brain
-003. Jo Paciello - Goes Around Comes
-004. Cent0 & Tea Bag - Ocean (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6889CFA90D4A77FC0BA045FC65B248FB8D07D12F
 ```
 
 

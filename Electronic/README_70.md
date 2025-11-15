@@ -1,3 +1,57 @@
+###  Публикация: 1721268   (110072) от 06.05.2024
+
+VA - Autumn Flight, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Melodic House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniele Spezio - Tagliaerba (Extended Mix) (5:01)
+02. Dj Niky - L'arte Del Cassa Basso (5:36)
+03. LentoLEXX - Slow Rewind (Chaotic Disorder Mix) (3:59)
+04. Serafino Prosperi - Forgia Il Tuo Futuro (5:51)(   Читать дальше...   )Жанр: House, Melodic HouseПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C565C8858D4CAFF801546D54FB7E27377DA88D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721283   (110082) от 06.05.2024
+
+VA - Horizons (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Project - Synthwave Portal (4:13)
+02. Uncover & Iyes Keen - Control (Chapter One) (4:35)
+03. Simulakrum Lab - Roadblock (3:26)
+04. Luck Dragon - Hiss (4:37)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53EA56E6D15B7EF53074D786CE1AC7348D13D704
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721279   (110084) от 06.05.2024
 
 VA - Futurenow 3.0 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Chillwave>
@@ -638,60 +692,6 @@ VA - Lounge Sexiest Ladies, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:994452252B95F9FEE7F0880D16EDC88D4E97CD54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719754   (110375) от 02.05.2024
-
-VA - Footsteps On The Dancefloor, Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dainpeace - Not Follow (Extended Mix) (04:47)
-02. George Rodgers - How Will I Know (03:30)
-03. VarZet - Flashback (02:22)
-04. Ismael johnson - Shaker (03:28)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:784E3664C0C60AD787BE1F0894A90F58C23E541A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719813   (110377) от 02.05.2024
-
-Pretty Pink - Live @ DxB Boat Party Dubai, United Arab Emirates (2024-03-23) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretty Pink - Happening (Pretty Pink Edit)
-02. Underworld - Born Slippy (Pretty Pink Remix)
-03. Julian Jordan - The Bass (Pretty Pink Remix)
-04. Sunbeam - Outside World (ID Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A59AAAD656ED1B1071ABA7DE031489C0022B727B
 ```
 
 

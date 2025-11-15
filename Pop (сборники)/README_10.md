@@ -1,3 +1,36 @@
+###  Публикация: 594788   (132695) от 28.12.2012
+
+VA -Fly-Radio : Улётные хиты -  (2012) [MP3|128-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132695.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ю.Шатунов - Бродяга (57)
+2. KReeD и Полина Булаткина - Расстояния (320)
+3. Benefit - Sex Sells(256)
+4. OKSI - Новогодняя(320)
+5. Руки в брюки - Друзья(320)
+6. MC Hammer - You Can't Touch This(320)
+7. Baby Alice - Sexy(320)
+8. Brigada United - Марины,Тони,Тани...(192)
+9. Натали - О боже какой мужчина...(320)
+10.гр.Свои - Называл тебя глупышкой(192)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E9790F6FC46E18D57A6821071BB3902BB38083
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595229   (132699) от 28.12.2012
 
 VA - Зимняя музыкальная эйфория 50/50 - (2012) [MP3|256 кб/с]<Pop>
@@ -767,33 +800,6 @@ VA - ВКонтакте: TOP 100 (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74F826C1D036793A98C335CDFD5A7FA69EA11C5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195725   (138786) от 31.12.2017
-
-VA - De Top 100 Aller Tijden 1978 (RadioVeronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138786.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. John Travolta & Olivia Newton John - You're The One That I Want (2:49)
-002. Mighty Sparrow With Byron Lee & The Dragonaires - Only A Fool (2:46)
-003. Boney M - Rivers Of Babylon (4:22)
-004. Scott Fitzgerald & Yvonne Keeley - If I Had Words (3:51)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D516CEA9BAF3347D90F41457B075ACEDCC615AC2
 ```
 
 

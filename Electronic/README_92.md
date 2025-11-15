@@ -1,3 +1,57 @@
+###  Публикация: 1825204   (136711) от 16.10.2025
+
+Terminator-Rex - Holograms - Ghosts (2017) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthwave, New Retrowave, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay Still [00:05:56]
+02. Highway [00:04:18]
+03. Size Increaser [00:04:14]
+04. Rider Of Heaven [00:05:02](   Читать дальше...   )Жанр: Synthwave, New-Retrowave, ElectronicПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07AD2DC1BF39DB21A6DA5CEB709970F0B82A1F0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824968   (136793) от 16.10.2025
+
+VA - Dark Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Main Engine - New Reality (Suanda 500 Anthem) (Extended Mix) [6:42]
+02. Tom Exo - Dare To Dream Big (Extended Mix) [6:55]
+03. AMINTO - Spectrum Of Sound (Extended Mix) [5:24]
+04. Mike Zaloxx - Future (Extended Mix) [7:04](   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491BC1B8F071B55740AAD85B3E791843544F88D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825191   (136795) от 16.10.2025
 
 VA - A State of Trance - Classics Top 10, Vol. 6 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
@@ -631,60 +685,6 @@ VA - Christmas Box (2015) [MP3|320 кб/с] <Progressive, Psychedelic, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88FAF1187F23010F038F50C33ED2B1C577B99D93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195652   (139119) от 31.12.2017
-
-VA - Gate 2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kiyoi & Eky  -  Turn Back The Rain (Mark Van Gear Remix)  8:09
-02.  Enfortro  -  We Came To Conquer (Veizo Remix)  7:18
-03.  DJ Jhonny Vergel  -  Heart's Desire (Shane Infinity Remix)  6:14
-04.  Gregorio Costantino  -  Temperantia (Original Mix)  6:45(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E24C91564471E2B44539ADA4A7FA360AAEC847F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088477   (139173) от 31.12.2016
-
-VA - Deep Dark and Sexy Vol.1: Finest Deep and Elektro House (2016) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buben - My Oxygen
-02. Poenitsch & Jakopic - Two People - Radio Edit
-03. Maksim Biserov - Shambhala Residents
-04. Christos Fourkis - Come In My Life(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6F9927924E7A7AFABC101C8464B99970346201
 ```
 
 

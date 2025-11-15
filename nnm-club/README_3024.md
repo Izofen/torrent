@@ -1,3 +1,167 @@
+###  Публикация: 454957   (93904) от 19.02.2012
+
+Прожекторперисхилтон. Сезон 4. Выпуск 18(118) (17.02.2012) DVBRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93904.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Прожектор Пэрис Хилтон» — проект Первого канала, ведущими которого стали Гарик Мартиросян, Иван Ургант, Саша Цекало и Сергей Светлаков. Это программа, где нет ничего обязательного. Ведущие делают практически все, что хотят. Обсуждают темы, которые интересны зрителям, проводят «политинформацию» для населения. На столе в студии разложено много газет — ведь где еще, как не в свежих газетах, черпать актуальные новости, которые произошли на прошедшей неделе.Жанр: Телепередача, Новости, КомедияПродюсер: Александр ЦекалоПродолжительность: 00:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E69C0F3B084692D2662972628F6B42F752E9AE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454973   (93906) от 19.02.2012
+
+Дмитрий Манасыпов | За нами – Россия! [2012] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Середина 60-х годов ХХ века. Война с фашизмом продолжается. Не было капитуляции Германии и парада на Красной площади. Противник силен как никогда! У него теперь не только танки и самолеты, но и вертолеты, и даже боевые шагоходы панцер-шрайтеры. Но фашистам и этого мало. В секретной лаборатории в катакомбах под Куйбышевом они создают монстров – смертоносных, почти непобедимых генетически модифицированных .....2012Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF745C52D4B54649133B4959743B3F7023A2FC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454990   (93913) от 19.02.2012
+
+Владимир Поляков | Шаг за грань [2012] [FB2,RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие мечтают заглянуть в бездну. Оккультные науки манят, обещая даровать невиданную силу и могущество. Человек, вставший на этот путь, никогда не станет прежним.
+ Именно это происходит с героями романа. Стилет, Клим, Висельник и Ханна - сотрудники Третьего Отделения, которые занимаются поиском террористов и увлекаются оккультизмом, отвергая традиционную религию. Неожиданно на их пути возникает таинственный граф Черепанов. Кто он, этот обладающий огромной властью человек, в руках которого - четки из серебряных черепов? Это проводник в мир бессмертных воинов и магов, где не поклоняются богам, а стремятся ими стать. Здесь гордость - наивысшая добродетель, а смирение и покорность стоят наравне с трусостью и предательством.
+ Героям осталось сделать последний шаг. Шаг за грань.2012Формат: FB2,RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F596399D1A053B831DD513D0E8EB1ADEB52DAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454604   (93919) от 19.02.2012
+
+Горе в табакерке / ТРК Петербург (1989) VHSRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеспектакль по мотивам произведения Самуила Яковлевича Маршака "Горя бояться - счастья не видать", из огромной коллекции телепостановок для популярнейшей передачи "Сказка за сказкой".Производство: СССРЖанр: сказка, спектакльРежиссер: Анатолий СлясскийАктеры: Сергей Паршин, Ростислав Катанский, Иван Краско, Вадим Яковлев, Юлия Яковлева, Андрей Ургант, Ирина СоколоваПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C17EBF685BB1C64ABDEB4481264A50FB7BE96AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454746   (93925) от 19.02.2012
+
+VA - Metal Violin (2011) [MP3|320 kbps]<Symphonic Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eluveitie - Of Fire, Wind & Wisdom (03:05)
+03. Jelonek - Vendome 1212 (03:05)
+03. Korpiklaani - Wooden Pints (03:42)
+04. Septem Voices - Для Тебя (04:30)
+05. Morgul - The Murdering Mind (06:20)
+06. Троль гнет ель - Октоберфест (05:23)
+07. Haggard - Of A Might Divine (08:21)
+08. The Sins Of Thy Beloved - Until The Dark (06:41)
+09. Skyclad - Still Small Beer (03:10)
+10. Anabioz - Родная сторона (06:53)(   Читать дальше...   )2011Жанр: Symphonic Metal, Gothic MetalПродолжительность: 01:02:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C44649E0A99D8BF17C4B45546F445B3C45E4DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455433   (93930) от 20.02.2012
+
+VA - Paul Oakenfold: DJ Box - February 2012 (2012) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oakenfold - Maybe It's Over (feat Tamra Keenan - Organ Donors Perfecto mix) (06:36)
+02. Planet Perfecto Knights - ResuRection (Beatman & Ludmilla remix) (05:50)
+03. Symphonix - Dirty Minds (Osher remix) (08:01)
+04. HJM - 222 (Marco V remix) (06:36)
+05. Trance Arts & Sonic Element - Reformation (original mix) (08:03)
+06. Destroyers & Aggresivnes - The Untouchables (original mix) (06:20)
+07. Federation - Innocent Desire (Nick Sentience remix) (08:42)
+08. Orison - Mutation (original mix) (06:57)
+09. East Cafe - Flashback (Aeron Aether remix) (06:52)
+10. Limbo - Paradox (original mix) (08:16)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9A800F45DDBCB0248D2EFE2B01488CDAC9ACD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 455461   (93935) от 20.02.2012
 
 VA - The Beach 2011 (2011) [MP3|320 kbps]<Psychedelic / Full On>
@@ -455,6 +619,39 @@ magnet:?xt=urn:btih:FB3B6219028615B61FCF322DBDB04046C682A70C
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455910   (93995) от 21.02.2012
+
+Julian Sas - Bound To Roll (2012) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_93995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life On The Line (5:01)
+02. Mercy (4:00)
+03. Bound To Roll (3:59)
+04. How Could Iґve Been So Blind (4:36)
+05. Shadow Play (4:40)
+06. Swamplands (4:14)
+07. 30 Days In The Hole (3:25)
+08. The Blues Wonґt Stay (4:19)
+09. Tear It Up (3:08)
+10. Burninґ Brides (5:15)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 455058   (94011) от 21.02.2012
 
 Dapayk & Padberg - Sweet nothings (2012) [MP3|192-320 kbps]<Tech-house>
@@ -512,6 +709,39 @@ magnet:?xt=urn:btih:D5FCC00BC2B565461922FEE79D18AC4109366421
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455992   (94037) от 21.02.2012
+
+Albert King & Otis Rush - Door To Door (1998) [FLAC|Lossless]<General Electric Blues>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albert King - Searchin' For A Woman (2:49)
+02. Albert King - Bad Luck (3:06)
+03. Otis Rush - So Close (3:03)
+04. Albert King - Callin' For My Darlin' (2:47)
+05. Otis Rush - I Can't Stop (3:06)
+06. Albert King - Won't Be Hangin' Around (2:17)
+07. Otis Rush - I'm Satisfied (2:57)
+08. Otis Rush - All Your Love (2:26)
+09. Otis Rush - You Know My Love (2:56)
+10. Albert King - Merry Way (2:43)(   Читать дальше...   )1998Жанр: General Electric BluesПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 455673   (94058) от 21.02.2012
 
 VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, Progressive Trance>
@@ -540,261 +770,6 @@ VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455981   (94063) от 21.02.2012
-
-Газета | Сад, огород – кормилец и лекарь. Спецвыпуск №2 (2012) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый спецвыпуск издания "Сад, огород – кормилец и лекарь" посвящен определенной теме, волнующей читателей. На их письма отвечают специалисты и журналисты. А также сами читатели делятся опытом и дают мудрые советы.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB12F93F5D6C9FA36FA77476ED5E083A60A1AE98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454675   (94067) от 22.02.2012
-
-VA - Minimal Art v.4 (12.02.2012) [MP3|320 kbps]<Minimal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acid Lupe - Orchestra (Original Mix) (7:10)
- 02. Chabud - Souk (Mad Raf Tom Zenith Remix) (6:00)
- 03. Dani San - Clikity Clack (Original Mix) (6:44)
- 04. David Prap & Willy Real - Burnout (Manel Diaz Crazy Drum Mix) (6:09)
- 05. David San & Richie Dane – Colotina (Original David Mix) (6:17)
- 06. Edoardo Spolaore - Bastard Clap (Original Mix) (8:16)
- 07. Emanuele Millozzi & Claudio Petroni - Rauco (Manel Diaz Remix) (6:12)
- 08. Leeks - Amoeba (Original Mix) (7:17)
-09. Lowboys - Hall Of Panic (7:30)
- 10. MCJ - Pooomp (Manu Sami Remix) (6:09)(   Читать дальше...   )12.02.2012Жанр: MinimalПродолжительность: 02:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C7836E0C2716C4052BD382EEFD8E7CFAD4BB06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454998   (94083) от 22.02.2012
-
-VA - Minimal Art v.8 (16.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afonso Maia - D Rather (Original Mix) (6:42)
- 02. Andres Guerra - Bheis (Original Mix) (6:38)
- 03. Brunno Santos - I'm Done With You (Juliano Silva Remix) (7:10)
- 04. Cryteque - Sunny Flash (Original mix) (7:01)
- 05. Daniele Petronelli and Steve Russell - Kat-I (Original Mix) (6:45)
- 06. Domshe – Temptation (Tobias Hertz & Stefan Rieger Remix) (7:38)
- 07. Hakan Ludvigson & Joachim Broeckers - Audiovit (Original Mix) (7:14)
- 08. Ian F - Coming Back (Original) (7:15)
- 09. Jill Bellac & Suspect One - Shaped (Min & Mal Remix) (6:11)
- 10. Joel Fletcher & JDG - China Town (Original Mix) (7:03)(   Читать дальше...   )16.02.2012Жанр: MinimalПродолжительность: 02:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA2B6992696D22FBF66562B0F79D2F2A677FE610
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454669   (94087) от 22.02.2012
-
-VA - Minimal Art v.3 (11.02.2012) [MP3|320 kbps]<Minimal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AC Slater & Xaphoon Jones - Believe Me (Botnek Remix) (5:50)
- 02. Angelo Dore, Minimal Law - Experimental (Original Mix) (6:03)
- 03. Atix - Divagation (Original Mix) (7:15)
- 04. Audiowomb - Zoophyta (Original Mix) (7:56)
- 05. Avrosse, Louie Cut - Double Trouble (Original Mix) (6:06)
- 06. Danalog - Baked Beams (Original Mix) (8:13)
- 07. On the Train (Derrick Carter Remix) (5:59)
- 08. Deep Voice - I'm Freak (Andrea Roma Rmx) (6:56)
- 09. Dima German - 2012 (D-Quattro Remix) (7:26)
- 10. Emrah Celik - Let's Get Dangerous (Daniele Petronelli Remix) (6:05)(   Читать дальше...   )11.02.2012Жанр: MinimalПродолжительность: 02:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E581143ED7E60AEE91BFF68673F08AC316E8B2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455003   (94091) от 22.02.2012
-
-VA - Minimal Art v.10 (18.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aiho - Purple Haze (Giuseppe Visciano Psychedelic Remix) (6:05)
- 02. Artem Abdrakhmanov - Fire Blood (Original Mix) (7:33)
- 03. Bodyscrub - Resolution (Original Mix) (8:42)
- 04. Ciaran Osborne - Don't Hold Back (Original Club Mix) (6:59)
- 05. Danase - Come On, We Play (6:25)
- 06. Dani Sbert - Otherside (Original Mix) (7:01)
- 07. Deep Inside Sistem - Violence (Original Mix) (7:11)
- 08. Diamandy - Breezer (Original Mix) (8:07)
- 09. Doubleton - Diluente (Original Mix) (6:20)
- 10. Dubfloor - Tropa Tropa (Original Mix) (6:50)(   Читать дальше...   )18.02.2012Жанр: MinimalПродолжительность: 02:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE05E1089EA0849955044BA64E2D8CAC0A261CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456083   (94093) от 22.02.2012
-
-VA - Words Matter LP (2012) [MP3|320 kbps]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motta - Let Me Know [06:00]
-02. Celerity & DBR UK - Sonic Step [05:42]
-03. Undersound - Meet Me In My Shadow [06:52]
-04. Rene LaVice - Maintain [05:30]
-05. 2ndCityBlue - Bermudaz [06:55]
-06. Flatliners - Human Beings [06:25]
-07. SoliD - Blue Grooves [05:30]
-08. Grimm - Hunters March [06:20]
-09. Soultec Ft. Grimm - Last Call Of The Sun [06:12]
-10. Pouyah - Fooled [07:05](   Читать дальше...   )2012Жанр: Drum and BassФормат: WEBПродолжительность: 01:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11B8DCEADEC99BC0CD0A52F44D8083A7CEA093B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456059   (94114) от 22.02.2012
-
-Technicolour - FabricLive Bukem In Session (2012) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calibre - Windows (Signature)
-02. Komatic - Make The Most Of Now (Technicolour remix) (Spearhead)
-03. Technicolour - The Harp Tune (Fokuz)
-04. Pennygiles - Au Revoir Blackbird (GLR)
-05. Bungle - The Siren (feat. Ayah) (Bladerunner remix) (Spearhead)
-06. dRamatic & dbAudio - 6 Degrees (Mars)
-07. Calibre - Hummer (Samurai Red Seal)
-08. Technicolour & Komatic - Those Feelings (Shogun LTD)
-09. Level 2 - No Time VIP (Liquid V)
-10. Atom - Dolly (Lynx remix) (Sonorous)(   Читать дальше...   )2012Жанр: Drum and BassФормат: Mp3, mixedПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A0B8C3F67E76CE9C5C9C28E1D1DE39CF0FC5CCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455878   (94120) от 22.02.2012
-
-VA - Wine Lovers Vintage (2010) [MP3|-V0 ~245 кб/с]<Lounge, Jazz, Soul>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sergio Mendes And The Black Eyes Peas - Mas Que Nada (4:27)
-02.Gabor Szabo - Breezin' (3:13)
-03.Andrй Previn, David Fnick Gershwin - Embraceable You (4:55)
-04.Wes Montgomery - Georgia On My Mind (2:48)
-05.Mark Murphy - My Foolish Heart (5:16)
-06.Ella Fitzgerald - My Funny Valentine (3:55)
-07.Tony Bennett - Isn't It Romantic (3:25)
-08.Johnny Hartman - Stairway To The Stars (3:08)
-09.Herbie Hancock - The Man I Love (5:59)
-10.Terry Callier - What Color Is Love (4:07)(   Читать дальше...   )2010Жанр: Lounge, Jazz, SoulПродолжительность: 02:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FFA317FE5F68BFF2A189601E73B52958F521026
 ```
 
 

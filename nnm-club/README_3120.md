@@ -1,681 +1,748 @@
-###  Публикация: 1769349   (100682) от 28.12.2024
+###  Публикация: 483754   (99828) от 16.04.2012
 
-The Washing Machine Cie - Ladies and Gentlemen (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+ХАСКИ - Икорный бизнес (2012) [MP3|320 кб/с]<Rock, indie-rock, pop-rock>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99828.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Raiders (3:25)
-02. Smoke (4:14)
-03. Yeah-Yeah (3:18)
-04. Body on the Floor (3:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:54
+01. Камикадзе (3:36)
+02. Дядя Хофман (5:37)
+03. 19-45 (6:07)
+04. Хэй, меломан! (3:16)
+05. Икорный бизнес (4:11)
+06. Хэй, меломан! (Alex Friesen ft. Lefster rmx) (6:20)Жанр: Rock, indie-rock, pop-rockПродолжительность: 00:29:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A87A77C4431002D56BEEF41162AB032B2B58DD5
+magnet:?xt=urn:btih:C327D9C2F0D99551B7613176EEFABECC0475624E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769354   (100683) от 28.12.2024
+###  Публикация: 484361   (99829) от 17.04.2012
 
-Time Fjord - And My Hand Holds The Jug (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+[Wallpapers] Computer Desktop Wallpapers Collection (18.04.12)
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Right On Track for the Trainwreck (2:55)
-02. When Questionable People Have the Answers (3:36)
-03. Overpoured (I've Had It and I've Had It) (2:49)
-04. Patterning (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:47
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DE0D0769339590C417306B2FCBA26FEF87F0500
+magnet:?xt=urn:btih:BC85DAFCDF9AFB7FCFE0324EB0CE8E82FA447879
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769469   (100684) от 28.12.2024
+###  Публикация: 482348   (99830) от 17.04.2012
 
-VA - Reason II Rise Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
+VA - Клубные новинки Vol.59 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
 
->>Electronic
->>Trance
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99830.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pinkque - Ghost Of You (Mixed) [03:23]
-02. Airdream & Victor Special - Autumn Haze Before Sunrise (Mixed) [05:36]
-03. Kvaii - Sunshine (Mixed) [05:01]
-04. Cenk Basaran - Coming From Paradise (Mixed) [04:20](   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:04
+01. Techno Freedom Pro - Lucky Strike (Lino Remix)
+02. Rene Ablaze And Alexander Xendzov Feat. Sharon Fehlberg - Cast Your Spell (Extended Mix)
+03. Senadee - Life Support Machine (16 Bit Lolitas Remix)
+04. Marc Simz feat. Naomi Strieme - This Is Love (Original Mix)
+05. Dirty Harris - Cosmos (Original Mix)
+06. suGar, Eva Kade, Evil T - All Around (Gregory Esayan Remix)
+07. Yotopia & Sphera - Vertigo (Original Mix)
+08. Myon & Shane 54 feat. Aruna - Helpless (Alexander Popov Remix)
+09. Stoneface & Terminal feat. Ellie Lawson - Breaking Through (Club Mix)
+10. Pulser feat Molly Bancroft - In Deep (Pulsers Main Floor remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:37:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73DDFC6E70083306DF213093BE62A2C5C7EC4A31
+magnet:?xt=urn:btih:CF6F9579C7FACA432A5EE1D0CF1D5160BCEFB426
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769287   (100685) от 28.12.2024
+###  Публикация: 483394   (99833) от 17.04.2012
 
-Vintage Culture - Live @ Ushuaïa Closing Pre-Party: The Last dANTS, Cafe Mambo Ibiza, Spain (2024-10-11) [MP3|320 Kbps] <House, Nu Disco, Disco>
+VA - Клубные Новинки Vol.60 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
 
->>Electronic
->>Radioshow, Live Mixes
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99833.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ABBA - Voulez-Vous
-02. Chew Fu ft. Steve Clisby - Purple Rain (Mousse T Home Alone Mix)
-03. Mousse T & Hot 'N' Juicy ft. Inaya Day - Horny
-04. Piero Pirupa - Everybody's Free (To Feel Good) (Deeper Purpose Remix)(   Читать дальше...   )Жанр: House, Nu Disco, DiscoПродолжительность: 01:25:58
+01. Billy Johnston & Gennaro Mastrantonio - Glauben Der Dunkelheit (Phunk Investigation Remix)
+02. Emma Hewitt - Colours (Cosmic Gate Remix)
+03. Guy Robin feat. Amba Shepherd - Heaven Or Hell (Original Mix)
+04. Christian Cambas - Animate Objects (Original Club Mix)
+05. Brian Mart, Alan Nunez - Don't Stop (Original Mix)
+06. Jeter Avio feat. Vera Fisher - I Will Stay (Igor Zaharov & Sober System)
+07. Fedde Le Grand, Deniz Koyu & Johan Wedel - Turn It (Original Mix)
+08. Jus Jack & Oza - The Mess (Original Mix)
+09. Andrea Ribeca feat. Anthya - Always in Paradise (Progressive Mix)
+10. Gaponoff & Саша Ветер - Таяли Звезды (Mike Prado Remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:21:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4C662AA511691AC91B84C713087FBE508E24D4A
+magnet:?xt=urn:btih:0CD6F6001968539F0769D689A0A525274C8F90B8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769418   (100686) от 28.12.2024
+###  Публикация: 484163   (99838) от 17.04.2012
 
-VA - Coldharbour Reflections 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+Журнал | Золотая коллекция №40. Дачная кухня [апрель 2012] [PDF]
 
->>Electronic
->>Trance
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99838.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Markus Schulz - Ram Attack (03:46)
-02. DIM3NSION & Daxson - Ardora (03:12)
-03. Mike EFEX - Malfunction (02:39)
-04. Stoneface & Terminal - In My Mind (02:48)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:46:04
+«Золотая коллекция рецептов» - это журнал, созданный по лучшим рецептам читателей.
+В этом номере вы найдете:
+Витаминный омлет
+Картофель фаршированный колбасой
+Салат легкость
+Куринный суп с клецками
+Слоенные булочки
+Рисовые котлеты с сыром
+И множество других рецептовапрель 2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C69FBF08E537E392EC1983A5FCCEDF1B5F52E06B
+magnet:?xt=urn:btih:F9D2FCACCD54493EE0EDE90DB93B7090D03F41BD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769335   (100687) от 28.12.2024
+###  Публикация: 484238   (99839) от 17.04.2012
 
-Southernman Robbie - Back to the Roots (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+[Wallpapers] Wallpapers Fantasy №3 (Pavel)
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Big River Little Town (4:29)
-02. The Witch (Gal Durly Dee) (2:40)
-03. Dreamin' (3:43)
-04. Babe & I (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:31
+Обои на рабочий стол 50 штук
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA4753CFEA239736A58B455F21C373F406E2703C
+magnet:?xt=urn:btih:8D3B530983B8C95F01F4A2032D8D66A12ED0DC1C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769425   (100688) от 28.12.2024
+###  Публикация: 483907   (99840) от 17.04.2012
 
-VA - Reason II Rise: Realms Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
+Cindy Lora-Renard - Journey Through Sound (2009) [MP3|160-320 кб/с]<New age, Meditative>
 
->>Electronic
->>Trance
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99840.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jake Crooker - New World (Mixed) [04:48]
-02. Menno Veda - Orbit (Mixed) [02:00]
-03. Afterus - Sparta (Mixed) [04:43]
-04. Pinkque & Darren Porter - Divergent (Mixed) [04:21](   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:43
+(4:28) 1. Evening Star
+(4:54) 2. Theme From The Disappearance of the Universe
+(5:02) 3. Om Mani Padme Hum
+(3:25) 4. Shamanic Dance
+(4:50) 5. Journey Through Sound
+(3:21) 6. The Call of the Wolf
+(3:47) 7. The Heart Awakens2009Жанр: New age, MeditativeПродолжительность: 00:29:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:805A759EB9C359A19DB18A4DC32DEE1B6569E77A
+magnet:?xt=urn:btih:980C49A1D41A4CBDE7C40509A1684966A74415A3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769337   (100689) от 28.12.2024
+###  Публикация: 483549   (99841) от 17.04.2012
 
-The Creaking Floorboards - Treading Lightly (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Scion Versions - Label Pack (7 релизов) (2006-2010) [FLAC|Lossless]<Dub Techno, Techno, Minimal>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99841.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Murder (2:53)
-02. Started Something New (2:44)
-03. Anthropomorphic (3:10)
-04. Blue Minute (2:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:00
+01. Vainqueur - Ranges - Expanded (9:20)
+02. Vainqueur - Ranges - Theme (9:43)Продолжительность: 00:19:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:046B7A338F5B49765918B5116D5A8F277BDC3157
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769330   (100690) от 28.12.2024
+###  Публикация: 483168   (99846) от 17.04.2012
 
-Mike Gannon - Every day I have the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+[Wallpapers] Wallpaper Sexy Girls 0.6
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99846.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roll with the Punches (4:29)
-02. Route 66 (3:36)
-03. Get Together (3:15)
-04. Yeah Yeah (3:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:19
+Обои для рабочего стола.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6AC3AEB45BE195A26CE3E9941026655E4F214BBC
+magnet:?xt=urn:btih:F64AC5802E58B128BFC056E3712079FB1B675F37
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769438   (100691) от 28.12.2024
+###  Публикация: 484059   (99851) от 17.04.2012
 
-Пятеро на одного (28.12.2024) WEBRip [H.264/720p-LQ]
+Randall - Eight Storeys (2004) [MP3|320 кб/с]<Ambient, Istrumental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Randall - Eight Storeys (2004)
+Год: 2004
+Жанр: Ambient, Istrumental
+Продолжительность: 00:40:50
+Лейбл: Spacious Music
+Страна: UKКодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТреклист:(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130338DFB0022C07FCAC091E9305007281470AB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483967   (99852) от 17.04.2012
+
+Astrohenge - II (2011) [MP3|320 кб/с]<Progressive Psychedelic Sludge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodbye (01:39)
+ 02. Space Honkly (02:46)
+ 03. Tomb Of The Mummy (03:42)
+ 04. Lab Chimp Uprising (02:10)Жанр: Progressive Psychedelic SludgeПродолжительность: 00:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E81C81FC48205B9D5F9BD1DB1DB2E192EE4ABF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484259   (99853) от 17.04.2012
+
+Decontrolled - The Circle (2012) [MP3|320 кб/с]<Modern Metal, Nu-Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter the Circle
+02. Hidea
+03. Blacklights
+04. Rapture
+05. Encrypted
+06. The Circle
+07. Omnipotent
+08. Deathwish in the Continuum
+09. Grand Scheme
+10. Alive(   Читать дальше...   )2012Жанр: Modern Metal, Nu-MetalПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B93384B587B9355895E702579E6A139F591534
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483938   (99855) от 17.04.2012
+
+Curandero - Aras (2010) [MP3|320 кб/с]<World>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99855.jpg" />
+</div>
+
+
+###  Подробнее
+
+(09:20) 1. Aras
+(04:53) 2. Segue
+(11:17) 3. River
+(11:25) 4. Man Of The Shadows
+(00:35) 5. Once Upon A Time
+(07:57) 6. Embrujada2010Жанр: WorldПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C9CBCEBD72C831CD7A91BFABB12993BEBB5899
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484431   (99859) от 17.04.2012
+
+DotEXE - Donations Accepted (2012) [MP3|320 кб/с]<Drum'n'Bass, Dubstep>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing You Can Do
+02. Come Back To Me
+03. Footsteps
+04. Horsey (DotEXE Remix)
+05. Alicja
+06. Anything You Want
+07. Elektro Funk
+08. Fast Car
+09. Turn On The Radio
+10. Why Can't I Sleep(   Читать дальше...   )2012Жанр: Drum'n'Bass, DubstepПродолжительность: 01:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAFD74CE103216D60A8707A6755F217D87129735
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483888   (99864) от 17.04.2012
+
+Skreatch vs. Joe Smooth - Promised Milkshake (2012) [H.264] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, HouseПродолжительность: 00:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D7812E5FFA15912B09801401205E10A1974F1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484454   (99865) от 17.04.2012
+
+Каникулы в Мексике - 2. Ночь на вилле. Выпуск №32 (2012.04.17) SATRip
 
 >>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:22
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:12:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6C538660EC7793D89D0D379544221A9FBDA9A15
+magnet:?xt=urn:btih:69CF97F5A9C0C297A9BA5E0CF1BFD3DAE4106E72
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769333   (100692) от 28.12.2024
+###  Публикация: 483605   (99867) от 17.04.2012
 
-Scraptones - Truth and Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Truth and Bones (5:25)
-02. All or Nothing (4:46)
-03. Sea of Broken Dreams (4:52)
-04. Bleeding Spirits (5:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35289F0B62575437160EF2C09F6E58E769101D78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769329   (100693) от 28.12.2024
-
-Mick Clarke - Singles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Susie Q (2:42)
-02. Keeper of the Fire (4:02)
-03. Heartbeat (2:45)
-04. Louie Louie (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0BD6ABD9A533710E82F4002DAFB34A1BE248925
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769341   (100694) от 28.12.2024
-
-The Hornets - Giorgio's Crawdaddy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All That Jazz (2:13)
-02. The Young Always Win (6:11)
-03. At The Marquee (3:08)
-04. Crawdaddy (2:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D24A7D72DF43584C2C343C57B4C0CB76F70077
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769414   (100695) от 28.12.2024
-
-Футбол. Чемпионат Испании 2024/2025. 18 тур. Барселона - Атлетико (21.12.2024) TVRip [H.264]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100695.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 Декабря 2024. Стадион: Олимпик Льюис Компанис
-Матч 18-го тура Испанской Примеры. Барселона - Атлетико (Мадрид)
-
-Команда Диего Симеоне выдала серию из 6 побед (Лас-Пальмас, Мальорка, Алавес, Вальядолид, Севилья и Хетафе). А у Барселоны в шести последних турах чемпионата Испании лишь одна победа при двух ничьих и трех поражениях. В составе Барселоны травмированы (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F7E6320F2E20319CCEE74B2722FEB748CD44CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769186   (100696) от 27.12.2024
-
-Газета | Тайны СССР №13 (164) (июнь 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3859F8C57130F1780D434C814173C39C164B3D5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769170   (100697) от 27.12.2024
-
-Ефрем Амирамов - 11 Альбомов (1994-2011) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Молодая ( Remake )
-02. Аленка
-03. Поход
-04. Любимая моя(   Читать дальше...   )Жанр: ШансонПродолжительность: 07:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2529EE26B0CE425EDEE54F7032F80CA2BB32101B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769128   (100698) от 27.12.2024
-
-VA - Armin van Buuren - A State Of Trance 1205 (Yearmix 2024) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Various Artists - Hitzone 61 (2012) [MP3|320 кб/с]<Club, Dance>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Armin van Buuren & Moby - The Road Ahead (A State of Trance Year Mix 2024 Intro)
-002. Armin van Buuren & Moby - Extreme Ways
-003. Jerome Isma-Ae - Hold That Sucker Down (Hel:sløwed Remix)
-004. Hel:sløwed & Amber Revival - Wildfire(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:24
+Cd 12012Жанр: Club, DanceПродолжительность: 01:12:30
+01. Lloyd Ft Andrй 3000 - Decidation To My Ex (Miss That)
+02. Carly Rae Jepsen - Call Me Maybe
+03. Train - Drive By
+04. Gavin Degraw - Soldier
+05. Chris Hordijk - Won't You Stay
+06. Katy Perry - Part Of Me
+07. Racoon - Don't Give Up The Fight
+08. Keane - Silenced By The Night
+09. Afrojack & Shermanology - Can't Stop Me(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9F6832E889DA61620036E613C2772BEFFE1FE8C
+magnet:?xt=urn:btih:8C07BE4EBAC7CDA6F5C1DEA5F14053B42F902D2A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768313   (100699) от 27.12.2024
+###  Публикация: 484525   (99869) от 17.04.2012
 
-Тени Свободы - 7 Альбомов (2006-2017) [FLAC|Lossless|image + .cue] <Punk>
+Tomorrow We Hunt - Bitter Words (2012) [MP3|320 кб/с]<Melodic Hardcore>
 
 >>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Успех
-2. Бежать
-3. Глупые выживут
-4. Боль(   Читать дальше...   )Жанр: PunkПродолжительность: 03:29:51
+01. Misery 01:33
+ 02. Doubts And Struggles 03:16
+ 03. Crossed Paths 03:02
+ 04. Echoes 02:17
+ 05. Wilfully Blind 03:47
+ 06. No Love, No Regret 03:11
+ 07. Despair 01:09
+ 08. To Conceive/Insight 02:59
+ 09. Discontent 03:11
+ 10. Time We Lost 02:37(   Читать дальше...   )2012Жанр: Melodic HardcoreПродолжительность: 00:27:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF023D1078857AAE7876B4820D600E5995858A35
+magnet:?xt=urn:btih:2EA87BC6EFC240CF5FF917DB900D61BA1C8D8394
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769199   (100700) от 27.12.2024
+###  Публикация: 484459   (99870) от 17.04.2012
 
-Журнал | Дачный клуб №11 (164) (ноябрь 2024) [PDF]
+[Wallpapers] Army and military equipment Wallpapers (18.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:637269915AD9FEA3AE6F1D0C232180CD4A81B72F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484342   (99872) от 17.04.2012
+
+Журнал | Cosmopolitan Shopping №5 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cosmopolitan Shopping — незаменимый гид по стильным покупкам. Это модный, интересный и полезный журнал, который всегда готов ответить на три главных вопроса в жизни женщины: что купить? Где купить? С чем носить?2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D482AC4D2B45FFC62E046D28212CA8531E28389C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484226   (99877) от 17.04.2012
+
+VA - Клубные новинки Vol. 66 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Oshean - A Day Will Come (Original Mix).mp3
+02. Andreea Banica - Electrified (Sagi Abitbul Official Remix).mp3
+03. Bob Sinclar feat. Sophie Ellis-Bextor - Fuck With You (Extended Mix).mp3
+04. Cahill feat. Chrome - Can't You See (Club Edit).mp3
+05. Christos Fourkis - Set Free (Radio Mix).mp3
+06. Coffee and Honey feat. Alexandra - Smile (Club Mix).mp3
+07. CUT & RUN - Calm & Queasy.mp3
+08. DJ Adamus - Free The Night (Club Edit).mp3
+09. Faberlique - Sleep Blind (Taras Bazeev Remix).mp3
+10. Funkwhite - Plug & Play (Extended Mix).mp3(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBC52487425A7EBB966F1D671410483B22DA219
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483785   (99878) от 17.04.2012
+
+VA - DJ Club Spring (2012) [MP3|160-320 кб/с]<Club, Dance, Electro, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99878.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Christopher S feat. Max Urban - Star (Organ Remix).
+002. Remady & Manu-L Feat. J-Son - Single Ladies (Extended Mix).
+003. Chris Garcia Feat. Sherry St Germain - I Rock Alone (Club Extended).
+004. G & G Feat. Jonny Rose & Chris Reeder - All Falls Down (Jean Elan Remix).
+005. BAZEDA, Custom Drops - Love To Party (Original Mix).
+006. Esteban Aracil - Where Is The Love (Soultwister Remix).
+007. suGar, Eva Kade, Evil T - All Around (Andrea Bertolini Remix).
+008. Lana Del Rey - Videogames (Ben DJ & D-Seven Remix).
+009. Sander Kleinenberg - This Is Miami (DJ Morricone remix).
+010. Jimmyburnside - Uppers & Downers (Original Mix).2012Жанр: Club, Dance, Electro, HouseПродолжительность: 28:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA3E003A567BFD109FE4936D73ADC7C1583C8E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484470   (99880) от 17.04.2012
+
+7раса - Р.Н.Г. (2012) [FLAC|Lossless]<Alternative Rock, Grunge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01) Р.Н.Г. (3:57)
+02) Время осталось (3:17)
+03) Огонь молодых (3:15)2012Жанр: Alternative Rock, GrungeПродолжительность: 00:10:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483701   (99881) от 17.04.2012
+
+День Зеро / Day Zero (2007) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Америка снова вернулась к призывной армии. Трое друзей — адвокат, таксист и писатель — в тридцатидневный срок должны явиться на службу. У каждого из них своя жизнь, но детские узы дружбы не ослабели.
+
+Рифкин — женат, работает адвокатом, его карьера идет в гору. Недавно его назначили партнером фирмы, поэтому он ищет любую лазейку для того, чтобы не идти в армию.
+
+Феллер пишет свой второй роман. Первый роман имел оглушительный успех, и повестка о призыве в армию мешает ему, вызывая творческое бессилие. Он решает составить список 10-ти вещей, которые ему нужно сделать до того, как он начнет служить в армии.
+
+Диксон работает таксистом, живет один и охотно готов служить в армии. Но неожиданно в его жизни происходят события, которые меняют его жизнь.
+
+В течение тридцати дней их дружба проходит испытание на прочность, также как их представления о жизни, смерти, отваге и любви.Жанр: ДрамаРежиссер: Брайан Гуннар КоулАктеры: Элайджа Вуд, Крис Клейн, Джон Бернтал, Джиннифер Гудвин, Элизабет Мосс, Элли Шиди, София Васильева, Джон РотменПеревод: Многоголосый закадровыйЯзык субтитров: отсутствуютПродолжительность: 01:29:08
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484409   (99886) от 17.04.2012
+
+Газета | Копилка Огородникова №2 (12) (2012) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99886.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В журнале «Дачный клуб» собрана яркая и наглядная информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты блюд из урожая. Уникальный опыт российских дачников, яркие иллюстрации, вопросы читателей, рекомендации специалистов.Жанр: Дом, сад, огород, дачаИздательство: ООО "Город Медиа Софт"Формат: PDFКачество: Необработанный скан
+Копилка Огородникова это журнал советов для любителей сада и огорода.
+В этом номере вы найдете:
+Лунный посевной календарь
+Вредители и болезни цветочных культур(   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8278CE16BAB0CED80412B9FB92D5559BE362EC5B
+magnet:?xt=urn:btih:08A9ABC1C386D552AEE33E4F492EBD0530E360CF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769185   (100701) от 27.12.2024
+###  Публикация: 482966   (99888) от 17.04.2012
 
-Газета | Загадки истории №52 (627) (2024) [PDF]
+Лейтенант Коломбо - Полька Джэмбори (2012) [MP3|320 кб/с]<Old-school Hip-Hop/Funky/Breakbeat>
 
->>Журналы
->>Другие журналы
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+01. Фанки Флибустьеры (3:24)
+ 02. Вапабадубап (Боевик) (2:26)
+ 03. Кинг Оф Рок (3:29)
+ 04. Дядя Фрэнки Уходит В Отставку (2:54)
+ 05. Кэмбоооу (3:58)
+ 06. Фантомас Разбушевался (3:53)
+ 07. Р-Н-Р Так Р-Н-Р (2:14)2012Жанр: Old-school Hip-Hop/Funky/BreakbeatПродолжительность: 00:22:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53BD6480F368C423FC6A3173F5A8E6AE7B01EAA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769014   (100702) от 27.12.2024
-
-Adrian von Ziegler - Of the Old World (2024) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Albion [5:34]
-02 - The Wanderer [4:33]
-03 - Ethelborn [2:42]
-04 - Tale of the Gaels [6:42](   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE56AAFFBA20E239610FB8447A7CFEA1701E40A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768065   (100703) от 27.12.2024
-
-Аэдра - 2 Альбома (2008 - 2010) [FLAC|Lossless|tracks + .cue] <Heavy Power Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На Крылья Зари (05:23)
-02. Мистерия Снов (03:41)
-03. Забвенье И Снег (04:33)
-04. Театр Боли И Слёз (05:12)(   Читать дальше...   )Жанр: Heavy Power Metal, Modern MetalПродолжительность: 01:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F1153A17C88785B083112B087F8071903789F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769136   (100704) от 27.12.2024
-
-Газета | Невыдуманные истории №52 (456) (декабрь 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100704.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F664F6750E82AB3531F914AE67C5423FE0E04B54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768771   (100705) от 27.12.2024
-
-Empty Mirror - 2 Albums (2022-2024) [FLAC|Lossless|WEB-DL|tracks] <Sympho Doom, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exordium [00:01:44]
-02. Luminous Child [00:05:35]
-03. Deus Profanus [00:05:54]
-04. Zephyros [00:05:51](   Читать дальше...   )Жанр: Sympho Doom, Gothic MetalПродолжительность: 2 CD, 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:107E51BB1C5DDDC0FB608B45D81CB37E1F76E45E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769171   (100706) от 27.12.2024
-
-VA - Interplay Highlights 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passive Progressive & Sentient Mullet – Like a WaveЖанр: Trance, Progressive, ElectronicПродолжительность: 01:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9F9773EA9DA878B64171D0777ED919F4D6F764
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769135   (100707) от 27.12.2024
-
-Газета | Невыдуманные истории №51 (455) (декабрь 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100707.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43591EFB6A122B2844AD76C4F8A3BBD7ABACAAC
+magnet:?xt=urn:btih:3FAA566A2C441D80C09E18C39018FD2F989E5802
 ```
 
 

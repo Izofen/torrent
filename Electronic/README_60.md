@@ -1,3 +1,57 @@
+###  Публикация: 1740797   (105794) от 03.08.2024
+
+VA - Electronica Confessions, Vol. 12 (2014) [MP3|320 Kbps] <Electro, House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antony Well - Lua Solidaria (6:27)
+02. Diogo Salvador & Walker G. - London City (4:35)
+03. Dr.H - Love (5:21)
+04. Dave Qri - Mama (4:40)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 02:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C032146D2690FFA242CA4CC8D5847E89C29287
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740796   (105795) от 03.08.2024
+
+VA - Electronica Confessions, Vol. 11 (2014) [MP3|320 Kbps] <Electro, House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faksikas & D'layna - Take Me There (The Squeeze Soul Shift Instrumental) (6:40)
+02. Or'l - Love Etc. (8:47)
+03. Heather Walker - Freedom (Peacey P Moody Dub Mix) (8:35)
+04. DJ Wings - Give It to Me (Wings & Accidental Notes Island Mix) (4:24)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 02:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97035700E0BF9A9EE5FAA2E141A28EA245F3EB80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740799   (105796) от 03.08.2024
 
 VA - Electronica Confessions, Vol. 14 (2014) [MP3|320 Kbps] <Electro, House>
@@ -638,60 +692,6 @@ VA - Ibiza Summer 2024: Deep & Tropical House (2024) [MP3|320 Kbps] <House, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A11298179FEA7C5AEE5AF497E80EF44064E5BC45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739309   (106108) от 27.07.2024
-
-VA - Summer 2024: Best of Deep House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JLUIS - She's Not Me [02:33]
-02. Declan Drake - Lights Out [02:45]
-03. Deep Emotion - One More Night [02:36]
-04. Dani Corbalan - Promise Me [02:31](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:21:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E60CC30E0143C4380AD0555C1604A22A4451FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739067   (106157) от 26.07.2024
-
-VA - IBIZA 2024 (Deluxe Version) [MP3|320 Kbps] <House, Organic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Société Parfaite - Language Of Your Soul (Original Mix) (4:32)
-02. Old Hermit Crab - One (Original Mix) (7:09)
-03. Mood 5 & Liana - Work 4 Love (Thrill Me Extended) (6:51)
-04. Marcus Soulbynight - Always (Extended Mix) (5:56)(   Читать дальше...   )Жанр: House, Organic HouseПродолжительность: 07:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70874990AB748EE9586159AE3095453488401462
 ```
 
 

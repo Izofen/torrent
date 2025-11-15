@@ -1,3 +1,57 @@
+###  Публикация: 1591132   (187534) от 17.11.2022
+
+VA - Sea & Waves: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Hitching a Ride to Paradise (Original Mix) (3:18)
+02. Clive Button - A Wish Come True (Original Mix) (4:42)
+03. Euphonic Traveller - Moro Bay (Original Mix) (8:18)
+04. Michael E - Andiamo (4:42)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05CA98C64270AA6CFA90300D258B12BD15091B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590858   (187550) от 17.11.2022
+
+Groove Master Juno - The Last Prism (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Alternative>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mission Control [00:05:40]
+02. Coordinates [00:04:34]
+03. Breaking in [00:03:24]
+04. Sector 3 [00:05:18](   Читать дальше...   )Жанр: Synthpop, AlternativeПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23833DF01C5248AC421C25E547985BE47C098A93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662601   (187740) от 18.09.2023
 
 VA - Black Hole Trance Music 07-23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Tech Trance, Uplifting Trance>
@@ -635,60 +689,6 @@ VA - Best Of Vocal Trance 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB284C36C1B317228397C16D95AF387EF5C894A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589710   (189654) от 11.11.2022
-
-a-ha - True North (2022) [FLAC|Lossless|image + .cue] <Synth-pop, Pop Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm In (5:06)
-02. Hunter In The Hills (4:11)
-03. As If (4:56)
-04. Between The Halo And The Horn (4:11)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39CA0BF491A1110DB81A31598EFBDE30EA94BACE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589498   (189739) от 11.11.2022
-
-VA - Chillout Autumn Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fake and True - Seas of Passion (5:04)
-02. Beamy - Rising Sun (4:18)
-03. Martin Hiska - Remember (4:44)
-04. V-Sta - Slum of Dream (Original Mix) (4:40)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6BD6A22D491D3378CFCB3C2D5CAE5A3F8F2FE7
 ```
 
 

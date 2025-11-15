@@ -1,3 +1,57 @@
+###  Публикация: 408513   (133228) от 27.12.2012
+
+VA - Jazzy Market (2010) [MP3|320 kbps] <Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damcase - Sunset Blvd (Tsiridis Post Accademy Mix) (06:41)
+02. Drehwerk - Mecca Calling (08:55)
+03. Echonomist - The All Together (06:48)
+04. Eddie Zarook - Bang Bang (06:41)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389280BB12E6D844D4BF56EC4F89874A8F62D11A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680934   (133415) от 01.12.2023
+
+VA - Pop Ambient 2024 (2023) [MP3|320 Kbps] <Electronic, Ambient, Pop>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133415.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. T.Raumschmiere - Eterna 2
+2. Mikkel Metal - Octarine
+3. Yui Onodera - Cromo 7
+4. Blank Gloss - Weedless Hook(   Читать дальше...   )Жанр: Electronic, Ambient, PopПродолжительность: 01:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34662F9F840525552100CF8013BE9F068F45F023
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594424   (133764) от 26.12.2012
 
 VA - Housepital's Secret Club Weapons Vol.1 (2012) [MP3|320 кб/с]<Funky, Club House>
@@ -682,60 +736,6 @@ Albedo 067 - Al & Bi (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81F21EC704C83AC85F097890FA9BA1480B76CEF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825204   (136711) от 16.10.2025
-
-Terminator-Rex - Holograms - Ghosts (2017) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthwave, New Retrowave, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay Still [00:05:56]
-02. Highway [00:04:18]
-03. Size Increaser [00:04:14]
-04. Rider Of Heaven [00:05:02](   Читать дальше...   )Жанр: Synthwave, New-Retrowave, ElectronicПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07AD2DC1BF39DB21A6DA5CEB709970F0B82A1F0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824968   (136793) от 16.10.2025
-
-VA - Dark Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Main Engine - New Reality (Suanda 500 Anthem) (Extended Mix) [6:42]
-02. Tom Exo - Dare To Dream Big (Extended Mix) [6:55]
-03. AMINTO - Spectrum Of Sound (Extended Mix) [5:24]
-04. Mike Zaloxx - Future (Extended Mix) [7:04](   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:491BC1B8F071B55740AAD85B3E791843544F88D5
 ```
 
 

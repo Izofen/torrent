@@ -1,3 +1,32 @@
+###  Публикация: 596598   (130673) от 31.12.2012
+
+VA - Love-Rap BEST (2012) [MP3|320 кб/с]<Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T1One при участии Карэн Кочарян (Karen) - Милая ( T1One Prod.)
+02. KReeD ft. Алексей Воробьев - Больше чем любовь
+03. ПИЦЦА - Париж
+04. Дима Карташов - Нашей с тобой песне название не нужно
+05. Максим Сэмпл - Танцы в минус
+06. Aleksandr Aliev aka HammAli - Любить друг друга никто не сможет запретитьЖанр: RapПродолжительность: 06:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C289663F773B60BB3FA1861C216071286E709000
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596815   (130753) от 31.12.2012
 
 VA - Близко к Диско (2012) 2CD / RG Музыка Ltd. / [MP3|320 кб/с]<italo-disco,pop,rock>
@@ -780,39 +809,6 @@ VA - USA Hot Top 40 Singles Chart 30 December (2012) (2012) [MP3|256 кб/с]<Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B5EB6CCB1673756221B291B9EE99E0BBE6B2F78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595787   (132293) от 29.12.2012
-
-VA - Winter Trance 2012 (2012) [MP3|320 kbps]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tritonal - Azuca - Club Mix
-02. Arty - Gentle Touch - Juventa Club Mix
-03. Adam Szabo - Lego - Original Mix
-04. Daniel Kandi - 3 Strikes UR In - Original Mix
-05. Lange - Crossroads - Original Mix
-06. Boxer - Utah Beach - Max Braiman Remix
-07. Tritonal - Everafter - Mike Shiver Remix
-08. C-Systems - Love Is Strong - Estiva Remix
-09. Fast Distance - Ys - Original Mix
-10. Robert Nickson - Suffer - Shingo Nakamura Remix(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF8037208C83B30661CE0D79902C5183D133DEA
 ```
 
 

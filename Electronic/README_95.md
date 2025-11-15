@@ -1,3 +1,54 @@
+###  Публикация: 1272491   (142798) от 28.12.2018
+
+Gabe Gurnsey - Physical (2018) [FLAC|Lossless|tracks + .cue] <Disco House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultra Clear Sound (4:03)
+02. You Can (3:33)
+03. Temazzy (3:40)
+04. Harder Rhythm (5:18)(   Читать дальше...   )Жанр: Disco HouseПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660E0336C05EC70DDC50D723B9292BD20064EAC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739877   (142914) от 29.12.2013
+
+Darude - 5 Альбомов , 1 Компиляция (2000 - 2012) [MP3|192 - 320 кб/с]<Trance , Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance , Progressive TranceПродолжительность: 03:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B38FE7C2DEB3CB721B8609B8082438221CB248
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590576   (142959) от 17.12.2012
 
 VA - Toolroom Knights (Mixed By Forza) (26.11.2012) [MP3|320 кб/с]<Progressive House, Tech House>
@@ -647,60 +698,6 @@ Sofi Tukker - Soft Animals (2016) EP [FLAC|Lossless|WEB-DL|tracks + .cue] <Nu-Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:892466BE7EC711DF16E62C74A77E52B6765407A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195173   (144341) от 28.12.2017
-
-Miika Kuisma, Luminescent, DJ Tab - Ambient Selection (2017) [MP3|320 Kbps] <Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (Original Mix) 3:43
-02. 128 feat. Luminescent (Original Mix) 5:52
-03. Lightworks (Original Mix) 5:40
-04. Fastforward In Stillness (Original Mix) 3:05(   Читать дальше...   )Жанр: DowntempoПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93BE95D04620339CFCCA3FA241D34929122F8612
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195357   (144387) от 28.12.2017
-
-VA - Suanda Music Radio Top 20 2017 [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - Lullaby (Original Mix) (Feat. Roxanne Emery) 03:56
-02. Photographer - Infinity (Roman Messer Remix) 05:40
-03. Bogdan Vix - I Am Now (Mhammed El Alami Extended Remix) 06:40
-04. Frainbreeze - Black Eagle (Ahmed Helmy Extended Remix) 05:49(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691E383CDF7F16E08F4FB3315FAFA297CF3BCAE3
 ```
 
 

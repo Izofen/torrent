@@ -1,3 +1,57 @@
+###  Публикация: 1715628   (111421) от 13.04.2024
+
+VA - Selected Miami 2022: Tech House Cuts (2022) Unmixed [FLAC|Lossless|WEB-DL|tracks] <Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lexx Groove – Dancin' (6:40)
+02. Little Rick – What's Going on (5:12)
+03. Sliced – Something's Happening (6:10)
+04. Markyno – Great Life (6:43)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D741F1408E3007AE2B0607384848C15CFF6207E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715830   (111438) от 13.04.2024
+
+Alex O'Rion - Nostalgia (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex O'Rion – Elephant
+02. Alex O'Rion – Dank Farrik
+03. Alex O'Rion – Vale
+04. Alex O'Rion – Cellar Door(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A278B618B84F445E4880F372C9584594D3532AF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715999   (111486) от 13.04.2024
 
 ASC - Reflections (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Jungle>
@@ -641,60 +695,6 @@ VA - Pure Synthwave, Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Ret
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86CA1EC940F6D59CA8CCAE8E076F6028A05117E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713421   (111904) от 06.04.2024
-
-MORTEN - Tomorrowland Friendship Mix (2024-04-04) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN - The Truth
-02. DJ T. - Dis (2023 Remake)
-03. Eitan Reiter - Pump Up The Jam (DJ T. Remix)
-04. RAFFA GUIDO - Famax(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 01:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB2EE94C97AA54DD0BD47CD2BDB67FE508304F65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713153   (111914) от 05.04.2024
-
-VA - Armin van Buuren - A State Of Trance 1167 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nico De Andrea & Eli & Fur - Start The Fire
-02. Yotto & AVIRA - Forget (Progressive Pick)
-03. Beatsole - Always Spring
-04. Dan Stone - With You(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61798D4E69B01823FE2E5862843B1B146FDA8805
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 594322   (134200) от 25.12.2012
+
+VA - До 18 и старше №40 Зима (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134200.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. White Project - Новогодняя (Radio Version)
+002. DJ Smash feat. Asti - Атом
+003. Аксиома - Новый Год В Июле
+004. White House - Я Так Люблю Тебя
+005. Vetra-N - Долго нельзя
+006. Pulse - Танцуй Со Мной
+007. Maxigroove - Орбит Без Сахара
+008. Manifest & Leo - У-у-у
+009. СтаЯ - Привет DJ
+010. Makhno Project - Высота (Radio Edit)(   Читать дальше...   )Жанр: РорПродолжительность: 06:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E9E9A4E9DDCFEE8AD93C8F400DF3A356EF45640
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680379   (134217) от 29.11.2023
 
 VA - Music News vol.319 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -779,39 +812,6 @@ VA - Ultra.Trance: 5 (2005) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2E4B31119625DEF4FC8092479DC777FA493F615
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592718   (134992) от 24.12.2012
-
-VA - The Club music 2 (2012) [MP3|256 кб/с]<Club,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neil Davidge - Arrival (Norin & Rad Remix)
-02. Europe - The Final Countdown (DJ Shevtsov & Slash Junior Remix)
-03. Klonez - Funked
-04. DJ Pitkin - club opera
-05. Иван Дорн - That Girl ( Johnny Funk Mash-Up)
-06. Lolita Hunters feat. Robkay - Heut` Nacht (Radio Edit)
-07. Tocadisco, Koen Groeneveld, Ahmet Sendil - Oldschool (Ahmet Sendil Mix)
-08. Kerli - The Lucky Ones (Hector Fonseco Remix)
-09. Offspring & Fernando Lopez - Self The Plumber (Coffee B Mash-UP 2012)
-10. Kojak - Come(   Читать дальше...   )Жанр: Club,DanceПродолжительность: 08:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A37E06D727E163124E063130C6AA6C4BD8E08C73
 ```
 
 

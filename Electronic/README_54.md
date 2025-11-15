@@ -1,3 +1,57 @@
+###  Публикация: 1762081   (102954) от 24.11.2024
+
+VA - The Best Of Suanda True 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AYUUB - Teemo (Extended Mix) [5:09]
+02. Adip Kiyoi - Queen Of Zee (Extended Mix) [7:26]
+03. Kaselia - Albatross (Extended Mix) [6:31]
+04. Christopher Corrigan - Vanishing Echoes (Extended Mix) [6:40](   Читать дальше...   )Жанр: TranceПродолжительность: 03:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F095F0E97D3DF4C0CC5ECE3ADBC56AE27B598CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762077   (102956) от 24.11.2024
+
+VA - The Best Of Suanda Future 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gid Sedgwick - One Track Mind (Extended Mix) [4:53]
+02. Adip Kiyoi & Eky - Pure (Extended Mix) [5:33]
+03. Tonerush & Pragma - El Fuego (Extended Mix) [4:52]
+04. Nucrise - I'll Be There (Extended Mix) [5:51](   Читать дальше...   )Жанр: TranceПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7A0CFA6453DDAE1585AAAC3EAB7E9C285EA0A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762068   (102985) от 24.11.2024
 
 VA - The Best Of Suanda Progressive 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Vocal Trance>
@@ -641,60 +695,6 @@ VA - Best of 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B194F909C39F8AEFE0E75F984521109D763B176
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758200   (103410) от 01.11.2024
-
-VA - Armin van Buuren - A State Of Trance 1197 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Norman – Phantom Manor (Daniel Wanrooy Remix)
-02. Vintage Culture & Fideles ft. Be No Rain – Fallen Leaf (Massano Remix)
-03. Yoel Lewis – Meteor
-04. MRPHLNDR – Tron (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05322831652000E8EB833D15E4EEAF8CA2DBC067
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757416   (103444) от 27.10.2024
-
-VA - Halloween Party 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Mamacita [02:45]
-02. Lorenz Koin - Adrenaline [02:05]
-03. JLUIS & Teknova - Fast Love [02:26]
-04. MaxRiven - Together [02:44](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B914F81CB0773172EE2995BDC597A74BC30720
 ```
 
 

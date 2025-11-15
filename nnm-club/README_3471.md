@@ -1,687 +1,695 @@
-###  Публикация: 1719158   (110607) от 28.04.2024
+###  Публикация: 1721736   (109938) от 08.05.2024
 
-Stefano Paolini - Modern Jazz Drumming, Vol. 1 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three and Four (4:30)
-02. Three and Four (No Drums) (4:30)
-03. Relaxin at Home (5:44)
-04. Relaxin at Home (No Drums) (5:44)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F7726497D40C38164F234356856F3D57BC79AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719135   (110608) от 28.04.2024
-
-Barbara Morrison featuring Houston Person - A Sunday Kind Of Love (2010 - 2012) 2013, Savant [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Just a Lucky So and So [4:42]
-02. Soft Winds [3:46]
-03. The Green Door [3:54]
-04. Good Morning Heartache [4:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6418F661AABA516C5B9C8FA15720B8DCC32DCFCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719134   (110609) от 28.04.2024
-
-Bruno Montrone - Unaware Beauty (Studio) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Alessandro Brunetta - Shakedown! (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz, Soul>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Edward Lee (Studio) (8:50)
-02. Riflessiva (Studio) (6:39)
-03. Unaware Beauty (Studio) (6:42)
-04. The Hodgepodge (Studio) (4:54)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:58:12
+01. Wasting The Night (4:57)
+02. Like Meteorite Stone (8:28)
+03. Mir I Am (Power Version) (4:41)
+04. Under That Foam (6:42)(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 00:34:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E819F2AB9C49093E5A8CAA6C677DF60FB38B578
+magnet:?xt=urn:btih:BDCB41B62B066FBEB59F01434C57233C226BCF29
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719157   (110610) от 28.04.2024
+###  Публикация: 1721556   (109939) от 08.05.2024
 
-Nigel Price Organ Trio - That's It. Right There (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Shirley (6:57)
-02. Morning Star (7:55)
-03. Night Flight (6:37)
-04. You Don't Know Me (8:18)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3316954DE75FFDB381CF7DEE3953EE8A1A3401
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719156   (110611) от 28.04.2024
-
-Juan Pablo Balcazar - Otro Quatuor Pour La Fin Du Temps (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preludio al Quartet (9:26)
-02. I El Despertar (5:55)
-03. II El Anuncio (6:23)
-04. III El Abismo (3:36)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812307333CE9004D1C08208515E4DCEA6F03EE9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719139   (110612) от 28.04.2024
-
-Rob Stoneback Big Band - Caught In The Web (1996) Sea Breeze [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caught in the Web [3:19]
-02. Canadian Sunset [3:34]
-03. Lullaby of Birdland [4:08]
-04. Road Apple [4:24](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5AA929BE1D119903539CFEC4223BDBEDD5275BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719179   (110613) от 28.04.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 4-й матч) Бостон Брюинз - Торонто Мэйпл Лифс (27.04.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110613.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 апреля 2024, воскресенье. 03:00 МСК. 1/4 финала - Восток. 4-й матч. Стадион: Скоушабэнк-Арена (Торонто, Канада), 19 256 зрителей (95% при вместимости 20 270)
-Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Линейный: Стив Бартон (Ванклик Хилл, Канада); Линейный: Кайл Флемингтон (Паркхилл, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E10E94E6FCD851CDE14DA6FBE791CABA439BA42A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719128   (110614) от 28.04.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 4-й матч) Каролина Харрикейнз - Нью-Йорк Айлендерс (27.04.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110614.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 апреля 2024, суббота. 21:00 МСК. 1/4 финала - Восток. 4-й матч. Стадион: Ю-Би-Эс-Арена (Элмонт, США), 17 255 зрителей (100% при вместимости 17 255)
-Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Главный судья: Тревор Хансон (Ричмонд, Канада); Линейный: Джонни Мюррей (Бипорт, Канада); Линейный: Эндрю Смит (Китченер, Канада)Телекомпания: TBSЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED22243541C72B5AB00B5B80D78C835D3DBEB6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719129   (110615) от 28.04.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 4-й матч) Флорида Пантерз - Тампа-Бэй Лайтнинг (27.04.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110615.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 апреля 2024, воскресенье. 00:00 МСК. 1/4 финала - Восток. 4-й матч. Стадион: Амали-Арена (Тампа, США), 19 092 зрителя (100% при вместимости 19 092)
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Кил Марчисон (Кловердейл, Канада); Линейный: Брэндон Гаврилетц (Трэил, Канада)Телекомпания: TBSЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A27C022F7083436E360898EA89105C02B8B198
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719184   (110616) от 28.04.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 3-й матч) Даллас Старз - Вегас Голден Найтс (27.04.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110616.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 апреля 2024, воскресенье. 05:30 МСК. 1/4 финала - Запад. 3-й матч. Стадион: Ти-Мобайл Арена (Парадайс, США), 18 536 зрителей (99% при вместимости 18 702)
-Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Кендрик Николсон (Милвертон, Канада); Линейный: Дэвин Берг (Китченер, Канада); Линейный: Райан Дейзи (Мансфилд, США)Телекомпания: TBSЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D91985232B9EA64E8F7481FB42F24CBE8CB0229
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719181   (110617) от 28.04.2024
-
-Первая передача на НТВ. Автомобильная передача (28.04.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ошибка страховой компании: должен ли пострадавший в ДТП вернуть полученную выплату?
- Автомобиль в аренду с выкупом: как отбить машину?
- Баварская «копейка»: чего ожидать от машины при пробеге более 150 тысяч км?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F488F935EA79A3136F7765E92E6D6104BB3C5803
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719316   (110618) от 28.04.2024
-
-Marina Kaye - Heavenbound (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <World, Europe French Music>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavenbound [00:03:13]
-02. What if [00:03:21]
-03. Dark Magic [00:03:15]
-04. Ghost [00:03:23](   Читать дальше...   )Жанр: World, Europe French MusicПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C06BC1945B7E3E5BFB56958CEFF6CF6CF22A2D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719280   (110619) от 28.04.2024
-
-Сорвать банк / Cash Out (2024) WEB-DLRip [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110619.jpg" />
-</div>
-
-
-###  Подробнее
-
-После неудачного дельца и вынужденного расставания с возлюбленной талантливый преступник Мэйсон Годдард впадает в депрессию и уходит от дел, перестав даже общаться со своей верной шайкой. Младший брат Шон пытается взбодрить Мэйсона, но того больше не соблазняют ни обещания большого куша, ни перспектива хватануть адреналина в очередной погоне от полиции. И только (   Читать дальше...   )Производство: США / BondIt Media Capital, Convergence Entertainment GroupЖанр: боевикРежиссер: АйвзАктеры: Джон Траволта, Кристин Дэвис, Лукас Хаас, Quavo, Виктория Брандарт, Деми Кастро, Джоэль Коэн, Луис Да Силва мл., Джейк Элленц, Мэтт Джералд и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:28Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719132   (110620) от 28.04.2024
-
-Bar Music Masters - Lemonade Lounge: Jazz Beats in Every Refreshing Glass (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunny Jazz (3:37)
-02. Flower Tea (3:16)
-03. Mellow Sunlight (4:05)
-04. Peach Lemonade (4:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519D002A47DF8D9F99264F3610A42F08A99CCD95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718895   (110621) от 28.04.2024
-
-Юрий Гусев - Кукуха (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кукуха [00:03:48]
-02. Лапша [00:02:12]
-03. Было [00:03:12]
-04. Погода [00:01:42](   Читать дальше...   )Жанр: RockПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA63C9F243FAF98AF04CD34F34BB6B7BAB5046FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719133   (110622) от 28.04.2024
-
-Bobby Watson & Horizon - No Question About It (1988) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Country Corn Flakes [6:25]
-02. Forty Acres and a Mule [5:43]
-03. What Can I Do for You [7:22]
-04. Blood Count [4:13](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C76B378DBA3973D35E21CA3EE949200B6CAF79B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719141   (110623) от 28.04.2024
-
-Instrumental Wedding Music Zone - Romantic Saxophone Jazz for Wedding (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spot Light (3:03)
-02. Dual Harmony (3:39)
-03. Take My Hand (3:11)
-04. Long for You (3:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521F9F2F939456C695C63E74AC51799983C1D49C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719036   (110624) от 28.04.2024
-
-In My Hands - Крепче (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:00:41]
-02. Без лица [00:04:19]
-03. Крепче [00:03:44]
-04. Наш новый сериал [00:04:00](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7208C1C74BA34B048EFE8A050A8352731FED09CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719294   (110625) от 28.04.2024
-
-Своя игра (28.04.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110625.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться 30 игр, и победитель получит один миллион рублей!
-
-В этом выпуске завершается первый круг юбилейного турнира. Во второй круг выйдут (   Читать дальше...   )Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5F6DB9528E3C2DB1D20400699131ABE1A4264D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719138   (110626) от 28.04.2024
-
-Instrumental Music Ensemble - Focus Grooves: Smooth Jazz for Concentration (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motivational Jazz (3:11)
-02. Hard Work (3:38)
-03. I'm Focused (3:29)
-04. Grab Opportunities (3:07)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F678EFE76E9073C1CA40326DD8BCE3F740F7D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718892   (110627) от 28.04.2024
-
-Пыль - Все напитки мира (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Долой из глаз [00:03:33]
-02. Сервисный центр [00:04:03]
-03. Все напитки мира [00:01:51]
-04. Герои [00:02:25](   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8771080EB9FBC604DDCA7D2E1E001F16A8F583D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719317   (110628) от 28.04.2024
-
-Сто к одному (28.04.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110628.jpg" />
-</div>
-
-
-###  Подробнее
-
-"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
-Потому что сколько людей, столько и мнений.
-
-А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда Сто лет тому к одному против команды Весельчак и компанияЯзык озвучки: РусскийПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF23CD3DAE59E35CB440E187EE61661199BD283
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719159   (110629) от 28.04.2024
-
-Wayne S. Hicks - Resilence (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice Day (3:47)
-02. On The Sea (3:26)
-03. Prosper (3:50)
-04. Resilience (3:36)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537905ADFEE6F7854F3D12107200F579CFBABABD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718534   (110630) от 28.04.2024
-
-Cousin Kula - Vitamin D (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clothes Off [00:05:42]
-02. Poisoned [00:04:05]
-03. Staying With You [00:04:48]
-04. Hangin' On Your Lips [00:02:50](   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90625947A7B6F9EF4B04B40069636962AFA3754
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719142   (110631) от 28.04.2024
-
-Judy Wexler - Under A Painted Sky (2011) Jazzed Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderful Wonderful [4:35]
-02. And How I Hoped for Your Love [4:38]
-03. An Occasional Man [4:20]
-04. Don't Wait Too Long [3:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D228868D53758834FE6CC9F41572A7EEFBAAA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719233   (110632) от 28.04.2024
-
-Attic - Return of the Witchfinder (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Blaze of Perdition - Conscious Darkness (2017) [FLAC|Lossless|tracks + .cue] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The Covenant (00:01:47)
-02 - Darkest Rites (00:05:35)
-03 - Hailstorm And Tempest (00:05:32)
-04 - The Thief's Candle (00:06:16)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:11
+01 - A Glimpse of God (10:59)
+02 - Ashes Remain (14:48)
+03 - Weight of the Shadow (07:59)
+04 - Detachment Brings Serenity (09:18)Жанр: Black MetalПродолжительность: 00:43:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A403C06D816B3F005152C2E739CA6D45A146602
+magnet:?xt=urn:btih:1894A8C5457D1ADD316C4FC27B4A8BC308EC7FB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721687   (109940) от 08.05.2024
+
+Shrine of Insanabilis - Vast Vortex Litanies (2019) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Parallax Endeavour
+02 - Lusting After a Burning Star
+03 - The Last-Born Tyrant
+04 - Vertex(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980CC3452ACAF0CFD4545FC2F012294E0C31D113
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721633   (109941) от 08.05.2024
+
+David "Fathead" Newman & The Tilden Webb Trio - Cellar Groove (2004) 2013, Cellar Live [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cellar Groove [8:53]
+02. The Cookie [7:17]
+03. Lady J [6:14]
+04. Hard Times [7:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1C3A25708EC0C6A769F1B2FDF59EF95EC8AFFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721684   (109942) от 08.05.2024
+
+Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropolis (2016) EP [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Burning Voice (05:52)
+02 - Hamartia (06:00)Жанр: Black MetalПродолжительность: 11:50 02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374E950579AC65F654ADA97CC4161270DDBF4D25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721753   (109943) от 08.05.2024
+
+Gugun Blues Shelter - Coming Out (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Out (3:13)
+02. Don't Cry For Me (3:53)
+03. Heart Breaker (4:01)
+04. Bad Politician (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D4D0D449C1C8E64E288529C5DD4F50CD4AC788
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721613   (109944) от 08.05.2024
+
+Joe Metzka - Blues for Daniel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evil (7:00)
+02. Dance with Me Baby (6:09)
+03. B Side Blues (11:16)
+04. Blues for Daniel (2:23)Жанр: BluesПродолжительность: 00:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C4ABE0DCA3D35FAFE1CFE242172CB1E070CF40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721640   (109945) от 08.05.2024
+
+Blazing Eternity - A Certain End of Everything (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Death, Doom Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Thousand Lights (07:30)
+02. The Secrets Of White (06:17)
+03. A Certain End Of Everything (07:09)
+04. The Ghosts Of Another Broken Life (05:17)(   Читать дальше...   )Жанр: Melodic Black, Death, Doom Metal, Gothic MetalПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5D9CE11DFE682BDB285358EB27A5E8D8AD6471F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721764   (109946) от 08.05.2024
+
+WailingGita - Mafia's Masquerade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frolicking Marionette (5:48)
+02. Swoon Buffoon (5:34)
+03. Kumicho's Grand Entrance (4:51)
+04. Malice Palace (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD2467FA55D85D630BC2E0EAAA37C8859CAD5C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721755   (109947) от 08.05.2024
+
+Monica Shriver - Unfolding (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lift (6:05)
+02. Brick By Brick (5:17)
+03. Blue Nile (8:38)
+04. It's Not All On You (5:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC09E530AF13FD66170223B5D66F739094FDBBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721708   (109948) от 08.05.2024
+
+Bloodcum - Arsestabbers (2001) Demo, Reissue, 2020, Brutal Mind [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vaginal Butchery
+02. Stabbed In The Arse
+03. Ripping Chainsaw Orgasm
+04. Anal Cum(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E4DA38C96409187E17A7AACD5BEF85BFAA688F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721756   (109949) от 08.05.2024
+
+Novelty Five - Rosetta (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Have Found a New Baby (4:21)
+02. Careless Love (Loveless Love) (3:11)
+03. Basin Street Blues (4:07)
+04. Jitterbug Waltz (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:442047F4047E8318CFEA55956DFBC83817B4C264
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721465   (109950) от 08.05.2024
+
+Charles Fambrough - Keeper Of The Spirit (1995) AudioQuest Music [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels at Play [4:35]
+02. Pop Pop's Song [5:22]
+03. Life Above the Means [5:52]
+04. A Little This, A Little That [5:16](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D7B16A2DBDBDC372946B9F8161CE00D76AC9D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721638   (109951) от 08.05.2024
+
+Blazing Eternity - A World to Drown In (2003) [FLAC|Lossless|image + .cue] <Melodic Black, Death, Doom Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cover Me With Your Eyes (04:22)
+02. To Meet You in Those Dreems (03:40)
+03. A World to Drown in (08:17)
+04. Stars in July (04:23)(   Читать дальше...   )Жанр: Melodic Black, Death, Doom Metal, Gothic MetalПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108ECB26E784BBAEA8709DBE2D53393C63B29588
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721747   (109952) от 08.05.2024
+
+Fux Jazz Band - Mi Lugar de Fantasía (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mi Lugar de Fantasía (3:53)
+02. Los Colores del Blues (3:20)
+03. Vals Bajo La Luna (4:22)
+04. Down The Hill (3:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53B6448B2F7E64E795F8DC5E0634E9B7324A3C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721679   (109953) от 08.05.2024
+
+Shrine of Insanabilis - Disciples of the Void (2015) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - End All
+02 - Ruina
+03 - Acausal Paths
+04 - (...........)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309AC8B03CB24FC9D3EC46324D09101AE49ABA78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721739   (109954) от 08.05.2024
+
+AWaJI Jazz Blues - Superstition (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superstition (4:38)
+02. Mr. Cool (8:43)
+03. Jupiter (8:14)
+04. New York (Darkness) (7:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957CF877280955E82C02C89205B03CD3B8CDD45F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721740   (109955) от 08.05.2024
+
+Bastardz Music Lab - Episode #64 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Small Man (2:53)
+02. Cognac Or Wine (2:38)
+03. A Warning Measure (2:31)
+04. A Petty Lie (2:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A56BB2D527C539ABD124A1676A4CAC32BD98A2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721643   (109956) от 08.05.2024
+
+Jacky Terrasson & Stephane Belmondo - Mother (2016) Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Song [3:16]
+02. Hand in Hand [4:42]
+03. Lover Man [4:52]
+04. La chanson d'Helene [3:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6BA49C12EDF967E29A0CA2D7EB979E15979D0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721636   (109957) от 08.05.2024
+
+Blazing Eternity - Times and Unknown Waters (2000) Released, 2001, Irond Ltd [FLAC|Lossless|image + .cue] <Melodic Black, Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concluding the Dive of Centuries (06:18)
+02. Fortabte Horisonter (07:55)
+03. Of Times and Unknown Waters (04:23)
+04. Still Lost in the Autumn Of Eternity (06:06)(   Читать дальше...   )Жанр: Melodic Black, Death, Doom Metal, Gothic MetalПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A1AE794EDB5AE9ACA008B7825A7AC0370C96A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721399   (109958) от 08.05.2024
+
+Fretting Obscurity - Das Ungluckliche Bewusstsein (2024) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom, Melodic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As in Creation Hour
+02. Das Heilige
+03. To Burn Insatiably
+04. Das SchaudernЖанр: Funeral Doom, Melodic Death, Black MetalПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3F84D0DB00151F2B653DB74E78F890BA5CBEFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721457   (109959) от 08.05.2024
+
+Bud Freeman - Newport News (1955) 2013, Solid Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Newport News [2:40]
+02. At Sundown [4:00]
+03. Exactly Like You [4:05]
+04. Let's Do It [3:03](   Читать дальше...   )Жанр: SwingПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F504039353104C24AFE1F8BF95B8E1DBA8D72C50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721558   (109960) от 08.05.2024
+
+Blaze of Perdition - The Harrowing of Hearts (2020) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suffering Made Bliss
+02. With Madman’s Faith
+03. Transmutation of Sins
+04. Królestwo Niebieskie(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D84458463D475B4D288945882BED33993D2CC20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721641   (109961) от 08.05.2024
+
+Gene Harris - Live At Otter Crest (1981) 2001, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Lorraine [5:54]
+02. My Foolish Heart [5:50]
+03. A Little Blues There [11:38]
+04. Battle Hymn of the Republic [11:25](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E12830A84A2DC7D370BB9F02D23AC005AE0B865
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721469   (109962) от 08.05.2024
+
+Charles McPherson - Charles McPherson (1971) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What's Going On [3:32]
+02. Serenity [7:28]
+03. My Funny Valentine [7:45]
+04. Another Kind of Blues [7:15](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71282E424BA2426C22E870948F0D66258DE57D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721443   (109963) от 08.05.2024
+
+Maddix Feat. Feles - My Gasoline (2023) [FLAC|Lossless|tracks] <Tech Trance, Peak Time Techno, Electroclash>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maddix Feat. Fēlēs - My Gasoline (3:57)Жанр: Tech Trance, Peak Time Techno, ElectroclashПродолжительность: 00:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03146969A7AB4D3D51A0E572033D6B1FF0D87B1E
 ```
 
 

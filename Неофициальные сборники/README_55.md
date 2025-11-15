@@ -361,6 +361,39 @@ magnet:?xt=urn:btih:516ED820DED3B95F6586F8F2679B9917D3E726B7
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482673   (99603) от 14.04.2012
+
+VA - The Best Pop Albums of 2011 on Amazon (2011) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marry The Night  (04:25)
+02. Born This Way  (04:21)
+03. Government Hooker  (04:15)
+04. Judas  (04:09)
+05. Americano  (04:07)
+06. Hair  (05:08)
+07. Scheibe  (03:46)
+08. Bloody Mary  (04:05)
+09. Black Jesus + Amen Fashion  (03:37)
+10. Bad Kids  (03:51)(   Читать дальше...   )2011 Release "Жанр: PopПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482781   (99638) от 14.04.2012
 
 VA - Авто Дискотека DFM Зарубежная (2012) [MP3|256 kbps]<Pop | Club>
@@ -820,39 +853,6 @@ VA - Mega парад Русских ДиДжеев 3CD (2012) [MP3|320 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74A09ECC775C78CEEB1363DF8B95EAFD159F4DA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484211   (100193) от 22.04.2012
-
-VA - Клубные Новинки Vol.61 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebastian Brandt - Mana (Original Mix)
-02. Rafael Frost - Channel 4 (Original Mix)
-03. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)
-04. Armin Van Buuren & Orjan Nilsen - Belter (Original Mix)
-05. Phunk Investigation - Smash (Original Mix)
-06. Morgan Page feat. Nadia Ali - Carry Me (Extended Mix)
-07. Kachu MX - Alien Bubble (Original Mix)
-08. suGar, Eva Kade, Evil T - All Around (Blood Groove & Kikis Remix)
-09. Matula feat Goldsound - Wonderful World (Gaga Remix)
-10. Chris Online feat. Alray - Once Again (Horny United Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35CE40D0589331F0BB4357B7BC9DA246667A8E06
 ```
 
 

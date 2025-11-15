@@ -1,3 +1,111 @@
+###  Публикация: 1658837   (190609) от 10.09.2023
+
+Thunder Volt - 4 Releases (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Bear's Rythm) [00:02:30]
+02. To Let This Go [00:04:40]
+03. Don't Need Your Love [00:05:07]
+04. Keep Complain [00:03:38](   Читать дальше...   )Жанр: Grunge, Stoner, Doom MetalПродолжительность: 01:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33B31E661FA93A404F3B12929A7A2F33833094A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658901   (190650) от 10.09.2023
+
+Якорь - Дорога к счастью (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дорога к счастью [00:04:57]
+02. Ой тяжел ремень, бляха чёрная... [00:04:48]
+03. Последняя агония [00:03:49]
+04. Не здесь и не сейчас [00:04:20](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A06DF4715F26EAA5C1BFD4802569A1BE7438F4BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658552   (190974) от 09.09.2023
+
+The Starkillers - Пираты Японского Моря (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Метал командос [00:03:34]
+02. Кайдзю Кай [00:03:32]
+03. Что за уроды на сцене? [00:03:57]
+04. Сумасшедшие года [00:02:56](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600791D5A01D866975604A0B8E3BC5969367F316
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658556   (190982) от 09.09.2023
+
+Ravanna - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Уходя уходи [00:03:31]
+02. Всё ок [00:03:11]
+03. Лес [00:03:52]
+04. Отпусти меня [00:03:01](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D844A8714331DF99123B99F2E23E7ED7F227ADD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658762   (190985) от 09.09.2023
 
 Ермак! - Манкурт (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.Rock>
@@ -584,114 +692,6 @@ magnet:?xt=urn:btih:BDB3B9348C094DFC649B4392E065DDC6E4AB07EE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6E95649C83FF0571B89C52DFFAF9A2EB05454D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 373281   (193234) от 01.09.2023
-
-Tequilajazzz - Лучшее (2CD) (2010) [FLAC|Lossless|image + .cue]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кокаин (3:03)
-02. Звери (6:53)
-03. Кроме звезд (4:49)
-04. Стратосфера (4:44)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 02:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545D60A774506357E3308557CD6DCD8183F90B50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521572   (193308) от 23.10.2025
-
-Агата Кристи (Глеб Самойлов) - 14 альбомов + 2 Макси-сингла + 6 сборников (1988-2010) [FLAC|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агата Кристи — культовая советско-российская рок-группа, ставшая одной из самых популярных в первой половине 90-х, основана Вадимом Самойловым, Александром Козловым и Петром Маем в 1988 году в Свердловске (ныне Екатеринбург). Глеб Самойлов изначально не принимал участие в создании группы, он присоединился к группе во время записи альбома «Второй фронт». О своём вступлении (   Читать дальше...   )1988 - Второй фронт (1997, Extraphone, Ex-97031)
-1989 - Коварство и любовь (1995, Extraphone, Ex-95007)
-1990 - Декаданс (1995, Extraphone, Ex-95006)
-1992 - Позорная звезда (1995, Extraphone, Ex-95005)(   Читать дальше...   )Жанр: RockПродолжительность: 18:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82115D42595C09D75A79B540040EC8B9D42CC70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661768   (194331) от 13.08.2023
-
-Звуки Му - 21 альбом, 1 бутлег (1987 - 2005) Дискография [FLAC|Lossless]<Experimental Rock, Art Rock, Post Punk, Punk Rock Meditation>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Experimental Rock, Art Rock, Post Punk, Punk Rock MeditationПродолжительность: 00:53:33
-01. Мальчик-с-пальчик
-02. Разбойник и его сыновья
-03. Золушка(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFBC04D0BD55E2D90F6C70D9023A45C3F7075F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650414   (194960) от 01.08.2023
-
-Radio Tapok - Эпоха Империй (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Петропавловск [00:03:59]
-02. Распутин [00:03:44]
-03. Белая Лилия [00:03:44]
-04. Гангут [00:04:43](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F2F8CB45CB95E2D36E8786F8A183B1B96DD82D8
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1700432   (116874) от 18.02.2024
+
+VA - Electronic compilation part 56 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hamidshax - Soul
+02. Roudeep - I Miss You
+03. Adik - One Love
+04. Riltim - Desert(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C95D3CA21764A159C43F84E36A3A3A6A3B4F79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700821   (116881) от 18.02.2024
 
 VA - Bassline Anthems (2024) [MP3|320 Kbps] <DnB, Bassline, Electro>
@@ -668,33 +695,6 @@ Elle & The Pocket Belles - Compilation (2024) [MP3|320 Kbps] <Electro Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFB195FC0D2925847145AC00AD599ED729A51508
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698282   (118307) от 10.02.2024
-
-VA - Compilation Electronic part 52 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hamidshax - Amelia
-02. Afrasiab - Here is My Heart
-03. Kenzo - Life
-04. Davvi - Sun is Dark(   Читать дальше...   )Жанр: ElectronicПродолжительность: 05:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9383D33F8523AE0D32CD2EA5876BD42FBD77E8A6
 ```
 
 

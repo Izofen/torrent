@@ -1,3 +1,110 @@
+###  Публикация: 1681127   (133165) от 02.12.2023
+
+S-VOX feat. Давид Тодуа, Вадим Самойлов - Моя звезда (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сердце [00:04:33]
+02. Нейлон [00:03:50]
+03. Моя звезда [00:04:39]Жанр: RockПродолжительность: 00:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FDEC732ABC75DB6A64698D9421F23A7382BEC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594767   (133204) от 27.12.2012
+
+Валькирия - Святым огнём (2012) [FLAC|Lossless]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Путь домой
+02. Таинственный зверь
+03. Странник
+04. Храм заблудших душ(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680817   (133520) от 01.12.2023
+
+LikArt - Мессия в MP3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Своё шоу [00:02:37]
+02. Плак-плак [00:02:36]
+03. Целуй! [00:02:36]
+04. Научи меня летать [00:02:55](   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0ACCBAC7E974D26D88ADEEAD02ADA4AEA11C8CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680739   (133539) от 01.12.2023
+
+DEgITx - Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Electro-Industrial, Melodic Death Metal >
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transistor (Intro) [00:02:46]
+02. Aurora [00:04:14]
+03. Path [00:02:17]
+04. Moon [00:04:21](   Читать дальше...   )Жанр: Power Metal / Instrumental / Electro-Industrial / Melodic Death Metal / Sid Metal / Folk MetalПродолжительность: 01:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63900F0EBC0D757853018D0D1B0344D6106E629F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593927   (134020) от 25.12.2012
 
 VA - Мешанина или неГолубой огонёк (2CD) (2004) [APE|Lossless] <Rock>
@@ -595,114 +702,6 @@ magnet:?xt=urn:btih:6361198C43A250B66091329BAA28B1750A841A24
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678980   (142177) от 23.11.2023
-
-Prostoband - Гештальт (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Птица-жизнь [00:03:16]
-02. Навсегда [00:04:32]
-03. На краю пропасти [00:04:29]
-04. Сам за себя [00:04:10](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895D7459731F8E8773B68FB883EA58E4062EE5F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678883   (142600) от 23.11.2023
-
-Антон Эльдаров - Летание (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Люба [00:03:25]
-02. Трамвайный гранж [00:02:52]
-03. Слова [00:04:00]
-04. Кольцевая [00:04:48](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E79EA5D8E497D24912C7545BF41269FD00CCA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520235   (143853) от 27.12.2021
-
-Jasanel - The Universe Can Sing (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Days (03:30)
-02. The Universe Can Sing (03:26)
-03. Make You Feel (03:47)
-04. Should Know (03:04)(   Читать дальше...   )Жанр: Melodic Metal, Female VocalПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F7C49E69372A40D6E36ACEE05D9F586A8BF7B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678767   (143901) от 22.11.2023
-
-СЛОТ - Инстинкт выживания (2022) Live in Moscow, Explict Edition, M2BA [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro 2021 (Live in Moscow) [00:01:32]
-02 - Стадия гнева (Live in Moscow) [00:04:09]
-03 - Пуля (Live in Moscow) [00:03:34]
-04 - 200 кВт (Live in Moscow) [00:03:33](   Читать дальше...   )Жанр: Alternative-MetalПродолжительность: 01:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:166621B7FD1CB8DC0FACE46B9C05B056741F5C2F
 ```
 
 

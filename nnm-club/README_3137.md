@@ -1,669 +1,691 @@
-###  Публикация: 1768155   (101139) от 24.12.2024
+###  Публикация: 1769352   (100675) от 28.12.2024
 
-Brad Gillies - Juxtapose (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting & Hoping (3:41)
-02. Waltz & Sway (3:54)
-03. Mark Jeffrey (3:00)
-04. La Groove (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C456CAFCC35039B157757C600CC56171C4CE3C8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768150   (101140) от 24.12.2024
-
-Bluesblocket - Potatismos & Skandinavisk Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+The Wind Blowers - Blues for Rainy Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100675.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. POTATISMOS OCH SKANDINAVISK BLUES (4:09)
-02. BLUES ÄR INTE GRATIS (5:24)
-03. DJÄVULEN I FLASKAN (4:20)
-04. EN MAN SOM HETER LASSGÅRD (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:32
+01. Ain't Got No Money (1:56)
+02. Back Door Blues (3:24)
+03. Bad Luck (2:47)
+04. Bad Time Blues (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C57D743835A6D0D509D3E9EE79F06E275032771
+magnet:?xt=urn:btih:D1739C4EDC5F896F18236377706E6CA446806692
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768145   (101141) от 24.12.2024
+###  Публикация: 1769198   (100676) от 28.12.2024
 
-3to1-Cigarboxblues - Live Today (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Rosemary Clooney - Irving Berlin's White Christmas (1954) 2014, Real Gone Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Christmas [3:30]
+02. Mandy [2:39]
+03. Snow [2:43]
+04. Gee, I Wish I Was Back in the Army [2:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD18A689A255A660DB4099113824E61B094B2221
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769332   (100677) от 28.12.2024
+
+Teddy Horangic & Frank Lacy - This Christmas With Night Is Alive (2023) Night Is Alive Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Snow [2:31]
+02. We Three Kings [3:55]
+03. Have Yourself a Merry Little Christmas [4:56]
+04. Sleigh Ride [3:48](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A36F87876E4A2937B90914D1249FA34C65C79200
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769346   (100678) от 28.12.2024
+
+The Mudhounds - The Dirt I’m Used To (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (0:40)
-02. Live Today (6:07)
-03. Newspaper Blues (4:52)
-04. Ride or Die (4:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:02
+01. High Water Blues (2:55)
+02. White Trash Mind (3:08)
+03. Mississippi Mud (2:55)
+04. Corn Liquor (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:724E4CBB4AF5474CF1F6B6BEB72D832033FDA115
+magnet:?xt=urn:btih:615DBBED15049262CDF43AF609187028797CD826
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768187   (101142) от 24.12.2024
+###  Публикация: 1769458   (100679) от 28.12.2024
 
-НХЛ 2024-2025. Вашингтон Кэпиталз - Бостон Брюинз (23.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+VA - Reason II Rise: Uplift Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Спорт и активный отдых
->>Хоккей
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100679.jpg" />
 </div>
 
 
 ###  Подробнее
 
-24 декабря 2024, вторник. 03:00 МСК. Стадион: Ти-Ди Гарден (Бостон, США), 17 850 зрителей (100% при вместимости 17 850)
-Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада)Телекомпания: NESNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:48:15
+01. TP One & D`Arcangel - Jade Eyes Of Asia (Mixed) [05:02]
+02. Mike Van Fabio - Love Of Yesterday (Mixed) [03:45]
+03. Kaselia & N-sKing - Endless Horizon (Mixed) [04:54]
+04. Laucco - Yinghu (Mixed) [04:26](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:14:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0DB834B6FCEC3CE17E8623DBEB41E4A8EBB3267
+magnet:?xt=urn:btih:C73C4B1745B5D314744F701065D210C0442DAFD2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768183   (101143) от 24.12.2024
+###  Публикация: 1769355   (100680) от 28.12.2024
 
-НХЛ 2024-2025. Филадельфия Флайерз - Питтсбург Пингвинз (23.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Veravey - Blooming Inspiration (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Спорт и активный отдых
->>Хоккей
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100680.jpg" />
 </div>
 
 
 ###  Подробнее
 
-24 декабря 2024, вторник. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 290 зрителей (98% при вместимости 18 673)
-Главный судья: Горд Дуайер (Галифакс, Канада); Главный судья: Бо Халкидис (Лондон, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:36:36
+01. Cinta Kali Ini (4:23)
+02. Take It Easy (4:41)
+03. Worries (5:02)
+04. In My Veins (5:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7D9CCB2709BDF5C13D767CBF3C9F83CDA52FD9B
+magnet:?xt=urn:btih:24CEE1724B6F478EAD8DD779D3CFCA6A71182F70
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767551   (101144) от 22.12.2024
+###  Публикация: 1769290   (100681) от 28.12.2024
 
-Своя игра (22.12.2024) WEBRip [H.264/1080p] (финал года)
+Markus Schulz - Global DJ Broadcast Classics Showcase 20th Edition (2024-12-26) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Push - Universal Nation
+02. Mesh - Purple Haze
+03. Rex Mundi - Backpain
+04. Bart Claessen & Raz Nitzan presents Who.Is - We.Are (Markus Schulz In Search of Sunrise Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A30505EA080930FD46B3FFF1F838E5EF3C2A58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769349   (100682) от 28.12.2024
+
+The Washing Machine Cie - Ladies and Gentlemen (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Raiders (3:25)
+02. Smoke (4:14)
+03. Yeah-Yeah (3:18)
+04. Body on the Floor (3:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A87A77C4431002D56BEEF41162AB032B2B58DD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769354   (100683) от 28.12.2024
+
+Time Fjord - And My Hand Holds The Jug (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right On Track for the Trainwreck (2:55)
+02. When Questionable People Have the Answers (3:36)
+03. Overpoured (I've Had It and I've Had It) (2:49)
+04. Patterning (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE0D0769339590C417306B2FCBA26FEF87F0500
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769469   (100684) от 28.12.2024
+
+VA - Reason II Rise Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pinkque - Ghost Of You (Mixed) [03:23]
+02. Airdream & Victor Special - Autumn Haze Before Sunrise (Mixed) [05:36]
+03. Kvaii - Sunshine (Mixed) [05:01]
+04. Cenk Basaran - Coming From Paradise (Mixed) [04:20](   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73DDFC6E70083306DF213093BE62A2C5C7EC4A31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769287   (100685) от 28.12.2024
+
+Vintage Culture - Live @ Ushuaïa Closing Pre-Party: The Last dANTS, Cafe Mambo Ibiza, Spain (2024-10-11) [MP3|320 Kbps] <House, Nu Disco, Disco>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - Voulez-Vous
+02. Chew Fu ft. Steve Clisby - Purple Rain (Mousse T Home Alone Mix)
+03. Mousse T & Hot 'N' Juicy ft. Inaya Day - Horny
+04. Piero Pirupa - Everybody's Free (To Feel Good) (Deeper Purpose Remix)(   Читать дальше...   )Жанр: House, Nu Disco, DiscoПродолжительность: 01:25:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4C662AA511691AC91B84C713087FBE508E24D4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769418   (100686) от 28.12.2024
+
+VA - Coldharbour Reflections 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Ram Attack (03:46)
+02. DIM3NSION & Daxson - Ardora (03:12)
+03. Mike EFEX - Malfunction (02:39)
+04. Stoneface & Terminal - In My Mind (02:48)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C69FBF08E537E392EC1983A5FCCEDF1B5F52E06B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769335   (100687) от 28.12.2024
+
+Southernman Robbie - Back to the Roots (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big River Little Town (4:29)
+02. The Witch (Gal Durly Dee) (2:40)
+03. Dreamin' (3:43)
+04. Babe & I (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4753CFEA239736A58B455F21C373F406E2703C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769425   (100688) от 28.12.2024
+
+VA - Reason II Rise: Realms Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jake Crooker - New World (Mixed) [04:48]
+02. Menno Veda - Orbit (Mixed) [02:00]
+03. Afterus - Sparta (Mixed) [04:43]
+04. Pinkque & Darren Porter - Divergent (Mixed) [04:21](   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:805A759EB9C359A19DB18A4DC32DEE1B6569E77A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769337   (100689) от 28.12.2024
+
+The Creaking Floorboards - Treading Lightly (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murder (2:53)
+02. Started Something New (2:44)
+03. Anthropomorphic (3:10)
+04. Blue Minute (2:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046B7A338F5B49765918B5116D5A8F277BDC3157
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769330   (100690) от 28.12.2024
+
+Mike Gannon - Every day I have the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roll with the Punches (4:29)
+02. Route 66 (3:36)
+03. Get Together (3:15)
+04. Yeah Yeah (3:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC3AEB45BE195A26CE3E9941026655E4F214BBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769438   (100691) от 28.12.2024
+
+Пятеро на одного (28.12.2024) WEBRip [H.264/720p-LQ]
 
 >>Документалистика и Телепередачи
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2024 год близится к завершению, как и турнир "Своей игры". 14 декабря начались финальные игры, в которых участников ждут три третьфинала и финал. В финальных играх принимают участие игроки, которые показали лучший результат за год.Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:04
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:764A205E42C5FDC15C3841CCD5DD782E995DB21D
+magnet:?xt=urn:btih:F6C538660EC7793D89D0D379544221A9FBDA9A15
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767455   (101145) от 22.12.2024
+###  Публикация: 1769333   (100692) от 28.12.2024
 
-Военная тайна с Игорем Прокопенко (21.12.2024) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101145.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7430AB10D167B77EB5CDE109BD94FC941399BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767574   (101146) от 22.12.2024
-
-Pomante - Frames (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
+Scraptones - Truth and Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Back To Milano (3:12)
-02.  Sharkisha (3:11)
-03.  Horns Island (3:12)
-04.  Sarah (3:02)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:29:48
+01. Truth and Bones (5:25)
+02. All or Nothing (4:46)
+03. Sea of Broken Dreams (4:52)
+04. Bleeding Spirits (5:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B70BB97675E4A3AE8EE4435DF75B32816919903
+magnet:?xt=urn:btih:35289F0B62575437160EF2C09F6E58E769101D78
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767559   (101147) от 22.12.2024
+###  Публикация: 1769329   (100693) от 28.12.2024
 
-Lights To Remain - Damnation (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Damnation [2:44]
-02 - The Storm [6:15]
-03 - Tranquil [4:45]
-04 - Devourer [4:29](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:771CBBD1E09244ED40885602BDA9392301B3D2CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767561   (101148) от 22.12.2024
-
-VA - Funky For A Sunny Day (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
+Mick Clarke - Singles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Sonny King - Live For Funk (3:38)
-02.  The Smoke Orchestra - Henrietta Leavitt and the cepheids variables (3:23)
-03.  Pomante - Bua (4:09)
-04.  Raffaele "Lello" Becchimanzi - One Guitar Night (Afro Club Mix) (7:41)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:44:53
+01. Susie Q (2:42)
+02. Keeper of the Fire (4:02)
+03. Heartbeat (2:45)
+04. Louie Louie (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:367B20C699587F89273737E1BD1AACC2B8AE1315
+magnet:?xt=urn:btih:E0BD6ABD9A533710E82F4002DAFB34A1BE248925
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766835   (101149) от 22.12.2024
+###  Публикация: 1769341   (100694) от 28.12.2024
 
-Bruce Springsteen - The Live Series: Songs Under Cover Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Folk Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sha-La-La (Live at Post Dome, NY - 12/12/1975) [2:52]
-02 - High School Confidential (Live at Capitol Theatre, Passaic, NJ - 9/21/1978) [3:04]
-03 - Follow That Dream (Live at Wembley Arena, London, UK - 6/5/1981) [3:50]
-04 - Jole Blon (Live at Brendan Byrne Arena, East Rutherford, NJ - 7/9/1981) [3:57](   Читать дальше...   )Жанр: Rock, Folk Rock, Pop RockПродолжительность: 01:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7AB1980EF54F42F1F795FB860363CC09E6D619F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767467   (101150) от 22.12.2024
-
-Mamiko Watanabe - Being Guided By The Light (2024) Jojo Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+The Hornets - Giorgio's Crawdaddy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Being Guided by the Light [6:31]
-02. Pas de Trois [6:29]
-03. The Peacocks [7:19]
-04. The Scene Is Clean [4:42](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:50:49
+01. All That Jazz (2:13)
+02. The Young Always Win (6:11)
+03. At The Marquee (3:08)
+04. Crawdaddy (2:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86B8C919C0CE688D8C455230CB54BC237ACE1A9E
+magnet:?xt=urn:btih:54D24A7D72DF43584C2C343C57B4C0CB76F70077
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767476   (101151) от 22.12.2024
+###  Публикация: 1769414   (100695) от 28.12.2024
 
-Первая передача на НТВ. Автомобильная передача (22.12.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не в то время, не в том месте: за что или за кого водителю дали реальный срок?
- Покупка машины на электронных торгах: выгодно или нет?
- Европротокол онлайн: как получить полную компенсацию по ОСАГО?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74BB926F98C4B86337379309526CA033A933A6BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766806   (101152) от 22.12.2024
-
-Høstsang (Hostsang) - I-II (2022, 2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Линия Маннергейма [00:05:43]
-02. Беломорье [00:04:53]
-03. Сандармох [00:04:48]
-04. Воттоваара [00:04:48]Жанр: Alternative Black MetalПродолжительность: 2 CD, 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D8FD12EC502161A65C82712AF8E687B18819F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766962   (101153) от 22.12.2024
-
-Houston Person - Christmas With Houston Person And Friends (1994) Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Baby [6:30]
-02. Our First Christmas [4:16]
-03. A Christmas Love Song [5:25]
-04. Blue Christmas [6:51](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3316B6BC92FBCACB3F432F23D2450132E304E75F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767084   (101154) от 22.12.2024
-
-Телеграмма из Мексики / Een Telegram uit Mexico (1914) WEBRip  [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виллем, голландский поселенец в Мексике, честно трудится, а его старенькие родители (отец вообще слепой) в далекой Голландии с нетерпением ждут от него любой весточки. И тут начинается какая-то заваруха, то ли революция, то ли война. И Виллем благорозумно решил вернуться в родную и спокойную Голландию. А его родители, читая тревожные новости в газетах, просто не (   Читать дальше...   )Производство: Нидерланды / HollandiaЖанр: короткометражный, драма, немое киноРежиссер: Louis H. ChrispijnАктеры: Louis H. Chrispijn, Esther De Boer-van Rijk, Coen Hissink, Уильям ван дер Веер, Christine van MeeterenПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F61223373C3734E5A3D1CBBF3565FC2A5DD22CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767506   (101155) от 22.12.2024
-
-НХЛ 2024-2025. Питтсбург Пингвинз - Нью-Джерси Дэвилз (21.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Футбол. Чемпионат Испании 2024/2025. 18 тур. Барселона - Атлетико (21.12.2024) TVRip [H.264]
 
 >>Спорт и активный отдых
->>Хоккей
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100695.jpg" />
 </div>
 
 
 ###  Подробнее
 
-22 декабря 2024, воскресенье. 03:00 МСК. Стадион: Пруденшиал-центр (Ньюарк, США), 16 514 зрителей (94% при вместимости 17 625)
-Главный судья: Питер Макдугалл (Реджайна, Канада); Главный судья: Жан Эбер (Монктон, Канада); Линейный: Дэвид Брисбуа (Садбери, Канада); Линейный: Килиан МакНамара (Лейк Уорт, США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:30
+21 Декабря 2024. Стадион: Олимпик Льюис Компанис
+Матч 18-го тура Испанской Примеры. Барселона - Атлетико (Мадрид)
+
+Команда Диего Симеоне выдала серию из 6 побед (Лас-Пальмас, Мальорка, Алавес, Вальядолид, Севилья и Хетафе). А у Барселоны в шести последних турах чемпионата Испании лишь одна победа при двух ничьих и трех поражениях. В составе Барселоны травмированы (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:48:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01D91364433A74B0BCB7534F098CBEBE60CA9CD3
+magnet:?xt=urn:btih:52F7E6320F2E20319CCEE74B2722FEB748CD44CA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767451   (101156) от 22.12.2024
+###  Публикация: 1769186   (100696) от 27.12.2024
 
-Героический господин Бонифас / L'heroique Monsieur Boniface (1949) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктор Бонифас, добрый и рассеянный оформитель витрин, сильно простуженным зашёл в бистро выпить чего-нибудь горяче, и хозяин предложил ему грог. Непьющий Бонифас быстро перешёл в знакомое многим состояние и в весёлом расположении духа отправился в свою гостиницу. А тем временем несколько гангстеров из «Автомобильной банды» выясняли там отношения. Один из них, Джо (   Читать дальше...   )Производство: Франция / Société Française de Cinématographie (SFC), La Société des Films SiriusЖанр: комедияРежиссер: Морис ЛаброАктеры: Фернандель, Андрекс, Ив Деньо, Лилиан Берт, Мишель Ардан, Орбаль, Шарль Буйо, Франсуа Дешамп, МаффреПеревод: любительский одноголосый (Юрий Бибиков, VHS)Язык озвучки: русский, французскийСубтитры: французские SDHПродолжительность: 01:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F903297425C97FE5560F9ECE79FCCAFE4DC00800
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767095   (101157) от 22.12.2024
-
-Yuri Sosnin - Frank Conversation (2024) [MP3|320 Kbps] <Italo-Dance, Italo-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Conversation (5:28)
-02. Fate's Line (4:11)
-03. Last Kiss (3:08)
-04. Tears on Your Face (3:48)(   Читать дальше...   )Жанр: Italo-Dance, Italo-Disco, InstrumentalПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA223B3EC590BF96BFA7D2180E766195AAF6091D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767452   (101158) от 22.12.2024
-
-Журнал | Смена №1 (январь 2025) [PDF]
+Газета | Тайны СССР №13 (164) (июнь 2024) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «СМЕНА» издается с января 1924 года. На протяжении своей почти 100-летней истории всегда публиковал журналистские материалы аналитического, полемического и разъясняющего характера, а также востребованные широкой публикой литературные произведения. В литературном разделе представлены классические зарубежные и отечественные детективы, малоизвестная проза классиков (   Читать дальше...   )Жанр: Публицистика, проза, поэзияИздательство: ООО Издательский дом журнала "Смена"Формат: PDFКачество: Обработанный скан
+Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DBF469D24592DBA517DADC1550ECDC9686BF2815
+magnet:?xt=urn:btih:3859F8C57130F1780D434C814173C39C164B3D5D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767456   (101159) от 22.12.2024
+###  Публикация: 1769170   (100697) от 27.12.2024
 
-Michael Simon, Tibetania - Umami (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Miles (7:44)
-02. Natalia (8:16)
-03. Umami (6:45)
-04. Hypnosis (6:25)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB552A35306B6758A531403D1D3796B7948ECB16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767014   (101160) от 22.12.2024
-
-Мужик из СИБИРИ Александр Конев - Хулиган (2024) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
+Ефрем Амирамов - 11 Альбомов (1994-2011) [MP3|320 Kbps] <Шансон>
 
 >>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Холодно [00:03:02]
-02. Сестра и брат [00:03:41]
-03. Хулиган [00:03:25]
-04. Не верь, не бойся, не проси [00:03:54](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:33:35
+01. Молодая ( Remake )
+02. Аленка
+03. Поход
+04. Любимая моя(   Читать дальше...   )Жанр: ШансонПродолжительность: 07:57:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B04CE813BA9ABA4A2B12BFD37D343B70D9B57B4
+magnet:?xt=urn:btih:2529EE26B0CE425EDEE54F7032F80CA2BB32101B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767445   (101161) от 22.12.2024
+###  Публикация: 1769128   (100698) от 27.12.2024
 
-Sports.ru - все новости спорта v6.12.3 Mod by Dymonyxx [Ru]
+VA - Armin van Buuren - A State Of Trance 1205 (Yearmix 2024) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100698.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sports.ru для Android - это вся информация о спорте сегодня: онлайн трансляции, новости, статистика, расписание матчей и других спортивных событий, турнирные таблицы и многое другое!Тип издания: AdFreeРелиз состоялся: 16.12.2024Разработчик: Sports.ruПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+001. Armin van Buuren & Moby - The Road Ahead (A State of Trance Year Mix 2024 Intro)
+002. Armin van Buuren & Moby - Extreme Ways
+003. Jerome Isma-Ae - Hold That Sucker Down (Hel:sløwed Remix)
+004. Hel:sløwed & Amber Revival - Wildfire(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45D91FAEADC911B247F2860A1B686F941B70E11E
+magnet:?xt=urn:btih:B9F6832E889DA61620036E613C2772BEFFE1FE8C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767441   (101162) от 22.12.2024
+###  Публикация: 1768313   (100699) от 27.12.2024
 
-Подшивка журнала | Цветы в саду и дома №1-12 (январь-декабрь 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание является приложением к журналу "Приусадебное хозяйство". Каждый номер журнала посвящен либо одному виду растений/кустарников (выбор места посадки, почвосмеси, уход), либо одному виду работ (обрезка), либо элементам садового дизайна.Жанр: ЦветоводствоИздательство: ООО "Приусадебное хозяйство"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A754A76D46E994FF70461D0B6B986D80B163BF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767487   (101163) от 22.12.2024
-
-Эпоха - Молот Ведьм (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
+Тени Свободы - 7 Альбомов (2006-2017) [FLAC|Lossless|image + .cue] <Punk>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Введение (03:14)
-02. Именем святой инквизиции (03:15)
-03. Обвинение и обоснование (01:08)
-04. Ведьм сжечь (03:57)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:44
+1. Успех
+2. Бежать
+3. Глупые выживут
+4. Боль(   Читать дальше...   )Жанр: PunkПродолжительность: 03:29:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C922FAC2675A92ADB3C41C4D0CEE7A1FE92869E
+magnet:?xt=urn:btih:CF023D1078857AAE7876B4820D600E5995858A35
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767478   (101164) от 22.12.2024
+###  Публикация: 1769199   (100700) от 27.12.2024
 
-Waldorf - Blofeld 1.0.0 VSTi, VSTi 3, AAX (x64) [En]
+Журнал | Дачный клуб №11 (164) (ноябрь 2024) [PDF]
 
->>Архив торрентов
->>Архив Программ
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100700.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Генерация звука плагина Blofeld обеспечивает типичный насыщенный и богатый звуковой характер Waldorf, который так любят многие пользователи Waldorf по всему миру, когда они играют на своих Blofeld, Q, Q+, Microwave, Microwave II/XT или даже на флагмане Wave. Секрет его звука заключается в мощном движке волновой таблицы, который позволяет создавать эти интенсивные (   Читать дальше...   )Язык интерфейса: Английский
+В журнале «Дачный клуб» собрана яркая и наглядная информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты блюд из урожая. Уникальный опыт российских дачников, яркие иллюстрации, вопросы читателей, рекомендации специалистов.Жанр: Дом, сад, огород, дачаИздательство: ООО "Город Медиа Софт"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:734CC3B77E7C689770637ADF2CD1E5CBBD91C9E8
+magnet:?xt=urn:btih:8278CE16BAB0CED80412B9FB92D5559BE362EC5B
 ```
 
 

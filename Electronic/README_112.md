@@ -1,3 +1,57 @@
+###  Публикация: 1515342   (170310) от 06.12.2021
+
+VA - Trance Dance 2022 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tmina - Far East (7:39)
+02. X-Nova - Flowpass (8:13)
+03. Pudova - 3Rd (5:38)
+04. Acoustic Pressure - Do You Believe In Yourself (8:37)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92BBF53989B61778EA6AD437019F6D080FA2291
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671928   (170330) от 27.10.2023
+
+VA - Musical Escape: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Soul Crusaders - A Fading Memory (6:00)
+02. Clelia Felix - Fleurs Du Desert (Original Mix) (4:17)
+03. Marie Therese - Soul Talk (Original Mix) (4:33)
+04. Marco Moli - Flashpoint (Original Mix) (3:20)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22B18548C6840F99FE79DFC826328D8CB1A44BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671944   (170408) от 27.10.2023
 
 VA - Uplifting Only Top 10: October 2023 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -634,60 +688,6 @@ VA - Suanda Amsterdam 2023 [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1791EDE0E5FA95947B3BEDCB4D88EB5D0471BDCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669904   (172440) от 18.10.2023
-
-VA - 100 Greatest Running Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172440.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fred again.. - Jungle (3:18)
-002. Eliza Rose - B.O.T.A. (Baddest of Them All) (Edit) (3:46)
-003. Tiësto - 1035 (2:52)
-004. Bruno Mars - Runaway Baby (2:27)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 05:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35ACC5128DBBC9F814940C97C95DC6473514738C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669753   (172608) от 17.10.2023
-
-VA - 100 Greatest Workout Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172608.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eliza Rose - B.O.T.A. (Baddest of Them All) (Edit) (3:46)
-002. Tiësto - 1035 (2:52)
-003. Fred again.. - Jungle (3:18)
-004. Dua Lipa - Physical (3:13)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 05:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A42F9BD3F6C26FA456EE85FCCB70A1AF63C789
 ```
 
 

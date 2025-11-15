@@ -326,6 +326,39 @@ magnet:?xt=urn:btih:50D1E88F21DCC93608EED43776CEEE008CFD198B
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482193   (88015) от 12.04.2012
+
+Noella - Beautiful Sorrow (2010) [MP3|192 кб/с]<Neoclassical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_88015.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:48) 01. The story of a girl with blue eyes - 'Sky' This want to watch me
+(3:13) 02. Mommy's Lisa
+(3:17) 03. Abigail's love
+(3:27) 04. Dance in Red
+(3:56) 05. Two months
+(4:29) 06. Cosmos - Tears of Flower
+(4:28) 07. Love ... The aeteutham - In The Name of Love
+(3:57) 08. The sea of tears shed
+(3:55) 09. Autumn in telling the story
+(4:24) 10. Bibeulriseuui tears(   Читать дальше...   )Жанр: NeoclassicalПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66D4EDC1D1D2385C08C29942C12B6D4812037F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481866   (88077) от 12.04.2012
 
 VA - Super Classic Hits (2006) 2 CD [FLAC|Lossless]<Classic>
@@ -729,33 +762,6 @@ Enrico Caruso - Grosse Tenore Der Musikgeschichte Vol.3 (2006) 2CD [WavPack|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:371C8C9A4540CE3CC705A0C8D1EE3A748F084FEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745434   (105073) от 26.08.2024
-
-VA - Classical Music Inspired by Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
-02. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
-03. Vyacheslav Gryaznov - Peer Gynt Suite No. 1, Op. 46 I. Morning Mood (Arr. for 2 Pianos) (3:39)
-04. Katya Kramer-Lapin - Lieder aus Franz Schubert's Schwanengesang, S. 560 (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C08777EC3CA447DEE73A883F66FB782F378DD1F6
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1666064   (178929) от 05.10.2023
+
+Alexey Teplykh - Different Styles (2023) [MP3|320 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Simply the Best Hit [00:04:56]
+02 - Through the Flickering Stars [00:04:41]
+03 - From the Morning to the Dark [00:04:11]
+04 - Lonely Moon [00:03:53](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C833B48E9FD29EB0ED2EBA688F6178E9F23C1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593959   (179255) от 29.11.2022
+
+Michael Rother - Solo II (2020) 7 × CD, Box Set, Compilation [FLAC|Lossless|tracks + .cue] <Ambient, Krautrock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179255.jpg" />
+</div>
+
+
+###  Подробнее
+
+1983 - Lust
+1985 - Suessherz und Tiefenschaerfe
+1987 - Traumreisen
+1996 - Esperanza(   Читать дальше...   )Жанр: Ambient, KrautrockПродолжительность: 05:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF4C868280CF2DFC4A3CDA6F397F3B824734113
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593942   (179279) от 29.11.2022
 
 Dav Dralleon - 2 Albums (2021-2022) [MP3|320 Kbps] <Darksynth, Industrial Metal, Symphonic Metal>
@@ -636,60 +690,6 @@ Jean Michel Jarre - The Concerts In China (1982) 2CD, 40th Aniversary – Remast
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA9A7671A5CD1A2B14861003F07FEDA451CA2493
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593096   (181713) от 25.11.2022
-
-VA - Beautiful Vocal Trance - Chapter 10 (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Costa - My Own Way (4:01)
-02. Costa - I See His Eyes (4:17)
-03. Raz Nitzan - Called By A Whisper (4:20)
-04. Raz Nitzan - Unconditional (3:52)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:22:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B598F262A052B7930E864959D187925D4D3ADDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593062   (181763) от 25.11.2022
-
-VA - Ministry of Sound - The Annual 2023 (2022) [MP3|320 Kbps] <Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eliza Rose & Interplanetary Criminal - B.O.T.A. (Baddest Of Them All) (Edit)
-02. LF System, Silk - Afraid To Feel
-03. Alok x Ella Eyre x Kenny Dope feat. Never Dull - Deep Down
-04. Nathan Dawe - 21 Reasons (feat. Ella Henderson)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5979E3DCC7BEC52200AFC1179076425E88B20E1F
 ```
 
 

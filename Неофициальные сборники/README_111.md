@@ -1,3 +1,30 @@
+###  Публикация: 1648100   (208296) от 21.07.2023
+
+VA - Music News vol.283 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208296.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ann Ly - Пополам (02:50)
+ 002. Akmal' - Одинокая (03:39)
+ 003. Alex Andreev - Гори Оно Огнём (02:29)
+ 004. Alle Farben - Revolution (Club Mix) (02:59)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF4E4057AB93CB259FA4AA0E927299E5FD287A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648085   (208328) от 21.07.2023
 
 VA - Music News vol.282 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Summer Party 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2ACFBFF6984AF1F07E9557B89F25F3746D16804
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641841   (210443) от 26.06.2023
-
-VA - female rock, blues rock part  24 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaun Murphy - It Won't Stop Raining
-02. Deb Ryder - Bad Bad Dream
-03. Blue Touch - Trouble
-04. Connie Lush - Crying Won't Help You(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F03DB2E33644A9B4FA77E2E1A3CDEDE334B4D29
 ```
 
 

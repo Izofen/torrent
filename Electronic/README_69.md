@@ -1,3 +1,57 @@
+###  Публикация: 1723503   (109465) от 16.05.2024
+
+VA - EDC Las Vegas 2024 (2024) [MP3|320 Kbps] <Trance, House, Melodic House & Techno, Dubstep, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto & Prophecy - My City (Original Mix) [3:19]
+02. Mau P - On Again (Original Mix) [6:47]
+03. SLANDER & Trivecta feat. Chris Howard - A Better World (Original Mix) [3:51]
+04. NGHTMRE & Liquid Stranger feat. Mougleta - Restless (Original Mix) [3:26](   Читать дальше...   )Жанр: Trance, House, Melodic House & Techno, Dubstep, ElectronicПродолжительность: 07:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250F2C51FA6767DED31AB052BF20044E6064743A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723424   (109466) от 16.05.2024
+
+VA - Epifania Part I-II (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Dance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karassimeon - Nightmare Disco (5:55)
+02. Cyda - Machine (6:43)
+03. Kevrolet - Let's Drance (5:07)
+04. Tallac - Pulsar (6:58)(   Читать дальше...   )Жанр: Trance, DanceПродолжительность: 01:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51670EAB3EF75A9D4B65A087924B9C71D67B7288
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723537   (109483) от 16.05.2024
 
 Retouch - Technocracy (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Dreamwave, Retrowave>
@@ -638,60 +692,6 @@ VA - Autumn Flight (2020) [FLAC|Lossless|WEB-DL|tracks] <House, Melodic House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FCB350D6BFC3D2119766F8D1F335CEFD72F410E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721268   (110072) от 06.05.2024
-
-VA - Autumn Flight, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Melodic House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniele Spezio - Tagliaerba (Extended Mix) (5:01)
-02. Dj Niky - L'arte Del Cassa Basso (5:36)
-03. LentoLEXX - Slow Rewind (Chaotic Disorder Mix) (3:59)
-04. Serafino Prosperi - Forgia Il Tuo Futuro (5:51)(   Читать дальше...   )Жанр: House, Melodic HouseПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C565C8858D4CAFF801546D54FB7E27377DA88D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721283   (110082) от 06.05.2024
-
-VA - Horizons (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Project - Synthwave Portal (4:13)
-02. Uncover & Iyes Keen - Control (Chapter One) (4:35)
-03. Simulakrum Lab - Roadblock (3:26)
-04. Luck Dragon - Hiss (4:37)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53EA56E6D15B7EF53074D786CE1AC7348D13D704
 ```
 
 

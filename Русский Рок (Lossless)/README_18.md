@@ -1,3 +1,111 @@
+###  Публикация: 1684967   (127398) от 17.12.2023
+
+Аэлита - Здесь и сейчас (2023) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Post Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Засыпан город [00:02:37]
+02. Я смотрю в окно [00:02:49]
+03. Не весна [00:03:04]
+04. Грустно [00:03:40](   Читать дальше...   )Жанр: New Wave, Post PunkПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5BFCC3384077AA232166BADF74D0FC07C433BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684615   (127544) от 16.12.2023
+
+Olshanoe - What a Great and Sad World It Is (2023) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Folk Metal, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Winter Р-254 7:19
+02 Flax 6:29
+03 Lament Of Nau 6:26
+04 The Last Summer Of Childhood 5:15(   Читать дальше...   )Жанр: Atmospheric Black Metal, Folk Metal, AmbientПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D78BC00903676D08D8A971B8DAF42492AADE7F9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684650   (127562) от 16.12.2023
+
+Смерш - ... (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Гражданская	04:13
+02.	День победы	03:31
+03.	Два народа	04:21
+04.	Примирение	04:50(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2139E226B67A1529D1A1F15DFBD1D7B601F3419C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684754   (127568) от 16.12.2023
+
+Casual - #Не_Умру_По_Утру (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127568.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вниз
+2. Все дороги ведут...
+3. Ничего не жаль (feat. Оркестр «Градский Hall»)
+4. Прощай(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE5F9C88FE58C026AE9088A11A5E444C4E8F282
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684616   (127569) от 16.12.2023
 
 Smerdead - Мёртвый лес (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -587,114 +695,6 @@ magnet:?xt=urn:btih:0B8D5C6102AF2C3B3E015B7A41019EDB3CA68A4D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:976092BC3464381C045B31FA2A34777ACD9096BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682678   (131117) от 08.12.2023
-
-Сергей Маврин - Хаос (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131117.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Хаос (instro)
-2. Запрещённая реальность '23
-3. Третий храм
-4. Десять(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:404D51C7325E7901D5835A77517908FE0958E8A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682622   (131151) от 08.12.2023
-
-Мещера - Жатва (2023) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Black Fog 4:22
-02 Harvest 5:33
-03 Eternity of White Januarys 4:44
-04 Winter Cold 4:18(   Читать дальше...   )Жанр: Atmospheric Black Metal, Folk MetalПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714BADA0E7C0D539C3D62F644B7DC0E8FA279658
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682611   (131197) от 08.12.2023
-
-Lunatii - Insomniashes (2023) [FLAC|Lossless|image + .cue] <Depressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01		Insomniashes
-02		Empty Source
-03		Brutal Doom
-04		Lifeless(   Читать дальше...   )Жанр: Depressive Black MetalПродолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D445A1446BF863FB69AFEECD8D30E45A419D22DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682568   (131201) от 08.12.2023
-
-кто тебя убил? - черное. белое. яркое. (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. мерцай, маленькая звездочка! [00:03:40]
-02. пусть горит наш старый дом [00:03:49]
-03. наблюдающий затмение [00:03:30]
-04. жизневорот [00:02:53](   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D9D7278E1FCA296DB4DFB98B63CA6F51A897A5
 ```
 
 

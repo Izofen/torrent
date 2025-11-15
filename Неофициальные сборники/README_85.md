@@ -1,3 +1,30 @@
+###  Публикация: 1347703   (148759) от 24.12.2019
+
+VA - Panorama Electro Sound (2019) [MP3|320 Kbps] <Synthwave, Electronic, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148759.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hante. - Waiting For A Hurricane
+002. Nima Gorji - A Better World
+003. Stilz - Anomaly
+004. Clock And Dagger - Planet X(   Читать дальше...   )Жанр: Synthwave, Electronic, DanceПродолжительность: 12:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C59B62E2734D3088D3B5F155616A0C012917D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271636   (148803) от 24.12.2018
 
 VA - Beats Drum Jungle (2018) [MP3|320 Kbps] <Jungle, Drum and Bass>
@@ -672,33 +699,6 @@ VA - Trance In Motion Vol.391 (2025) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:413A169CD41C4CFB9E70AFBAE43F7158CEB89B01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825915   (150732) от 18.10.2025
-
-VA - Осень на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabrina Carpenter - Tears (2:40)
-02. Сергей Лазарев - Тут или Там (3:25)
-03. Shouse & Cub Sport - Only You (2:57)
-04. Ava Max - Don’t Click Play (2:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5861D27584D065F4383495FBC328A6C930E8EA1C
 ```
 
 

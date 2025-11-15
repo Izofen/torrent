@@ -1,26 +1,18 @@
-###  Публикация: 490901   (130295) от 02.05.2012
+###  Публикация: 488843   (129091) от 27.04.2012
 
-Decoy - 2 Альбома (2006-2007) [FLAC|Lossless]<Psychedelic / Progressive, Minimal>
+Домашний пир без лишних затрат [1998] [DJVU]
 
->>Архив торрентов
->>Архив Музыки
+>>Разное (категория книг)
+>>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fat Side Down 08:49
-02. Krosey 08:21
-03. Wake In Fright 08:19
-04. Push Button Pony 08:20
-05. Spamburger 08:12
-06. Nothing But The Truth 09:05
-07. Silly Sex 07:47
-08. Axis Mundi 07:48
-09. Host Kisser 09:102006Жанр: Psychedelic / Progressive, MinimalПродолжительность: 01:15:54
+Превосходно иллюстрированная кулинарная энциклопедия от Ридерз Дайджест. В книге собран целый букет рецептов со всего света. Приведены поварские приемы, секреты и хитрости. В конце каждой главы даны пояснения, как применять ту или иную технологию приготовления блюд, которая используется в приводимых рецептах. Каждый рецепт содержит информацию, сколько в готовом блюде калорий, белков, жиров и углеводов.Формат: DJVU
 
 ## Скачать торент
 ```bash
@@ -30,658 +22,656 @@ Decoy - 2 Альбома (2006-2007) [FLAC|Lossless]<Psychedelic / Progressive, 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524948   (130296) от 18.01.2022
+###  Публикация: 1525869   (129092) от 22.01.2022
 
-SnapMotion Unlimited 5.0.4 [Multi]
+Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer SP1 15.0.5415.1000 VL (x86) RePack by SPecialiST v22.1 [Ru/En]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129092.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SnapMotion - приложение, которое может извлекать изображения быстрым и простым способом из любого видео вручную в выбранное время или автоматически, каждые х секунд, в зависимости от настроек.
-SnapMotion имеет два режима:
-● Ручной режим, где вы можете извлекать изображения точно в установленное время.
-● Режим пакетной обработки, где вы можете извлечь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2022Разработчик: © 2012-2020 Jérémy VizziniПоддерживаемая ОС: macOS 11.0.+Язык интерфейса: Английский, Немецки и др.
+Microsoft Office 2013 – лучший пакет прикладных программы для работы над документами различных типов. В его состав входят лучшие средства для развития бизнеса, а так же для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия, не важно, Office 2013 просто обязан быть установлен на любом (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2CC6529F57BE057EFB72B13C5664B5A851A177F8
+magnet:?xt=urn:btih:D769F77459AD089A56288024BB071157C70FBD2F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524736   (130298) от 18.01.2022
+###  Публикация: 488924   (129094) от 27.04.2012
 
-Michael Simon - Salama (2022) [AAC|~311 Kbps] <Deep House, Organic House>
+Журнал | Ландшафт. Коттедж. Интерьер №8 [май 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Строительство, стилевые интерьерные решения, дизайн, прекрасная архитектура и удивительный ландшафт. Именно дизайн ландшафта создает ту удачную композицию, от которой зависит атмосфера дома.май 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F98DDC6DDEF8CE3459E3489AF89EEECCBB59B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489131   (129096) от 27.04.2012
+
+WinISO Standard 6.1.0.4499 [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129096.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinISO - лучшая программа из всех подобных для работы с образами CD и DVD дисков. Программа работает с форматами BIN и ISO, может редактировать эти форматы и конвертировать из одного в другой. С помощью WinISO вы сможете с легкостью добавлять / удалять / переименовывать / извлекать файлы из образов. Программа имеет очень удобный и понятный интерфейс, который еще сильнее облегчит и без того простую работу в этой программе. Предназначенная для работы с образами BIN и ISO программа WinISO является лидером в ряду софта, разработанного для клонирования и создания образов оптических носителей информации.Язык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488989   (129098) от 27.04.2012
+
+VA - Моя Прекрасная Леди (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стас Пьеха - Моя прекрасная леди
+02. Аслан Гусейнов - Боже мой
+03. T-Killah feat. Настя Кочеткова - Над землей
+04. Эльдар Далгатов - Милая
+05. Инфинити - Я так скучаю
+06. Дмитрий Колдун - Падал снег
+07. Верка Сердючка - Смайлик
+08. Сергей Солнцев - Чудеса бывают
+09. Анастасия Приходько - По волнам
+10. Митя Фомин - Не манекен (feat. Кристина Орса)2012Жанр: PopПродолжительность: 06:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764562329C13134AB7EC28B98D67B144DED5852B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525708   (129101) от 21.01.2022
+
+VA - Buddah's Chill 5 (2015) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129101.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Salama (7:12)
-02. Piccolo Violino (7:32)
-03. Salama (Stephane Salerno Remix) (8:10)
-04. Salama (El Sonido Project Remix) (7:40)(   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:10:41
+01. Joey Lina - Future is Past (2:28)
+02. Lemongrass - Supergalactic (3:59)
+03. Airwave, DJ Fire - Without Roots (Audio Noir Zen Mix) (4:50)
+04. Michael e - Sandman (5:04)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:59:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51E6952907AEEA2214C83CB4013134961A684834
+magnet:?xt=urn:btih:672B597E2B915D92B1912E5231FC7C6E047BC038
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524958   (130300) от 18.01.2022
+###  Публикация: 487689   (129102) от 27.04.2012
 
-Music Tag Editor Pro 5.10.4 [Multi]
+Sect - 4 albums (2007-2011) [FLAC|Lossless] <Neoclassical, Martial Industrial, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iustitia (08:46)
+02. Power Authority (03:38)
+03. Artes Liberales I (04:16)
+04. Emissaries of Light (04:11)
+05. Forlorn Hope (03:37)
+06. Absolution (03:59)
+07. Our Penance (04:34)
+08. Interregnum (03:41)
+09. Superiority Complex (02:45)
+10. Tribunal (03:42)(   Читать дальше...   )2007-2011Жанр: Neoclassical, Martial Industrial, ExperimentalПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525685   (129103) от 21.01.2022
+
+VA - Buddah's Chill 2 (2013) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Thai Connection - The Red Deluxe Intro (1:46)
+02. Katoey - Pattaya Hood (3:42)
+03. Euphonic Traveller - Pacifica (8:38)
+04. Michael e - Downtown (3:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18886950B68812A68EE0517F13263E2FC32E78F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525718   (129105) от 21.01.2022
+
+VA - Buddah's Chill 7 (2016) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ray Maddison - Maldives Night (4:31)
+02. Yantra Mantra - Raga Sundara (4:07)
+03. Djadi - Open Sesame (3:06)
+04. Katoey - Pattaya Hood (3:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBFA26418821B3E7FA00E8DD96340D6685EDDC8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488455   (129106) от 27.04.2012
+
+А.К.Гладков | Мейерхольд (2 тома) [1990] [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во второй том двухтомника А. К. Гладкова «Мейерхольд» вошла книга «Пять лет с Мейерхольдом» и воспоминания о Б. Пастернаке, которые впервые публикуются в полной авторской редакции.1990Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525783   (129107) от 21.01.2022
+
+Marc Hartman - Jigzaw (2022) [AAC|~327 Kbps] <Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Will Rise Again (6:19)
+02. I'll Never (4:11)
+03. Merlin (4:14)
+04. When The Day Came (3:57)(   Читать дальше...   )Жанр: Chill Out, DowntempoПродолжительность: 01:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260A39EECD911D209C1D923FF5C83792727F14EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525543   (129108) от 21.01.2022
+
+VA - The Very Best of Chill Out, Vol. 2 (2015) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. But & Memo - Black Betty (Alexander Metzger Chillout Mix) (6:30)
+02. Alexandru Florea - Secrets from Your Lips (Ancient Culture Mix) (6:16)
+03. Arshia Alipour - Waiting for You (3:00)
+04. Five Seasons - Floating Spell (3:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:21:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD0F953676F2650497361D5F374DAD3C1C9D87D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525787   (129109) от 21.01.2022
+
+VA - Ibiza Lounge (2022) [AAC|~298 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wermuth - Intertwining Lives (5:46)
+02. Élan Vital - Extravagance (5:55)
+03. Fascinating Case - Immersive Experiences (5:40)
+04. Lovers in Motion - A Matter of When (6:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7511A94659F37F9E16232FA6CB83B2D900DE8A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525548   (129110) от 21.01.2022
+
+Slave To The System - Slave To The System (2006) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stigmata 03:14
+02. Ruby Wednesday 03:03
+03. Slave To The System 04:34
+04. Live This Life 04:04(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A4D536F82B8C929F87B9F853D6CF10DE76B659
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525631   (129111) от 21.01.2022
+
+Abyssus - Death Revival (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal Of Death
+02. The Ten Commandments
+03. Uncertain Future
+04. The Beast Within(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB0B3B72846123FA562879D46E8E6E377916492A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525706   (129112) от 21.01.2022
+
+Bartender 4 v4.1.29 beta U2B [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Music Tag Editor - редактор музыкальных тегов поможет вам изменить информацию легко и эффективно, преобразовать текст тегов, добавить обложку и т.д.
-Приложение поддерживает следующие форматы: MP3, M4A (Apple lossless), MP4, FLAC, APE, AIFF, WAV , Ogg files.
-Поддержка: ID3V1, ID3V2.3,ID3V2.4, xiphComments, APE Tag, Ogg Vorbis, Ogg Speex, Ogg Flac.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2013-2021 yumysoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и Японский
+Bartender - утилита для простой организации иконок приложений в статус баре.
+Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все «лишние» иконки. В настройках приложения можно указать, какие объекты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © 2021 Surtees Studios Ltd.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D926D1A97959E92EAE22AA66D74C85837277D3E
+magnet:?xt=urn:btih:A3BBBD7E64E55E021DB5D8669892531D34DF01A9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 489789   (130301) от 02.05.2012
+###  Публикация: 488917   (129113) от 27.04.2012
 
-Askold Buk - Askold Buk (1999) [FLAC|Lossless]<Fusion, Crossover Jazz>
+Zentimo xStorage Manager 1.6.2.1217 + RePack by elchupacabra + RePack by KpoJIuK [Мульти, есть русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zentimo xStorage Manager - (аналог USB Safely Remove) это менеджер USB устройств, он экономит время и расширяет возможности пользователя при активной работе с флэшками, переносными винчестерами, кард-ридерами и другими гаджетами.Программа дает удобное безопасное извлечение, избавленное от недостатков встроенного в Windows, показывает какие программы мешают извлечь устройство, убирает диски пустых слотов кард-ридеров, умеет возвращать обратно отключенные устройства и содержит массу других функций для комфортной и приятной работы с hot-plug устройствами (USB, SATA, FireWire).Название программы: Zentimo xStorage ManagerЯзык интерфейса: Мульти, есть русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525660   (129114) от 21.01.2022
+
+Pat Martino - Comin' And Goin': Exit & The Return (1976, 1987) 2CD, 1999, 32 Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Guitar Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bella Luna
-02. Iguana
-03. Volcano
-04. Without You
-05. Big Slinky
-06. One More Bar
-07. Picklehead
-08. Wondering
-09. A.F.B.
-10. Downtime1999Жанр: Fusion, Crossover JazzПродолжительность: 00:43:04
+CD1- Exit:
+01. Exit [9:26]
+02. Come Sunday [7:36]
+03. Three Base Hit [4:34](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 01:23:23
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:92CEC6D611450E162EE55B62AA47AB77E2E49555
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524929   (130302) от 18.01.2022
+###  Публикация: 1525622   (129116) от 21.01.2022
 
-VA - Soul Food Chillout (2022) [AAC|~288 Kbps] <Lounge, Chill Out, Downtempo>
+Dive In Minds - Innocent Victims (2001) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aqua Mundi - Chuchaqui (5:47)
-02. Logophilia - Surfaces (6:03)
-03. Ace Of Duty - Prerogatives (6:13)
-04. Paco Borges Ensemble - Sonido de Madera (6:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:14
+01. 	Suffering 	05:54
+02. 	Holocaust of the Human Being 	05:43
+03. 	Innocent Victims 	04:53
+04. 	Torment 	04:31(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:50:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7A7A913535EB446D460FBA34480A98231B4195A
+magnet:?xt=urn:btih:A3E3346199355662023D62FCD3D324CD97BF440D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491091   (130303) от 02.05.2012
+###  Публикация: 1525751   (129118) от 21.01.2022
 
-[Wallpapers] HD Desktop Wallpapers Pack 5
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130303.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Desktop Wallpapers Pack 5Название: HD Desktop Wallpapers Pack 5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94541A3554A47985F8AD61358F800C2CC4F8ABB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524991   (130304) от 18.01.2022
-
-Transfer 2.0.2 [En]
+Mirror for Fire TV  2.7.2 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Transfer - это надежное и полностью RFC-совместимое приложение TFTP-сервера. Идеальная альтернатива встроенному TFTP-серверу на вашем Mac. Здесь есть все, что вы ожидаете: в режиме реального времени происходит обновление текущих передач, поддержка широковещательных запросов TFTP, история передачи и базовый контроль доступа к корневому каталогу TFTP и управление файлами. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.01.2022Разработчик: © 2019-2022 Intuitibits LLCПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
+Отображение экрана для телевизоров Fire TV. Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Fire TV. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели Fire TV с 2012 и новее. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). Поэтому (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.02.2021Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7EF90D33CECB7F1EE802FF24DC0C038F8A43D2F
+magnet:?xt=urn:btih:F8924D17275111CC1FB4D167736C7D838326C8BC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524952   (130306) от 18.01.2022
+###  Публикация: 1525717   (129120) от 21.01.2022
 
-ProFind 1.9.4 [En]
+Battery Indicator for Mac 2.12.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 Ross TullochПоддерживаемая ОС: macOS X 10.13 и вышеЯзык интерфейса: Английский
+Приложение Battery Indicator показывает оставшееся время работы от батареи и процент в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © 2022 Sindre SorhusПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8057C6C068F56876CF88E3E1DE68DD762DEF7F40
+magnet:?xt=urn:btih:2B58690A749507F5B68743D610689C09D7882303
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524906   (130308) от 18.01.2022
+###  Публикация: 1525649   (129122) от 21.01.2022
 
-VA - Pure Deluxe 2 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Doberitz - Sea of Love (Cosmic Model Instrumental Mix) (4:40)
-02. For Found Future - Dreamlands Harmony (Chillout Melody Mix) (4:28)
-03. Bernon - Cool Day of April (Cosmic Chillout Mix) (5:26)
-04. Wallenski - Reise (5:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F43EEBA90950C06BD59FA24528C2D7229E3C19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491033   (130309) от 02.05.2012
-
-[Wallpapers] Nature Desktop Wallpapers Pack 6
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130309.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Desktop Wallpapers Pack 6Название: Nature Desktop Wallpapers Pack 6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78B37F7530EF3773DF88297CF7B273B0309EEAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524864   (130310) от 18.01.2022
-
-VA - Sun & Chill, Vol. 1 (2012) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dave Neville - Sun Is Coming (Smooth Jazz Mix) (6:47)
-02. Soundset City - Sweep Along (Groovy Lounge Mix) (4:07)
-03. For Found Future - Drops of the Future (Smooth Ambient Mix) (6:35)
-04. Marie Therese - Call of Sirens (3:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8BBAFF9740FA6E2DB6377E168914A23F6806A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524904   (130312) от 18.01.2022
-
-VA - Pure Deluxe 1 (2014) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karen Gibson Roc, Johannes Huppertz - Fly Light (4:13)
-02. Marie Therese - Lost Somewhere (4:04)
-03. Ann Grace - Sentimenti (5:31)
-04. Mare et Monti - Sans Soucis (5:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96FFE9240AE24DE30D86FAFC7CED42A1FAB773C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490866   (130313) от 02.05.2012
-
-Excelsis - Kurt Of Koppigen (1998) [MP3|320 кб/с]<Dark Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:36)
-02. Before the Storm (7:40)
-03. Kurt of Koppigen (4:52)
-04. Grimhilde (4:55)
-05. The Dragonslayer (7:40)
-06. The Lord of Halten (5:17)
-07. Ambush in Langenthal (5:42)
-08. Song of Agnes (4:08)
-09. Distant Sky or the Wild Hunt (6:50)
-10. The Lost Chapter (6:03)(   Читать дальше...   )1998Жанр: Dark Power MetalПродолжительность: 01:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FEF820F27EB770EE70E0CC9BC2C6B8A51D4E34F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491044   (130314) от 02.05.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 12
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1920x1080 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9786C8273BA9F4E7823E0907734CA28EFE20160
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524908   (130315) от 18.01.2022
-
-VA - Pure Deluxe 4 (2014) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Schlolaut, Frank Doberitz - Can't You Hear Me (Enigmatic Vocal Chillout Mix) (5:02)
-02. Artenovum, Emma Laveigh - Cosmic Fade (5:01)
-03. Richard Bonnee - Ma Vie (Short Electronic Deep Mix) (3:25)
-04. Nightzoom - Silence (Ambient Mix) (5:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98F00CBECAB742218D18C45131A77CE60119DE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491039   (130317) от 02.05.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 11
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1600х1200/1680х1050 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B693A7AF720CB65836512B9FE2D130AD9D3689C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524989   (130318) от 18.01.2022
-
-PDF Reader Pro Edition 2.8.7 [Multi/Ru]
+uDock 2.5.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PDF Reader Pro - это приложение для редактирования PDF, имеющее широкий спектр инструментов. Основываясь на надежных функциях, таких как аннотации, заполнение форм и создание закладок, распознавание текста. PDF Reader Pro позволяет вам «маневрировать» в ваших файлах PDF. PDF Reader Pro Edition предлагает еще больше - объединяет несколько документов, разбивает ваш (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2022Разработчик: © 2014-2022 PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+μDock - это легкое системное расширение для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6635084D0A53077823CC143DCB6A8F0A2BA3EB6B
+magnet:?xt=urn:btih:41A0E5F9FA758BA56542C88F399A4762C130E250
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524745   (130319) от 18.01.2022
+###  Публикация: 1525651   (129124) от 21.01.2022
 
-VA - Oriental Lounge Affair (Exotic Arabian and Indian Moods) (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Lo-Fi>
+The Ferrymen - One More River To Cross (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Word
+02. The Last Wave
+03. Shut It Out
+04. City Of Hate(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E2A4E8DD255509594565DC55BF701424962F90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525656   (129126) от 21.01.2022
+
+EdgeView 3 v3.2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129126.jpg" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEEDEC5F2A4FF915F7ED002A61F21DE35BCAD394
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489087   (129127) от 27.04.2012
+
+Вечерний Ургант. Выпуск №9 (2012.04.27) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9578E0C88F47528D8EAEFDCD22A603A39943B9BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525683   (129128) от 21.01.2022
+
+VA - Buddah's Chill 1 (2010) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Krishna Singh - The Spirit Of Buddha (Heart Chakra Mix) (4:57)
-02. Ragi - Double Dream (Vocal Mix) (2:43)
-03. Sarod Sapla Glee - Two Spirits (India Radio Cut) (2:39)
-04. Green Taboo - Oriental Vibes (Original Mix) (5:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, Lo-FiПродолжительность: 00:38:57
+01. Airstream One - Southern Light (Original Mix) (4:50)
+02. Cinemascope - Chanson du Chine (Original Mix) (7:15)
+03. Simon Le Grec - Its Only Love (Radio Edit) (4:00)
+04. Beatkonexion - Wavin' HiFi (Original Mix) (3:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:18:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:199452276BFC100B31F7270A9B94683003A9078E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490699   (130320) от 02.05.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (01.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50485FB1FC2F3083BE0F9DEB9CDE2C0D50A3613
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525008   (130321) от 18.01.2022
-
-Клоун Коко курильщик / Koko Smokes (1928) TVRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курение это зло, бесспорно. Надо бросать эту вредную привычку, одни неприятности от нее.Производство: США, Inkwell StudiosЖанр: Рисованная анимация, короткометражныйРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9496138982305628F5D84BD9EEA024DE61E495F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490701   (130322) от 02.05.2012
-
-[Wallpapers] Gilrs Wallpaper Collection (01.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 4000х2479
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251D9B9282D320B93AF9DC325490FE99E7BD4026
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524743   (130323) от 18.01.2022
-
-VA - Moonlight Lounge (Mediterranean Roots), Vol. 2 (2022) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Yeah Uhhh Oui (3:00)
-02. Weber & Weber - Speaking Without Words (4:49)
-03. Svendaq - Blue Bossa (6:01)
-04. Chillson, Marc Hartman - A Lifetime (4:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C334A7071945C4C8F38830289D2F2AC12C360B28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525024   (130324) от 18.01.2022
-
-VideoSolo Screen Recorder For Mac 2.0.50 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Независимо от того, какие виды экранных действий на вашем компьютере, например, онлайн-видео игры, скайп-чат, демонстрации, вы можете использовать VideoSolo Screen Record для записи их на видео.
-• Захват экрана на вашем компьютере в HD-видео
-• Запишите звук с компьютерной системы и микрофона одновременно
-• Сделайте снимок определенных областей экранаТип издания: macOS SoftwareРелиз состоялся: 29.12.2021Разработчик: © 2022 VideoSoloПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C1F18271E2226F6EC869ACEA8BC9D586C47853
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490946   (130325) от 02.05.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 9
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1600х1200/1680х1050 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BBA4BF230FCF8B1241D062C2DEFC484C7BC6F13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490923   (130326) от 02.05.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1920x1080 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13511D874525193F13BFE91E00D3C1C8D21463A6
+magnet:?xt=urn:btih:8F9C7F81CBC25826FB88BFC8665F5AF55400C07B
 ```
 
 

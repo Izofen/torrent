@@ -1,3 +1,106 @@
+###  Публикация: 1592767   (181836) от 25.11.2022
+
+ППG - 1 EP, 2 Singles (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кроме тебя [00:03:41]Жанр: Punk-RockПродолжительность: 3 CD, 00:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE67369A2DCE22664D840068C51D511D0C9ACBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592721   (181924) от 25.11.2022
+
+Monrau - Тишина, сделай громче (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ненависть [00:02:16]
+02. Тишина [00:03:02]
+03. Километры и дожди [00:02:42]
+04. Точка паника [00:03:09](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9E36E6ECF33A14CF99D131A2E7B7CF3333AE87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592948   (181953) от 25.11.2022
+
+ОРКиКО - СУП (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Avant-Garde>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мотыльки [00:07:44]
+02. Вороны [00:08:03]
+03. Мы уходим [00:01:01]
+04. Мы с приятелем [00:09:48](   Читать дальше...   )Жанр: Avant-garde, Free Improvisation, Free Jazz, Spoken WordПродолжительность: 2 CD, 01:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31DED2F9C74AA37A365111CA3CE7CF21CC3A9273
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592983   (182009) от 25.11.2022
+
+Voidwards - Amidst the Ocean of Fog (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Doomgaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amidst the Ocean of Fog: to the Forces Unseen [00:11:38]
+02. Amidst the Ocean of Fog: the Ghosts [00:14:14]Жанр: Doom Metal, DoomgazeПродолжительность: 00:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F69F123D5CFFC0B68F461310A239AFE5796900C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592628   (182380) от 24.11.2022
 
 Красная Плесень - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
@@ -584,112 +687,6 @@ magnet:?xt=urn:btih:20F25602611B816590EC76F6202E6B5527001694
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80DBCA329B1BA353D51BCD27C3BF2FC4A95EC1AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664098   (186276) от 24.09.2023
-
-Nitrogenium - Игра Теней (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Она — это тьма [00:03:27]
-02. Во льдах [00:00:54]
-03. Холодно [00:03:12]
-04. Не знаю [00:02:39](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C9ED585D25184BBCF32F000297B4C19C75B4EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664106   (186286) от 24.09.2023
-
-6ES - Поворот в никуда (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ил [00:08:06]
-02. Прометей [00:06:00]
-03. На проводе [00:02:59]
-04. Утерян [00:06:45](   Читать дальше...   )Жанр: Sludge Metal / Stoner / Doom MetalПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B34FA5368F4F75C30294FB85C5F853B8AA68C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663111   (186589) от 22.09.2023
-
-Тролль Гнёт Ель - Хмель его хранил (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Без благословения [00:04:08]
-02. Хмель его хранил [00:03:27]
-03. Бодун-колдун [00:03:42]
-04. Пивоварня Ульва [00:03:32](   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:913C10A1D13F859E5BFE173E39C9F3C89F18D9EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591834   (186612) от 20.11.2022
-
-Thy Grave - 3 Release (2013-2022) [FLAC|Lossless|WEB-DL|tracks] <Doom metal, Sludge>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yoshio Sudo (The Plague Bearer) [00:04:45]
-02. My Body Is a Coffin [00:04:29]Жанр: Doom metal, SludgeПродолжительность: 3 CD, 01:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CAFDF866F0CDA0A5FB6C0596565BD74C3ECEEE1
 ```
 
 

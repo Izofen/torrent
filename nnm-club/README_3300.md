@@ -1,225 +1,547 @@
-###  Публикация: 1739195   (106161) от 26.07.2024
+###  Публикация: 1743019   (105492) от 14.08.2024
 
-PrivaZer Pro 4.0.91 Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106161.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3723DB4F361A663AE686A9F0F9C406F635580D02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739098   (106162) от 26.07.2024
-
-VA - Rock Klassiker (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avenged Sevenfold - Paranoid (2:43)
-02. Ei siis on siis - Highway to Hell (3:14)
-03. Dick Brave & The Backbeats - Walk This Way (2:49)
-04. Halestorm - Get Lucky (3:09)(   Читать дальше...   )Жанр: RockПродолжительность: 03:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:526DBA450BFE6CB1FC059D292F872D459CC1B5F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739064   (106163) от 26.07.2024
-
-VA - Armin van Buuren - A State Of Trance 1183 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kryder ft. Sarah de Warren - Lights Out (Dominiq Vanquish Remix)
-02. Nitrous Oxide & Adam Sobiech - Magique
-03. David Broaders - Interplanetary
-04. Jochem Hamerling - Go Back(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB4F13D45FBA6734AC8A10B00060EBB5E904E76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739096   (106164) от 26.07.2024
-
-VA - Don't Stop the Rock! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exhaust - Star of the Logbook (4:30)
-02. Different Image Project - Behind the Lines (Remix) (5:35)
-03. Skyfyre - Red Lights (3:22)
-04. Blue Thunder - Highway Solitude (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21AF164535184E967D56CE8155FE8E63B08620B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739062   (106165) от 26.07.2024
-
-Дина Волсини, Сергей Волсини | Простить или Отомстить (2020) [MP3, Дмитрий Ельпин]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Статьи супругов Волсини, появившиеся в глянцевых журналах в 2010–2013 годах, произвели настоящий фурор среди читателей. Со свойственной авторам правдивостью они объясняют, почему хороший человек сталкивается с плохими проблемами, что общего между проституткой и сверхпорядочной дамой, чем грозит мужчине брак с «папиной дочкой», как поклонники разрушают личную жизнь (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 05:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9307BD0CF48AF71E78649D94FD040A65963B1F50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739141   (106166) от 26.07.2024
-
-4K YouTube to MP3 5.5.1.0110 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106166.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 - приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио. Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url". Наслаждайтесь аудио треками в любое время, в любом месте, оффлайн.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E4341E17279277839AC7509751A6EB7EC3832E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739078   (106167) от 26.07.2024
-
-Schwarzer Engel - Höhere Gewalt (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Gothic Metal>
+Pentagram - Sub-Basement (2001) Remastered, 2024, Heavy Psych Sounds [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, heavy metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 100 Jahre (4:23)
-02. Einer gegen alle (3:43)
-03. Hitsingle (3:11)
-04. Kunstprodukt (3:50)(   Читать дальше...   )Жанр: Industrial Metal, Gothic MetalПродолжительность: 00:42:34
+01. Bloodlust [00:02:28]
+02. Buzzsaw [00:02:29]
+03. Drive Me To The Grave [00:04:28]
+04. Sub-Intro [00:03:54](   Читать дальше...   )Жанр: Doom Metal, heavy metalПродолжительность: 00:54:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD8224D09923E8956B2053BDDA15D89CC3B34CBE
+magnet:?xt=urn:btih:DE3E521D6DA7B650EAC602426E39FF38A6CE8CFA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738909   (106168) от 26.07.2024
+###  Публикация: 1742994   (105493) от 14.08.2024
 
-Status Quo - Official Archive Series Vol. 3: Live at Westonbirt Arboretum 2008  (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+VA - Rated in the Mix with Grant Trowbridge (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Oblivion - Momentum Overdrive (Extended Mix) [6:36]
+02. Drumm & Fletch - Hallucinate (Extended Mix) [5:55]
+03. A-Rival - Meridian (Zach Zlov Remix) [7:47]
+04. Solarshift Project - Echoes Athanasia (Extended Mix) [7:38](   Читать дальше...   )Жанр: TranceПродолжительность: 04:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F9B95136554805B1A5A8DACEE19173DAABA630
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742989   (105494) от 14.08.2024
+
+No Love Lost - Bliss (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (Live) (1:37)
-02. Caroline (Live) (4:45)
-03. The Wanderer (Live) (2:48)
-04. Rain (Live) (6:07)(   Читать дальше...   )Жанр: RockПродолжительность: earMUSIC
+01. Keeping Up With The Jones
+02. Believe In Love
+03. Love Song
+04. Heart Strings(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A26AFAF68F8F406E839610E55A8B48A83604897D
+magnet:?xt=urn:btih:96BFC1FC7D43AAA6088813EAE3D2D0295C1B9E30
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739076   (106169) от 26.07.2024
+###  Публикация: 1743002   (105495) от 14.08.2024
 
-Моя семья / Treasure (2024) TS [H.264/1080p] [звук с TS] [AD]
+Deville - 20 Years (2024) [FLAC 16,24/44.1,96|Lossless|WEB-DL|tracks] <Stoner Rock>
 
->>
->>
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Американская журналистка Рут, давно мечтавшая съездить на родину родителей, предлагает отцу совершить путешествие домой. Отец всеми силами саботирует поездку, отшучиваясь и создавая по пути массу курьёзных ситуаций. Тем временем Рут пытается разобраться в прошлом, понять себя и свою семью.Производство: Германия, Франция / ARTE, Bavaria Film and Television FundЖанр: драма, комедияРежиссер: Юлия фон ХайнцАктеры: Лина Данэм, Стивен Фрай, Андре Хеннике, Томаш Влосок, Збигнев Замаховский, Ивона Бельска, Венанти Носул, Мария Мамона, Роберт Баста, Оливер ЭвиПеревод: Дублированный (Paragraph Media) звук с TSЯзык озвучки: РусскийСубтитры: Русские (Forced hardsub, на иностранную речь)Продолжительность: 01:45:48Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+01. Dust [00:04:35]
+02. The Hand That Feeds [00:02:54]
+03. Lava [00:03:20]
+04. What Remains [00:04:29](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876CD114421EEC619A851241EFB59885FD16BFC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742738   (105496) от 13.08.2024
+
+Rahsaan Roland Kirk - The Case Of The 3 Sided Dream In Audio Color (1975) 2004, Atlantic [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conversation [0:59]
+02. Bye Bye Blackbird [2:39]
+03. Horses (Monogram/Republic) [0:19]
+04. High Heel Sneakers [4:49](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8D4385D05F56EEC0E25A1AE5EA22C48D789F05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742898   (105497) от 13.08.2024
+
+Hyperion - Seraphical Euphony (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remnants Of The Fallen (02:08)
+02. Novus Ordo Seclorum (06:59)
+03. Flagellum Dei (05:07)
+04. Seraphical Euphony (08:20)(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0077065CA50CE43D2D87C388E311A5AD011BF77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742702   (105498) от 13.08.2024
+
+moiii - moiii (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tangled Chords [00:04:18]
+02. Turtle Legs [00:04:16]
+03. Shhhhhhhhhhhhh [00:05:01]
+04. You Won't Be Alive To Feel It [00:04:39](   Читать дальше...   )Жанр: Industrial, ExperimentalПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E2FB37BECF176FBB43ABF26C08B2EDD0CB6A593
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742716   (105499) от 13.08.2024
+
+S.I.N.A - Alte Liebe... (2024) [MP3|~245 Kbps (V0)] <EBM, Industrial, Female Vocal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105499.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nicht Ich [00:04:29]
+2. Little Girl [00:04:36]
+3. Gefühlschaos [00:04:37]
+4. Bauchgefühl [00:03:39](   Читать дальше...   )Жанр: EBM, Industrial, Female VocalПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB76004B41DFB419DF3910CDD926E8C0FC6E94F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742718   (105500) от 13.08.2024
+
+keldin - There is no future (Будущего нет) (2024) [MP3|320 Kbps] <Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Машина [00:02:55]
+02 - Сталь [00:03:10]
+03 - Технобитва [00:03:44]
+04 - Техноконструктор [00:03:04](   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC236E884511CC5997C28F657CFA148CA5A90E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742770   (105501) от 13.08.2024
+
+Журнал | Дачный сезон №7 (июль 2024) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаИздательство: ООО Бауэр МедиаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449D59E05B65E6D74CBD9FC70523597F4F615106
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742741   (105502) от 13.08.2024
+
+Виктория Шорикова | Огненный разум (2024) [MP3, Николай Прокофьев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающий детективный рассказ, где разворачивается напряженная борьба между служителем Фемиды и изворотливым преступником… Или не преступником? Тогда кто в действительности совершил преступление? И как понять, что является правдой, а что лишь частью хитроумного плана? Дело особенно усложняется, когда речь заходит о помраченном болезнью сознании…Жанр: Интеллектуальный детективИздательство: ЛитРес: чтецПродолжительность: 02:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E26DDC2A4184A4D5FB9458FCA69F2C6B16718AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742766   (105503) от 13.08.2024
+
+VA - Anjunabeats pres. Summer House 01 (DJ Mix) (2024) [MP3|320 Kbps] <Progressive House, Deep House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. gardenstate & Bien & anamē (SE) - The Best Part (Extended Mix) [6:02]
+02. Above & Beyond feat. Alex Vargas - Blue Sky Action (EDX's Indian Summer Extended Mix) [5:10]
+03. Tinlicker feat. Thomas Oliver - Need You (Extended Mix) [6:58]
+04. Dirty South feat. Anima! - I Swear (Dirty South Extended Mix) [7:26](   Читать дальше...   )Жанр: Progressive House, Deep House, Melodic House & TechnoПродолжительность: 03:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9852B4B27627E8C19F71AF7F2C864AC68447391A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742835   (105504) от 13.08.2024
+
+Battle Lost - Into The Realms (2024) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Realms (02:34)
+ 02. Ascension's Call (04:40)
+ 03. Last Warrior's Oath (04:01)
+ 04. Fire In The Heart (04:25)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB4469339F5703D1AB4308C7957AAB262FEF4D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742878   (105505) от 13.08.2024
+
+Вадим Бурлак | Рыцари мадам Авантюры (2005) [MP3, Вадим Бурлак]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Романтика приключений и путешествий.
+Более 130 экспедиций совершил по всему миру писатель и путешественник Вадим Бурлак. Поэтому кому, как не ему, подарить нам, оседлым жителям мегаполисов, свои впечатления от необыкновенных путешествий. Легенды, мифы, мистические случаи в фантастических интерьерах загадочной Амазонии – писатель слой за слоем снимает (   Читать дальше...   )Жанр: Русская литература, приключенияИздательство: Говорящая книга, ИД «Равновесие»Продолжительность: 06:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7A6D40B7B6BB5AFF67480BE3C31137E4A7601C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742771   (105506) от 13.08.2024
+
+VA - Essential Selection Ibiza 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Levi, TuraniQa & Airsand - Love Emotion (Extended Mix) [6:40]
+02. RoelBeat & Anza - Aciliando (Extended Mix) [5:51]
+03. Sedat & Ertan Koculu - Summer Goes (Extended Mix) [6:13]
+04. Andrey Exx & TuraniQa - Touch Me (Hiwater Remix) [5:17](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6B5B7CA0143D00B2D9F308E4513EA3EC9491A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742761   (105507) от 13.08.2024
+
+My Design Immortal - Resurgence (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Tale of Resurgence (4:14)
+02. Truth Unveiled (3:44)
+03. Silent Ruins (3:06)
+04. Taste of Bliss (3:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E36949D2C7EC0D6ACE6932755DD991CCAB67F61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742763   (105508) от 13.08.2024
+
+VA - Nahawand: Best of Emotional Trance (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ash K & Junior - The Sound Of Hope (Extended Mix) [8:05]
+02. W!SS with Ash K & Junior - Lonely Path (SounEmot Remix) [8:28]
+03. Iberian - And The Beginning Is Over (DreamLife Remix) [8:04]
+04. DreamLife & Grande Piano - Nemezis (Original Mix) [7:18](   Читать дальше...   )Жанр: TranceПродолжительность: 01:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FA9FC0264EA81100013B3682BB4EB932379BF9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742746   (105509) от 13.08.2024
+
+Журнал | Наша история №8 (62) (август 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайны государства в журнале "Наша история". Необычная трактовка известных событий. Самые скандальные события прошлого. Журнал рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать (   Читать дальше...   )Жанр: ИсторияИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB42191A0DD6134CA98B505851B177E110A2F13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742801   (105510) от 13.08.2024
+
+Eric De Vries - My Battle (2024) [MP3|~245 Kbps (V0)] <Industrial, Rhythmic Noise, Techno-Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Maximum Chemical Dose [00:07:14]
+02 - Du Du Du [00:07:10]
+03 - Seven Tools [00:05:50]
+04 - I Kill My Endboss [00:09:19](   Читать дальше...   )Жанр: Industrial, Rhythmic Noise, Techno-IndustrialПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940010C30F31FB36C453DE7FD166DAAE51522D76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742886   (105511) от 13.08.2024
+
+Lacey Sturm(ex Flyleaf) - Kenotic Metanoia (2024) Deluxe Edition [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (My Heartbeat) (02:18)
+ 02 - State of Me (03:14)
+ 03 - Are You Listening (04:08)
+ 04 - The Decree (04:15)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F495E0A6EF5E436BD3ED32F7EB65D77F83FDAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742908   (105512) от 13.08.2024
+
+Зверь внутри / The Beast Within (2024) WEB-DLRip [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105512.jpg" />
+</div>
+
+
+###  Подробнее
+
+10-летняя Уиллоу и ее родители живут отшельниками в диких лесах Англии. Серия странных событий заставляет девочку задуматься о том, почему же все это время мама с папой избегали внешнего мира. Однажды она решает проследить за родителями, отправившись вслед за ними в глубину леса. Так героиня узнает страшную тайну своего отца, превращающегося в ужасного монстра. А (   Читать дальше...   )Производство: Великобритания / Future Artists Entertainment, Paradox House, Filmology FinanceЖанр: ужасыРежиссер: Ксандер ФарреллАктеры: Кит Харингтон, Эшли Каммингс, Джеймс Космо, Кэолинн Спринголл, Ian Giles , Адам Бейзил, Мартина МакКлементсПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:08Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
@@ -229,446 +551,134 @@ magnet:?xt=urn:btih:A26AFAF68F8F406E839610E55A8B48A83604897D
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739110   (106170) от 26.07.2024
+###  Публикация: 1742707   (105513) от 13.08.2024
 
-VA - Top Summer Uplifting 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleksey Litunov - Drifting Moon (06:32)
-02. Haotic Visions - The Flame (06:05)
-03. Crealta Generation - Cryalta Vision (06:45)
-04. CJ Stereogun - Dolphin Pond (First Version) (06:10)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:105D0DDE5DA415F830CB0A027F584AC070A30FF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739097   (106171) от 26.07.2024
-
-VA - Golf Cart Mixtape: Classic Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tragically Hip - Courage (For Hugh MacLennan) (4:27)
-02. U2 - Pride (In The Name Of Love) (3:49)
-03. Queen - Under Pressure (Remastered 2011) (4:08)
-04. Tom Cochrane & Red Rider - Big League (4:38)(   Читать дальше...   )Жанр: RockПродолжительность: 01:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF7A663019E81E7AA7D67BE48DBFBF699354086D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739028   (106172) от 26.07.2024
-
-Гарри Ананасов и Ко - Жиганские Песни 2 (2006) [WavPack|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Официант
- 02. Вальс
- 03. Мама
- 04. Колокольчик(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2966FD03D63669698BE754F828A973E4DE42AB4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739035   (106173) от 26.07.2024
-
-Nautilus - Pacific Voyage (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+Andre Obin (André Obin) - Armored King (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Synthpop, Darkwave>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105513.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Get It up for Love (3:41)
-02. Georgy Porgy (4:02)
-03. Strawberry Letter 23 (4:29)
-04. I Keep Forgettin' (Every Time You're Near) (4:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:01
+01. Armored King [00:02:48]
+02. Testament [00:03:32]
+03. Refuse to Surrender [00:04:53]
+04. The Tower [00:03:36](   Читать дальше...   )Жанр: Synthpop, DarkwaveПродолжительность: 00:29:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C2EA9A994E7E7ED277E6CFD317954EC29691F3D
+magnet:?xt=urn:btih:6BB47C0AD817754566A3008B80F2797E85B4F1B2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739080   (106174) от 26.07.2024
+###  Публикация: 1742859   (105514) от 13.08.2024
 
-Soulbound - obsYdian (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
+Вадим Бурлак | Золотые тельцы Иеровоама (2005) [MP3, Виктор Зозулин]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Романтика приключений и путешествий.
+Более 130 экспедиций совершил по всему миру писатель и путешественник Вадим Бурлак. Поэтому кому, как не ему, подарить нам, оседлым жителям мегаполисов, свои впечатления от необыкновенных путешествий. Писатель слой за слоем снимает для нас пласты веков, не утверждая и не навязывая свое мнение, но, предлагая нам самим (   Читать дальше...   )Жанр: Русская литература, приключения, повестьИздательство: Говорящая книга, ИД «Равновесие»Продолжительность: 03:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D4E05B0AD27B6E1B81692352785EC9AD49D48B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742759   (105515) от 13.08.2024
+
+Black Valentine - Heavy Hearts (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. obsYdian (1:44)
-02. Burn (3:08)
-03. Insane (3:46)
-04. Forever in the dark (3:31)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:41:07
+01. Blessing In Disguise (4:49)
+02. Unrequited (Me This Whole Time) (3:11)
+03. Don't Need Nobody (4:54)
+04. Crickets (How Can I Get You To Care) (3:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A656BC09884AEE2C623287C12950A2A46B0CE77
+magnet:?xt=urn:btih:3802B902D69E6346E7B90EA956F5F3C5AF2E5048
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739068   (106175) от 26.07.2024
+###  Публикация: 1742879   (105516) от 13.08.2024
 
-Bill Evans - New Conversations (1978) 2014, Warner [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+Waynestock - Family Friendly (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105516.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Song For Helen [7:48]
-02. Nobody Else But Me [4:38]
-03. Maxine [4:40]
-04. For Nenette [7:22](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:27
+01. Family Disco Yeah! (feat. Carucha Podestá) (3:20)
+02. Retardado (3:08)
+03. Drama Queen (3:52)
+04. Una Mentira Que Actuamos Todos (3:04)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:559DEBA50B015D30BD22573597D6D04C6C66401A
+magnet:?xt=urn:btih:2244CC12131473D6244AA8101B4E5889D1A17D81
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739124   (106176) от 26.07.2024
+###  Публикация: 1742698   (105517) от 13.08.2024
 
-Sugar Bytes - DrumComputer 1.3.4 Standalone, VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106176.jpg" />
-</div>
-
-
-###  Подробнее
-
-DrumComputer - это новый специалист по синтетическим барабанам, сочетающий классический и современный синтез с гибкими модуляциями и роскошным секвенированием. Интеллектуальные рандомизаторы, элегантное редактирование паттернов и импорт ваших собственных сэмплов - это лишь некоторые из невероятных возможностей. Наслаждайтесь новыми барабанами каждый день и вдохновляйтесь (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDA2962DC1CD962243A68E21801C43EA0F38153
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739189   (106177) от 26.07.2024
-
-Perfectly Clear Workbench 4.6.1.2680 + AddonsPack Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:268BBADDA60C6A72FD4DAD815F6444E74AA459F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739192   (106178) от 26.07.2024
-
-Ghost - Rite Here Rite Now (2024) Original Motion Picture Soundtrack [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal>
+Nicole Marxen - Thorns (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwave, Industrial>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Imperium (Live at the Forum / 2023) (1:41)
-02. Kaisarion (Live at the Forum / 2023) (4:58)
-03. Rats (Live at the Forum / 2023) (4:28)
-04. Faith (Live at the Forum / 2023) (5:10)(   Читать дальше...   )Жанр: MetalПродолжительность: 01:30:18
+01. Path of Fire [00:03:36]
+02. Blood of Mine [00:04:32]
+03. Thorns [00:04:09]
+04. Dark Water [00:01:12](   Читать дальше...   )Жанр: Darkwave, IndustrialПродолжительность: 00:35:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:034B0A6A86789A46692A3E4494492781CB8C4143
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739206   (106179) от 26.07.2024
-
-Draw.io 24.7.5 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам доступно бесплатное программное обеспечение под названием Draw.io - это отличный инструмент для создания диаграмм и лучшей организации вашей работы. Если вы студент и вам нужно сделать диаграмму для иллюстрации презентации или задания, или вы менеджер проекта и вам нужно управлять своей командой, данный софт практически на сто процентов способен удовлетворить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C085CBF53FC327E272D472D0FE2BD4019C81B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739087   (106180) от 26.07.2024
-
-VA - Adventurous Moments Serenity and Charm Vacation Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Amazing (4:06)
-02. Chillaxing Jazz Kollektion - Smooth Journey (3:56)
-03. Chillaxonic - Ineffable (5:22)
-04. eJazz Artistry - Happy (3:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D362B7FADE6164BD70BFBA7A97A33372BC5752FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739237   (106181) от 26.07.2024
-
-PrivaZer Pro 4.0.91 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106181.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762995FBCE6AD51E6D574A74C1C578263DB8332D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739191   (106182) от 26.07.2024
-
-Radiant Photo 1.4.1.501 Portable by 7997 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Radiant Photo - это программа для редактирования фотографий, позволяющее пользователям изменять, улучшать и систематизировать их цифровые фотографии. Он предоставляет множество инструментов для настройки цвета, яркости, контрастности, насыщенности и других свойств изображения, а также возможностей для обрезки, вращения и изменения размеров изображений. Radiant Photo (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6EBCC61709A7A3CF2E1CBF6C4178C6AF0DB0262
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739033   (106183) от 26.07.2024
-
-Green Grey - Greatest Hits (2014) [WavPack|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Под Дождём
- 02. Аргументы И Факты
- 03. Ша-Ла-Ла
- 04. Рагга(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86B1AB2BA8129D970267F1016858A190CCE1A87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739157   (106184) от 26.07.2024
-
-Stratovarius - Heroes (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Symphonic Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heroes [3:46]
-02 - We Are Not Alone [4:35]
-03 - Dragons [4:05]
-04 - The Game Never Ends [3:54](   Читать дальше...   )Жанр: Metal, Symphonic Metal, Power MetalПродолжительность: 00:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAEDAF59FBB2E20FF5B6396E9BB5C5964AD032B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739069   (106185) от 26.07.2024
-
-Мураками - Казань / Big Twin Arena 2024 (2024) Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106185.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Рок-н-ролл (Live)
-2. Встречи не будет (Live)
-3. 364 (Live)
-4. Наутёк (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA10346BF77B8C4811336F2FDC5F6337FED5ACB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739079   (106186) от 26.07.2024
-
-VA - Balatonica Chillout: Summer Edition 2024 (2024) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incognita Alma - Mahe (Original Mix) [5:05]
-02. Gary B - Rainy Day In The City (Original Mix) [1:52]
-03. Supira - Beautiful You (Original Mix) [5:04]
-04. Beamy - Still Waters (Original Mix) [4:26](   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E43FE8B5E5060CD8D8397AD3819A6F0F136B949
+magnet:?xt=urn:btih:529816E77F71B7E582126415A9EA53C9FAD694D7
 ```
 
 

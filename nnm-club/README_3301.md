@@ -1,676 +1,662 @@
-###  Публикация: 1739077   (106187) от 26.07.2024
+###  Публикация: 1742760   (105518) от 13.08.2024
 
-Моя семья / Treasure (2024) TS [звук с TS] [AD]
+Matt Mitchell & the Coldhearts - Matt Mitchell & the Coldhearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105518.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Американская журналистка Рут, давно мечтавшая съездить на родину родителей, предлагает отцу совершить путешествие домой. Отец всеми силами саботирует поездку, отшучиваясь и создавая по пути массу курьёзных ситуаций. Тем временем Рут пытается разобраться в прошлом, понять себя и свою семью.Производство: Германия, Франция / ARTE, Bavaria Film and Television FundЖанр: драма, комедияРежиссер: Юлия фон ХайнцАктеры: Лина Данэм, Стивен Фрай, Андре Хеннике, Томаш Влосок, Збигнев Замаховский, Ивона Бельска, Венанти Носул, Мария Мамона, Роберт Баста, Оливер ЭвиПеревод: Дублированный (Paragraph Media) звук с TSЯзык озвучки: РусскийСубтитры: Русские (Forced hardsub, на иностранную речь)Продолжительность: 01:45:48Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+01. Black Diamonds (3:32)
+02. Home (3:34)
+03. On & On (3:32)
+04. Dare You to Watch (3:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:ADBF43AB7727E6AE39DAB2D2CDFE2C3F3BF2B75B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739063   (106188) от 26.07.2024
+###  Публикация: 1742795   (105519) от 13.08.2024
 
-Зигмунд Фрейд | Знаменитые случаи из практики (2023) [MP3, Илья Акинтьев]
+Журнал | Кухонька Михалыча №8 (228) (август 2024) [PDF]
 
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105519.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В аудио книгу включены пять наиболее известных терапевтических случаев, описанных австрийским ученым-психологом, основоположником психоанализа Зигмундом Фрейдом. Изложение драматических обстоятельств жизни и хода лечения пациентов, прокомментированное творцом новой науки, и по сей день служит незаменимым пособием по изучению основ психоанализа.Жанр: Научно-популярная литератураИздательство: АРДИСПродолжительность: 18:03:31
+Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8ACC93810DF319992DF43B0FAB7CBECB13448CD5
+magnet:?xt=urn:btih:21E43C6DAD75396B509615A58993E64D333F58C5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739122   (106189) от 26.07.2024
+###  Публикация: 1742784   (105520) от 13.08.2024
 
-AudioRealism - ABL3 3.3.3.2 Standalone, VSTi, VSTi 3 (x64) RePack by TCD [En]
+Журнал | Наша кухня №8 (342) (август 2024) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основа каждого выпуска - проверенные рецепты блюд с фотографиями. С помощью «Нашей кухни» можно без труда составить меню как на каждый день, так и для праздничного стола. Процесс приготовления блюд превратится в удовольствие!Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C3B59D97240B84132157D41442A7A88F3F170E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742464   (105521) от 13.08.2024
+
+Jormungand | Ёрмунганд [ТВ-1] [2012, TV, 12] BDRemux 1080p raw+rus
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105521.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Господь сотворил людей, а Сэм Кольт сделал их равными», - такой поговоркой руководствуются торговцы оружием. Люди воевали и будут воевать; прогресс идет, а смертельных игрушек нужно все больше. Спрос удовлетворяют транснациональные корпорации, охватившие всю планету, словно мировой змей из легенд. Коко Хекматияр – дочь транспортного магната, работающая под крышей (   Читать дальше...   )Производство: Япония, White FoxЖанр: Боевик, приключенияРежиссер: Мотонага КэйтароЯзык озвучки: Японский; Русский (Eladiel & Jam; loster01 & Emeri; Sad_Kit & Trina_D; Valkrist & KroshkaRu)Субтитры: Русские (Advantage - полные и надписи)Продолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC489F5DBE76B4D0ACF6F6B4639988BFFE1940C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742782   (105522) от 13.08.2024
+
+Журнал | Наша кухня №7 (341) (июль 2024) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основа каждого выпуска - проверенные рецепты блюд с фотографиями. С помощью «Нашей кухни» можно без труда составить меню как на каждый день, так и для праздничного стола. Процесс приготовления блюд превратится в удовольствие!Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210F93EC9347F622DE9D7B9BDFBB66431B64630E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742849   (105523) от 13.08.2024
+
+Surge XT 1.3.4 Standalone, CLAP, VSTi 3 [En]
 
 >>Мультимедиа и Графика
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105523.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AudioRealism Bass Line 3 (ABL3) - это новое поколение нашего признанного критиками модуля эмуляции 303.
-ABL3 полностью воссоздан с нуля и был в разработке в течение нескольких лет с целью создания наиболее возможной и достоверной эмуляции.
-Благодаря интуитивно понятному и рациональному рабочему процессу, мы надеемся ABL3 установит новый стандарт в программном обеспечении (   Читать дальше...   )Язык интерфейса: Английский
+Бесплатный гибридный синтезатор с открытым исходным кодом. Множество методов синтеза, большой выбор фильтров, гибкий механизм модуляции, набор эффектов и современные функции, такие как MPE и микронастройка.
+Если вы пользовались им в прошлом, это будет похоже на возвращение старого друга в вашу жизнь. Если вы новичок в Surge XT, добро пожаловать на вечеринку.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3EEFF718CB7CE4B957C12FFAE40259C1C325D380
+magnet:?xt=urn:btih:6E20C63EE7F125E0BFF7756ECE9123BC0F5A4261
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739149   (106190) от 26.07.2024
+###  Публикация: 1742797   (105524) от 13.08.2024
 
-4K YouTube to MP3 5.5.1.0110 RePack (& Portable) by Dodakaedr [Multi/Ru]
+Большая любовь / Le grand amour (1969) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105524.jpg" />
+</div>
+
+
+###  Подробнее
+
+О фильме: Пьер женат на Флоранс. Его семейная и профессиональная жизнь складывается удачно. Он работает директором на заводе собственного тестя и целыми днями подписывает чеки, а вечерами смотрит телевизор. Однообразно текут годы. Но вот на работу поступает новая молоденькая секретарша. Он влюбляется в неё и начинает мечтать...Производство: Франция / C.A.P.A.C., Les Productions de la Guéville, Madeleine FilmsЖанр: комедия, мелодрамаРежиссер: Пьер ЭтексАктеры: Пьер Этекс, Луи Маис, Билли Бурбон, Магали Клеман, Анни Фрателлини, Николь Кальфан, Ален Жани, Жаклин Руйяр, Рене Гарде, Миша Байяр, Люк Делюмо, Жорж Монтакс, Мартин Леклерк, Викко фон БюловПеревод: профессиональный одноголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25103562FD664D2582F03DD66A96871ACBE0990E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742501   (105525) от 13.08.2024
+
+Андрей Никольский - Площадь (2024) [MP3|320 Kbps] <Шансон / Эстрада>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Площадь [00:02:59]
+02 - Старинная Москва [00:05:19]
+03 - Над Окой [00:03:50]
+04 - Люстры старинного зала [00:03:53](   Читать дальше...   )Жанр: Шансон / ЭстрадаПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A2F2366828A6EAAC7E699DC5241EC531514C57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742916   (105526) от 13.08.2024
+
+MusicBrainz Picard 2.12.1 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105526.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K YouTube to MP3 - приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио. Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url". Наслаждайтесь аудио треками в любое время, в любом месте, оффлайн.Язык интерфейса: Русский, Английский, другие
+MusicBrainz Picard - простая в использовании программа для редактирования тегов аудио файлов, которая поддерживает большое количество разнообразных форматов, включая MP3, Ogg Vorbis, FLAC, MP4 (AAC), Musepack, WavPack, Speex и пр.
+Приложение анализирует музыкальный трэк и ищет его в онлайн базе MusicBrainz, если совпадение найдено, то программа скачивает всю информацию (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:225F5FBF5A574223D89B16B81155885AC0DD0404
+magnet:?xt=urn:btih:6F32D471E39EB032EEE2D4A8AA870CD95A311533
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738871   (106191) от 25.07.2024
+###  Публикация: 1742736   (105527) от 13.08.2024
 
-VA - Sunrise Sessions Vol. 1 - Mixed by Robilardo (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Organic House>
+Журнал | Приусадебное хозяйство №7 (июль 2024) [PDF]
 
->>Electronic
->>House
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105527.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ALMA (GER) - What's That Called Again (Extended Mix) [8:27]
-02. Koelle & Paul Brenning - Dark Knight Of The Soul (Extended Mix) [6:48]
-03. Morgin Madison & Meeting Molly - Pomegranate (Extended Mix) [6:10]
-04. Jerome Isma-Ae - Baharat (Extended Mix) [7:19](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Organic HouseПродолжительность: 02:55:31
+Журнал «Приусадебное хозяйство» знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не остались без внимания и владельцы домашних ферм — здесь они находят ответы на многие (   Читать дальше...   )Жанр: Дача, сад, огородИздательство: ООО "Журнал "Приусадебное хозяйство"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EDBA154868BE3BA16C9BF6981285691F109446A
+magnet:?xt=urn:btih:D0A7B13A768C41D2CAF1F0273B05E662C711F22D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738868   (106192) от 25.07.2024
+###  Публикация: 1742739   (105528) от 13.08.2024
 
-VA - Redux Selection Vol. 8 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Журнал | Приусадебное хозяйство №8 (август 2024) [PDF]
 
->>Electronic
->>Trance
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105528.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Forbidden Mind - Wanderer (Extended Mix) [6:23]
-02. Fros7novA - Renegade (Extended Mix) [6:28]
-03. STNX - Remedy (Extended Mix) [6:33]
-04. DJ Hollowbase - Aukusti (Extended Mix) [6:25](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:17:03
+Журнал «Приусадебное хозяйство» знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не остались без внимания и владельцы домашних ферм — здесь они находят ответы на многие (   Читать дальше...   )Жанр: Дача, сад, огородИздательство: ООО "Журнал "Приусадебное хозяйство"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62F4753103101950849A3D6EA5A02B40B04A491B
+magnet:?xt=urn:btih:5876772BA464DDAF2ACB3253E44A114DBC6B86F6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738872   (106193) от 25.07.2024
+###  Публикация: 1742853   (105529) от 13.08.2024
 
-The Blues Vultures - You Can't Ruffle My Feathers (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Возраст Христа / Kristove roky (1967) BDRip [H.264] [VO]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rock Scars (3:05)
-02. Electric Stars (3:35)
-03. Hang Me out to Dry (3:38)
-04. Rocket 88 (4:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:19
+Это рассказ о любовном треугольнике — двух братьях, художнике и лётчике, и девушке, за которым угадываются беспокойные поиски смысла жизни, настоящих человеческих отношений... Всю жизнь преодолевающий страх авиакатастрофы, лётчик нелепо погибает в обычной автомобильной аварии на сельской дороге. Только после его смерти художник узнаёт, что у его женатого брата был (   Читать дальше...   )Производство: Чехословакия / Studio Hraných FilmuЖанр: драма, комедияРежиссер: Юрай ЯкубискоАктеры: Иржи Сикора, Яна Стегнова, Владо Мюллер, Мириам Канторкова, Мария Сикорова, Виктор Благо, Иржи Стехно, Роберт КрасныйПеревод: любительский одноголосыйЯзык озвучки: русский, словацкийСубтитры: русские,Продолжительность: 01:36:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E95FE3CEADC6402FDBC2EF518C5BC7CBEE5EF3E
+magnet:?xt=urn:btih:3A84BF94ECC354C1A11661CD86248366D588DC19
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738869   (106194) от 25.07.2024
+###  Публикация: 1742733   (105530) от 13.08.2024
 
-Sparrow Blue - No Lies, No Tricks (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Люк Перино | Нулевой пациент (2021) [MP3, Андрей Зверев]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105530.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 2 Coins (4:06)
-02. Don't Tell Me Nothin' (4:52)
-03. Jack the Stranger (3:29)
-04. River Water (4:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:57
+Говоря об истории медицины и открытиях, которые позволили успешно лечить болезни, мы всегда вспоминаем имена гениальных врачей и ученых. Но забываем о тех, кто сделал эти открытия возможными. Книга Люка Перино посвящена пациентам, чьи случаи двигали медицину вперед и сделали ее такой, какой мы знаем сейчас. Вас ждет интересное приключение длиной в несколько веков, (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: БОМБОРАПродолжительность: 06:04:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C09851C17D8D788EF30991D6DBC5D9830378EF94
+magnet:?xt=urn:btih:92DC4131C1381A10C048F14CAE7A2B0763A7A845
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738845   (106195) от 25.07.2024
+###  Публикация: 1742901   (105531) от 13.08.2024
 
-Photo Supreme 2024.2.2.6599 RePack (& Portable) by elchupacabra [Multi/Ru]
+Levantis - Music For Mother & Baby (Музыка для мамы и малыша) (2007) [WavPack|Lossless|image + .cue] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01		Heartbeat (The Beginning)	6:43
+02		Connection	6:44
+03		Intimate Moments	6:07
+04		Gift Of Love	2:47(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 01:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE284D59F68EA67D2BDC2DFD38C09F8AB3837B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742792   (105532) от 13.08.2024
+
+Журнал | Кухонька Михалыча №7 (227) (июль 2024) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99724CFF0DFCED3251B0BF6CCB2918EA6304FC8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742807   (105533) от 13.08.2024
+
+JetBrains RubyMine 2024.2 Repack by Sitego [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105533.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+RubyMine — умная и удобная интегрированная среда разработки для языка Ruby и веб-фреймворка Rails, которая включает в себя все необходимые разработчику инструменты и поддерживает наиболее востребованные технологии из мира Ruby.
+Как и все IDE, разработанные на основе платформы IntelliJ, RubyMine обладает уникальным механизмом анализа кода, который лежит в основе таких (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1535D284855917E83818790253E8E075ACE9E83
+magnet:?xt=urn:btih:68983C3DFF11121A2944099D6B7B701513886341
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738861   (106196) от 25.07.2024
+###  Публикация: 1742568   (105534) от 12.08.2024
 
-Christopher Wyze & the Tellers - Stuck in the Mud (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three Hours from Memphis (4:23)
-02. Stuck in the Mud (feat. Cary Hudson) (3:55)
-03. Cotton Ain't King (4:37)
-04. Soul on the Road (feat. Cary Hudson) (3:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF986EA704E557DEC2822BBF19524BC87A66F929
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738866   (106197) от 25.07.2024
-
-Sam Joyner - COME WHAT MAY (I'll Always Love You) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Its That Mojo That Makes Me Stay (5:01)
-02. Teddy's Juke Joint (5:05)
-03. Come What May(i'll Always Love You) (4:24)
-04. No One But You (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3AF04071A11B2F81278CE3A483ADDEEAE77AD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738865   (106198) от 25.07.2024
-
-Rusty Apollo - Apollo-III (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future's So Bright (I Gotta Wear Shades) (2:11)
-02. Houston (We Have a Problem) (4:52)
-03. Poor Moon (2:46)
-04. Slippery People (5:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB972DCED010211D0715484442FAD85EE0C0C46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738876   (106199) от 25.07.2024
-
-The Conqueror Root - The Conqueror Root (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love Women (4:05)
-02. Record Collection (3:34)
-03. In Front of Your TV (3:26)
-04. I Ain't Afraid (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D88AB70455BF2F917903078A5F978E0541F8C1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738870   (106200) от 25.07.2024
-
-The B. Christopher Band - 106 Miles to Chicago (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Bartender (2:40)
-02. Everybody Needs Somebody to Love (3:52)
-03. Sweet Home Chicago (6:58)
-04. Peter Gunn Theme (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91CB210D8454EEE2CF26237F05A8C54D7895360F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738867   (106201) от 25.07.2024
-
-Sierra Green & the Giants - Here We Are (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can You Get To That (4:15)
-02. Come To Mama (3:19)
-03. Girls Can't Do What The Guys Do (3:05)
-04. Break In The Road (2:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9A4CBAEB71BEEE27DC762AADE4FE8992A434ABA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738875   (106202) от 25.07.2024
-
-The Chatham Singers - Blues That Kills (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Fine She's Mine (3:19)
-02. Cowboys are Square (3:12)
-03. I Love My Woman (3:34)
-04. All My Feelings Denied (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4EA3F5B2808001F44AE6DCDFF6A4B5E2C7BF003
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738863   (106203) от 25.07.2024
-
-Rodrigo Belloni - Like a Train (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears Like a River (5:55)
-02. I Learned Throughout the Years (4:33)
-03. You Are the Reason (3:55)
-04. Travelin' Band (3:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F780E4521F78FD4915E7FD88BB0ECD078BEAC6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738857   (106204) от 25.07.2024
-
-Paul Bley - The Complete Remastered Recordings on Black Saint & Soul Note (1984 - 1998) 10CD, 2013, CAM [FLAC|Lossless|tracks + .cue] <Post-Bop, Free Improvisation, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trying Hard to Be [12:44]
-02. A Star Trying [4:35]
-03. Too Hard to Be a Star [8:23]
-04. I Must Try [4:00](   Читать дальше...   )Жанр: Post-Bop, Free Improvisation, Piano JazzПродолжительность: 09:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721981DDE7E42638B5617C8BD01F7D7A521AE437
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738855   (106205) от 25.07.2024
-
-Bill Nadeau - Mutts and Mongrels (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can Live Without (Your Love) (4:06)
-02. I Can't Find A Reason (4:21)
-03. C'est La Vie (3:16)
-04. When You Fall In Love (5:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD42B6B58DC3E85406D117AD5A4855E57A341D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738983   (106206) от 25.07.2024
-
-Category 7 - Category 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+Black Jack - Black Jack (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105534.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In Stitches (4:45)
-02. Land I Used to Love (5:18)
-03. Apple of Discord (5:45)
-04. Exhausted (4:50)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:45
+01. Two Times Trouble
+02. Celebrate Love
+03. The Way
+04. When She Looks at Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF8822893C566F442BEA73F47EA15CB2BB32D7F2
+magnet:?xt=urn:btih:0B67A12B393E01E82843EDB85E9FF70DD03F573C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738906   (106207) от 25.07.2024
+###  Публикация: 1742100   (105535) от 12.08.2024
 
-Memento Database Pro 5.4.3 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memento Database - это мощный и в то же время легкий в использовании инструмент для работы с любыми данными, который позволяет хранить, организовывать, вычислять и визуализировать вашу информацию. Это удобнее, чем электронные таблицы, гибче, чем специализированные приложения, проще, чем создание собственных приложений с помощью конструкторов.Тип издания: ProРелиз состоялся: 06.07.2024Разработчик: MementoDB Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BFF822BE5398EF63045D3075831202112C0D83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739022   (106208) от 25.07.2024
-
-Jethro Tull - Live - Bursting Out (1978) 3 x CD, Reissue, 2024, Chrysalis [FLAC|Lossless|image + .cue] <Progressive Rock>
+Heavenwood - 5 Albums, 3 Singles (1996-2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105535.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Claude Nobs – Introduction by Claude Nobs
-02. No Lullaby
-03. Sweet Dream(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 03:45:14
+Список альбомов:
+1996 - Diva (Reissue 1997, Avalon - MICY-1024)
+1998 - Swallow (Massacre Records - MAS CD0158)
+2008 - Redemption (Remaster 2016)(   Читать дальше...   )Жанр: Gothic Metal, Doom MetalПродолжительность: 8 CD, 05:14:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C55984F57BAC31971C7384B1B357858F1592119
+magnet:?xt=urn:btih:092F5C1C5DA383CE5B5E92CFC6AE877A806E472A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738903   (106209) от 25.07.2024
+###  Публикация: 1742548   (105536) от 12.08.2024
 
-FontViewOK 8.51 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами крошечная программа, которая после запуска отобразит пользователю все установленные в его операционной системе шрифты и, конечно, Вы сможете с ними работать. Особенность программы - она позволяет вводить любой текст в специальное отведенное поле и сразу просматривать результат, то есть сразу будет видно, как набранное слово будет смотреться в том или ином (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B6FC71407305EEA2394AA5085DF7E522BE6DE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738990   (106210) от 25.07.2024
-
-Powerwolf - Wake Up The Wicked (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+Alien Ant Farm - Mantras (2024) [FLAC|Lossless|tracks + .cue] <Alt. Rock, Post-Grunge>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105536.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bless 'em With the Blade (2:48)
-02. Sinners of the Seven Seas (3:01)
-03. Kyrie Klitorem (3:04)
-04. Heretic Hunters (3:27)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:37:07
+01. The Wrong Things
+02. Last dAntz
+03. Fade
+04. No. 1(   Читать дальше...   )Жанр: Alt. Rock, Post-GrungeПродолжительность: 00:40:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C99D2F65AE2C817ABC684BA406822E2936C2DC5
+magnet:?xt=urn:btih:2A4D3E8793766069888593FDB830766A6BBC3D63
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738939   (106211) от 25.07.2024
+###  Публикация: 1742434   (105537) от 12.08.2024
 
-FanControl V197 + Portable [En]
+DJ Love (Sherwin Tuna) - Budots World (Reloaded) (2024) [FLAC|Lossless|WEB-DL|tracks] <edm, electronic, philippines, budots, club, dance, filipino>
 
->>Архив торрентов
->>Архив Программ
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Английский
+01. TiwTiw [00:03:48]
+02. Sabak Sa DJ Basuri [00:02:53]
+03. Mura Kag Erfs [00:03:46]
+04. Y Que Fue Bomb DJ [00:04:26](   Читать дальше...   )Жанр: edm, electronic, philippines, budots, club, dance, filipinoПродолжительность: 00:57:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64C6839ED3A76CF67DADB265DB2667184BAD2080
+magnet:?xt=urn:btih:2CCAD071D195C95DBE7A9B80F633D100993D4179
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738844   (106212) от 25.07.2024
+###  Публикация: 1742697   (105538) от 12.08.2024
 
-XYplorer 26.30.0000 RePack (& Portable) by elchupacabra [Multi/Ru]
+Bill Wyman - Drive My Car (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Rock>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-XYplorer - продвинутый файловый менеджер, который внешне напоминает стандартный Проводник Windows, но имеет множество дополнительных функций и инструментов для удобной работы с файлами. Особенностью этого менеджера является поддержка мультивкладок - откройте столько окошек, сколько Вам нужно, и быстро переключайтесь между ними.
-Приложение имеет гибкие настройки и (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Билл Уайман (Rolling Stones) выпустил свой девятый сольный альбом "Drive My Car" 9-го августа. "Drive My Car", представляющий собой мастерскую смесь его уникального англо-американского ритм-энд-блюза, является первым альбомом Уаймена с 2015 года, который будет доступен в цифровом формате, на CD и виниловых пластинках.01. Thunder on the Mountain (3:13)
+02. Drive My Car (3:23)
+03. Bad News (3:24)
+04. Storm Warning (3:44)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:34:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3EBA0A915166C6BEE26F25CC780A9BC0EF0C63A2
+magnet:?xt=urn:btih:10F43A5A99974023497E1772A6D5E5C08E2E7DE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742485   (105539) от 12.08.2024
+
+Ann Wilson & Tripsitter - Live in Concert (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Even It Up (Live) [00:07:57]
+02. Ruler of the Night (Live) [00:04:21]
+03. Love Alive (Live) [00:05:39]
+04. Isolation (Live) [00:03:04](   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 01:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E294144061A3E16AA3D495C1FE738C96CF778566
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742638   (105540) от 12.08.2024
+
+Newman - Colour In Sound (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Godspeed
+02. In Euphoria
+03. Wake Of The Wanderlust
+04. Afterglow(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE13B4EB73BE2ADB7A8FE646D76872C782F2CB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742497   (105541) от 12.08.2024
+
+Nathan Haines - Notes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, soul, analog, jazz, saxophone>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love You More [00:06:58]
+02. Night Moves [00:05:47]
+03. Just Holdin' On [00:03:48]
+04. Journey To The Peak [00:07:05](   Читать дальше...   )Жанр: House, soul, analog, jazz, saxophoneПродолжительность: 01:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9B0EB321FDF6310EFA95EBFF043298E2BCAE56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742581   (105542) от 12.08.2024
+
+Фёдор Сологуб | Красногубая гостья (2011) [MP3, Вадим Яковлев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Проза Серебряного Века.
+Фёдор Кузьмич Сологуб (1863–1927) – русский поэт, писатель, драматург, публицист. Один из виднейших представителей символизма.
+В сборник вошли рассказы одного из ярких представителей «Серебряного Века» Федора Сологуба в исполнении Вадима Яковлева.Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 01:22:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F13DAB86E80E6C55376FEE31F16AF0C8AEC625F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742580   (105543) от 12.08.2024
+
+Фёдор Сологуб | Творимая легенда (Книга 2). Королева Ортруда (2013) [MP3, Аркадий Бухмин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Фёдор Кузьмич Сологуб (1863–1927) – русский поэт, писатель, драматург, публицист. Один из виднейших представителей символизма.
+В романе Фёдор Сологуб выразил свои философско-художественные идеи, обозначенные им ранее в статьях и эссе. Изначально, задуманный им цикл романов назывался «Навьи чары», и первая часть называлась «Творимая легенда» (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: МедиаКнигаПродолжительность: 12:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277BEC826D651044FCFB48303AE889173C60D668
 ```
 
 

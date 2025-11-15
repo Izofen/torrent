@@ -1,3 +1,57 @@
+###  Публикация: 1683023   (128765) от 10.12.2023
+
+VA - A State of Trance Year Mix 2023 (Mixed by Armin van Buuren) (2023) [FLAC|Lossless|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128765.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren – Am I AI? (A State of Trance Year Mix 2023 Intro) (Mixed) (02:33)
+002. Gareth Emery feat. Maria Lynn - Missing You (Mixed) (02:03)
+003. Above & Beyond - 500 (Mixed) (00:44)
+004. Armin van Buuren feat. Anne Gudrun - Love Is A Drug (Mixed) (0:59)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:346055AE1CF8757B765AF390BFBE36D38BE42ED8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824296   (128940) от 14.10.2025
+
+VA - Yoga Breath - Relaxing Moments (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Evan Cortez - A Night in Rome (04:18)
+ 02 - Lofi Village - Another Love (03:20)
+ 03 - Ingo Herrmann - Nature View (02:41)
+ 04 - Twen T4 - Dana's Hill (04:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1AA705E31AE8F3F257014D21867F17B86CCC88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824120   (128968) от 14.10.2025
 
 VA - Sirup Amsterdam 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
@@ -640,60 +694,6 @@ VA - Winter Chillout Lounge 2023 - Smooth Lounge Sounds for the Cold Season [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86949F26E769C937A6D398EA9D944ADF76E828F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681932   (132061) от 05.12.2023
-
-Dance With The Dead - Driven to Madness (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <SynthWave, New RetroWave, DarkWave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March of the Dead
-02. Firebird
-03. Hex
-04. Sledge(   Читать дальше...   )Жанр: SynthWave, New RetroWave, DarkWaveПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B231F6DC85BB5B46F3889C5C572997F086288B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681340   (132071) от 05.12.2023
-
-VA - Hypnotised  A Journey Through British Trance Music 1993-2002 (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pete Lazonby - Sacred Cycles [11:08]
-02. Tilt - Invisible (Original Vocal 12'') [8:04]
-03. Solarstone - Seven Cities (Original Atlantis Mix) [8:10]
-04. 29 Palms - Touch The Sky (Vocal Mix) [8:35](   Читать дальше...   )Жанр: Hard TranceПродолжительность: 03:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9529F98E9FE475064372E3A2ECB391DFE4FFB89
 ```
 
 

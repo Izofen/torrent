@@ -1,3 +1,111 @@
+###  Публикация: 373281   (193234) от 01.09.2023
+
+Tequilajazzz - Лучшее (2CD) (2010) [FLAC|Lossless|image + .cue]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кокаин (3:03)
+02. Звери (6:53)
+03. Кроме звезд (4:49)
+04. Стратосфера (4:44)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 02:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:545D60A774506357E3308557CD6DCD8183F90B50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521572   (193308) от 23.10.2025
+
+Агата Кристи (Глеб Самойлов) - 14 альбомов + 2 Макси-сингла + 6 сборников (1988-2010) [FLAC|Lossless] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агата Кристи — культовая советско-российская рок-группа, ставшая одной из самых популярных в первой половине 90-х, основана Вадимом Самойловым, Александром Козловым и Петром Маем в 1988 году в Свердловске (ныне Екатеринбург). Глеб Самойлов изначально не принимал участие в создании группы, он присоединился к группе во время записи альбома «Второй фронт». О своём вступлении (   Читать дальше...   )1988 - Второй фронт (1997, Extraphone, Ex-97031)
+1989 - Коварство и любовь (1995, Extraphone, Ex-95007)
+1990 - Декаданс (1995, Extraphone, Ex-95006)
+1992 - Позорная звезда (1995, Extraphone, Ex-95005)(   Читать дальше...   )Жанр: RockПродолжительность: 18:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82115D42595C09D75A79B540040EC8B9D42CC70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661768   (194331) от 13.08.2023
+
+Звуки Му - 21 альбом, 1 бутлег (1987 - 2005) Дискография [FLAC|Lossless]<Experimental Rock, Art Rock, Post Punk, Punk Rock Meditation>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Experimental Rock, Art Rock, Post Punk, Punk Rock MeditationПродолжительность: 00:53:33
+01. Мальчик-с-пальчик
+02. Разбойник и его сыновья
+03. Золушка(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFBC04D0BD55E2D90F6C70D9023A45C3F7075F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650414   (194960) от 01.08.2023
+
+Radio Tapok - Эпоха Империй (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Петропавловск [00:03:59]
+02. Распутин [00:03:44]
+03. Белая Лилия [00:03:44]
+04. Гангут [00:04:43](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2F8CB45CB95E2D36E8786F8A183B1B96DD82D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641549   (196638) от 23.06.2023
 
 Кино - Последний Герой (1989) 3xCD, Reissue, Remastered, 2023, Maschina Records [FLAC|Lossless|image + .cue] <Rock>
@@ -562,136 +670,28 @@ magnet:?xt=urn:btih:1459CFAA2ECAE2A313782F93D2742454B71D33CE
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652358   (217770) от 11.08.2023
+###  Публикация: 1586269   (217045) от 26.10.2022
 
-Йорш - Счастье, Часть 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217770.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2007
-2. Глава 1. Лирический герой
-3. Про менеджера
-4. Дочь мента(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2CFE8769D29CC8885E8B547872B547644CD6BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650836   (223375) от 05.08.2023
-
-Screammet - Десять Жизней (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Kiara - Archangel (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217045.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Надо бежать [00:04:03]
-02. За нами бой [00:05:08]
-03. Стальной огонь [00:04:44]
-04. Здравый смысл [00:05:02](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:17
+01. God of War [00:04:28]
+02. By the Grace of the Lord [00:04:16]
+03. Жена Князя [00:04:07]
+04. Requiem for the Immortality [00:03:58](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:05:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2821C8FFC6C52B5D3002559DA94CF902FE6161E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650607   (225571) от 02.08.2023
-
-Бигимот и Кончились Люди - Постулат верности (2022) [FLAC|Lossless|image + .cue] <Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чихуахуа
-02. Музей
-03. С гадом
-04. Пара яиц(   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A27F63147E1F127F17C5E5EEB09A6C4554387D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650604   (225782) от 02.08.2023
-
-TORF - Романтика не в моде (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Черным-черно (1:19)
-02. Семена (3:29)
-03. Гаутама (4:01)
-04. Общество пропавших капитанов (2:54)(   Читать дальше...   )Жанр: Nu-Metal, Groove MetalПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DEDB7CE6684EB2AC7B0BB352EEA8E1ACFFD7BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649831   (227762) от 30.07.2023
-
-Zhaba - Brave New Trip (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner Rock, Dark Jazz>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meeny Moe [00:08:28]
-02. The Moist Trail [00:05:17]
-03. Quickcest [00:07:45]
-04. My Seeds Gone Sprout [00:06:24](   Читать дальше...   )Жанр: Psychedelic Stoner Rock, Dark JazzПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D501F38671882B0EA8FADDE1A0F97777DB67FC
+magnet:?xt=urn:btih:64D349532717B190923C06054FF224474007A703
 ```
 
 

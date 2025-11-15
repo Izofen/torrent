@@ -1,3 +1,30 @@
+###  Публикация: 1687110   (125745) от 25.12.2023
+
+VA - Music News vol.326 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Till Lindemann - Entre dos tierras (03:45)
+ 002. AARPI - Без Тебя (04:14)
+ 003. ADRIAN HIS - Знаешь (02:00)
+ 004. AJ Tracey - Wifey Riddim 4 (03:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC304BC1FEA57F11361469BE4DF39E0968AC2E33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823413   (125787) от 11.10.2025
 
 VA - ЕвроХит Топ 40 Europa Plus 10.10.2025 [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - Музыка для машины Vol.54 (2023) [MP3|320 Kbps] <Pop, Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED604AEC421FAE7AC4F5A5CDD1E09B241586BD3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684667   (127659) от 16.12.2023
-
-ADIK - Compilation (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  With Him
- 02.  Egypt
- 03.  Cosmos
- 04.  Anatomia(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501CEB008770CE7F464E0530F8D6CB2398D50F7E
 ```
 
 

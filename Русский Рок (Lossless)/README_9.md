@@ -1,3 +1,111 @@
+###  Публикация: 1750804   (104165) от 21.09.2024
+
+Чёрный Список - Глава первая (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Птица-печаль (04:27)
+02. Лица (03:37)
+03. Про Любовь (03:38)
+04. Взаперти (03:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9690CF86C94703DAD65F691F93181C7F7577BAC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750801   (104170) от 21.09.2024
+
+Чёрный Список - Глава вторая (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тьма (04:28)
+02. Кровь (03:47)
+03. Пустота (03:33)
+04. Страх (04:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C147CA44A96B31C4BBFF02A15FB602A4963DB31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749205   (104337) от 14.09.2024
+
+Судный День - Чёрное пророчество (2008) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Адские врата (Пролог) (1:11)
+02. Ария демонов (3:38)
+03. Один из нас (4:24)
+04. Предсмертная исповедь (6:38)(   Читать дальше...   )Жанр: Heavy Metal, Gothic MetalПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92AB3CBD7EB5F7F3376E4070CC28FF59411F6FBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747612   (104729) от 06.09.2024
+
+Твин Пикс - Избранное (2024) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104729.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Электрик
+2. Надежда на Солнце
+3. С высоты
+4. Девочка-смерть(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3E855FCD21B447070DEF7685F90744E9DA90CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746711   (104842) от 01.09.2024
 
 Arbitrator - Kill Their Religion (1998) Remaster, 2024, NORZ Records [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
@@ -587,114 +695,6 @@ magnet:?xt=urn:btih:2F0E18E87BE5F03063B4AAECB8BC473850840993
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25924887B52415C1E1E5BADAF8B44DA0A9DC9396
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731767   (107621) от 22.06.2024
-
-Карабас и НесуРазности - Золото (2023) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Золото
-02. Путаны
-03. Квадрат
-04. Эрудиты(   Читать дальше...   )Жанр: RockПродолжительность: 00:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6692EA6B227157B203425589A738AD5F3417E1ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731132   (107740) от 20.06.2024
-
-Дорога Домой - Жить не зря? (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Приходи ночевать [00:02:34]
-02. Из далёкого детства [00:03:14]
-03. Положение дел [00:02:53]
-04. Мёд и вино [00:04:14](   Читать дальше...   )Жанр: RockПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B9E7569F0EA1F83ACB6C6FA7EAA3D9A6962D9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731133   (107745) от 20.06.2024
-
-Хороший год - От небес до земли (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Морская соль [00:03:57]
-02. Все это сон [00:03:59]
-03. Каждому свое [00:04:27]
-04. Лайфхак [00:04:16](   Читать дальше...   )Жанр: RockПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:496B848E1243B24828EB9D8FD16DF9924DC43C0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730453   (107866) от 16.06.2024
-
-Storm Inside - Серый человек (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore, Post Hardcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дыши [00:01:54]
-02. Один на один [00:03:52]
-03. Серый человек [00:04:27]
-04. Маяки [00:03:38](   Читать дальше...   )Жанр: Melodic Metalcore, Post Hardcore, ElectronicПродолжительность: 00:22:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8624E89A49525B24703050C94F0E8801CCD937
 ```
 
 

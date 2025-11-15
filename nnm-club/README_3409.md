@@ -1,659 +1,691 @@
-###  Публикация: 1725450   (108995) от 24.05.2024
+###  Публикация: 1728448   (108326) от 07.06.2024
 
-HWiNFO 8.03 Build 5450 Beta Portable [Multi/Ru]
+Half Heard Voices - Moon Burial (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108326.jpg" />
 </div>
 
 
 ###  Подробнее
 
-HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
+01. Sharp and Constant (2:06)
+02. Earning Your Evil (3:50)
+03. Familiar Ghosts (5:18)
+04. The Teeth I Remember (3:21)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:43:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5C28F43A386BFF57712F790012939AFFC208FD5
+magnet:?xt=urn:btih:FC41167E99FE02AD389460DAD3CD3262B599311A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725268   (108996) от 24.05.2024
+###  Публикация: 1728502   (108327) от 07.06.2024
 
-VA - Fulltime Production Italo Disco, Vol. 2 (2013) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
+Billy Taylor - 1945 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108327.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Creatures - Maybe One Day (Dance Mix) (5:46)
-02. Evelyn Barry - Take It As Game (Vocal) (6:10)
-03. Michael Baker - Don't You Want My Lovin' (Vocal) (4:58)
-04. Patty & Orlando Johnson - One Night Pleaser (Dance Version) (6:03)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 02:01:17
+01. Monk's Mood (Mad Monk) [2:39]
+02. Solace [2:35]
+03. Night and Day [2:43]
+04. Alexander's Ragtime Band [2:46](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:02:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BBD45F2FE5BF21DDC0A69D77ADC7E04F0FA5C18
+magnet:?xt=urn:btih:D95F59CA3EA78F4ED6012023E6F05C549E9F053E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725466   (108997) от 24.05.2024
+###  Публикация: 1728262   (108328) от 07.06.2024
 
-Сергей Соловьёв | Публичные чтения по русской истории (2003) [MP3, Вадим Максимов]
+Hammerhead Blues - After The Storm (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
 
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108328.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сергей Михайлович Соловьёв (1820–1879) – русский историк, профессор Московского университета (с 1848), ректор Московского университета (1871–1877), ординарный академик Императорской Санкт-Петербургской Академии наук по отделению русского языка и словесности (1872), тайный советник.
-«Взгляд на историю установления государственного порядка в России до Петра Великого», (   Читать дальше...   )Жанр: Русская литература, историческая прозаИздательство: МедиаКнигаПродолжительность: 08:40:25
+01. Black Abyss (5:07)
+02. Around the Sun (5:03)
+03. Windmill's Kiss (4:31)
+04. Shades of Blue (3:35)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:58:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CE008C7BB3E6C08F43EEFFCE2F8472AAA1B83C7
+magnet:?xt=urn:btih:0FFA882EB120E71AA87679BC22D91EC68BEEAAEE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725381   (108998) от 24.05.2024
+###  Публикация: 1728437   (108329) от 07.06.2024
 
-Судьба человека с Борисом Корчевниковым. Судьба Веры Алентовой (24.05.2024) WEBRip [H.264/1080p]
+VA - The Deep Collective - Deep Echoes (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Organic House, Downtempo>
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108329.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Судьба человека" - это откровенное портретное интервью о судьбе главного героя, об интересных и малоизвестных фактах его биографии, о чувствах и эмоциях, которые переживал человек на главных поворотах своей судьбы. Героями программы "Судьба человека" будут не только известные артисты и политики, но и простые люди с непростой судьбой.
-
-Гостья (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: телепередача, биография, интервьюУчастники: Вера АлентоваЯзык озвучки: РусскийПродолжительность: 00:52:42
+01. Claus Pieper - Music Is My Love (8:04)
+02. Darles Flow - Going Home (6:38)
+03. Ivory Coats - Living the Dream (5:44)
+04. Gift of Africa - Ecstasy (6:12)(   Читать дальше...   )Жанр: House, Organic House, DowntempoПродолжительность: 01:29:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4336E4CE5A097F569285A96D98FA72A6C6180B51
+magnet:?xt=urn:btih:C1BB732AC72B60BA2B14CE031BAB26DFAA734F6D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725467   (108999) от 24.05.2024
+###  Публикация: 1728522   (108330) от 07.06.2024
 
-Speedtest от Ookla 5.3.7 Mod by youarefinished [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 16.05.2024Разработчик: OoklaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE32AB2665DFAE15A829B4A2378F32CD9E0D67BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725350   (109000) от 24.05.2024
-
-две тысячи ярдов - когда меня не станет главное не забудь… (2024) [MP3|320 Kbps] <Post Punk, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109000.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. среди грязи и лести
-2. крыши частных секторов
-3. терабайтами пост-панка
-4. по клубам(   Читать дальше...   )Жанр: Post Punk, AlternativeПродолжительность: 00:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39DCC9007ADE3041BA503322963BC3223B1CBE8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725392   (109001) от 24.05.2024
-
-Николь Хакетт | Идеальные (2024) [MP3, Лина Ветлицкая]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы создаем свой образ в социальных сетях или он создает нас? Исландия. Чарующая страна с живописными склонами и безжалостными ледниками. Именно здесь, в рекламной поездке популярных блогеров внезапно пропадает Алабама Вуд. Теперь исландской полиции предстоит выяснить, кто стоит за исчезновением этой дерзкой красивой девушки. Может быть, Селеста Рид? Лучшая подруга (   Читать дальше...   )Жанр: детектив, мистикаИздательство: Аудиокнига (АСТ)Продолжительность: 10:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9722CBA531A5EF348FF372958368429E2A97231C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725278   (109002) от 24.05.2024
-
-Sound on Purpose - 2 Albums (2023-2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
+Cactus - Temple Of Blues: Influences And Friends (2024) [FLAC|Lossless|tracks] <Rock, Blues>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108330.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sop Overture [00:03:59]
-02. Still Is It Not Too Late [00:04:52]
-03. Miss Butterfly [00:06:39]
-04. Orient Express [00:05:27](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 2 CD, 01:33:31
+Барабанщик Кармайн Эппис (Carmine Appice) объявил о выходе нового альбома культовой группы 70-х Cactus. Альбом “Temple of Blues - Influences & Friends” - это продолжение диска "Tightrope" 2021 года, в котором приняли участие множество звезд, включая Джо Бонамассу, Ди Снайдера, Пэта Трэверса, Уоррена Хейнса, Вернона Рейда, Стива Стивенса, Теда Ньюджента, (   Читать дальше...   )01. Parchman Farm (feat. Joe Bonamassa & Billy Sheehan) (03:06)
+02. Bro. Bill (feat. Randy Jackson, Randy Pratt, & Bob Daisley) (04:50)
+03. Guiltless Glider (feat. Bumblefoot & Phil Soussan) (06:12)
+04. Evil (feat. Dee Snider & dUg Pinnick) (03:17)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:16:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6046FD7F170F85A330E4D27860AE2084A09E023D
+magnet:?xt=urn:btih:1A7F6615CA4DF7060D000B4253CC811A2FBECA90
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725509   (109003) от 24.05.2024
+###  Публикация: 1728511   (108331) от 07.06.2024
 
-PhotoRoom 4.9.7 (b1416) Mod by Maximoff [Ru/Multi]
+Александр Пушкин | Сборник сказок для детей (2012) [MP3, Альберт Филозов и др.]
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108331.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 24.05.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+Серия/Цикл: Театр одного актёра. Сказки для детей.
+Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
+Написанные в народном духе и стихотворной форме, сказки А.С.Пушкина по сей день остаются первыми произведениями детей, с которых начинается (   Читать дальше...   )Жанр: Русская литература для детей, классика, поэма, сказкаИздательство: ООО «АрМир»Продолжительность: 04:11:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08EE228D30F07EF824B3CEEEA1CABEE94A3C19FE
+magnet:?xt=urn:btih:E43525EF2ECE65B24CDC023B645552368A78FFCE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725490   (109004) от 24.05.2024
+###  Публикация: 1728352   (108332) от 07.06.2024
 
-Domination - Echoes Of Persecution (2024) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unholy Order (04:03)
- 02. Reliable Fate (04:56)
- 03. Evil Dead (04:31)
- 04. Origins (05:05)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1145F453FF8C4494AB9194DFB89432D374598E2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725377   (109005) от 24.05.2024
-
-Paranormal Files 11: Sacrifice to Shadows (2024) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической серии игр Paranormal Files. Рик Роджерс, бесследно исчезнувший более десяти лет назад, наконец снова с нами! Он жаждет вернуться к работе, но его друг и коллега Дэймон предлагает сперва немного развеяться и посетить концерт группы своего друга. Во время выступления Рик обнаруживает, что за успехом группы скрывается зловещая тайна! А когда (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00266B84F6D625FE544F5CA7B22EC11BE7A6547F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725323   (109006) от 24.05.2024
-
-NetLimiter 5.3.13.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109006.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetLimiter - программа, решающая проблему контроля сетевого трафика. NetLimiter следит за деятельностью каждого приложения, использующего доступ к Интернету, а также активно управляет трафиком, контролируя скорость потока данных. Вы можете самостоятельно настроить скорость загрузки и отправки информации для каждого отдельного приложения или соединения. Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFF7591E8FD3DCEB20B6E5AA29B14D94C599A3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725431   (109007) от 24.05.2024
-
-XYplorer 26.00.0100 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109007.jpg" />
-</div>
-
-
-###  Подробнее
-
-XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2224C3238D736BB0F679CC5BBB6946B12FC9395
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725452   (109008) от 24.05.2024
-
-VA - The Orient Collective: Golden Sand (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indiano & Tibetania - Svadhistana (Original Mix) (8:21)
-02. Noam Garcia & Diego Galloso & Tibetania - Marena (Original Mix) (7:51)
-03. Michael Simon & Tibetania - Hypnosis (Original Mix) (6:25)
-04. Tibetania & Setrian - Condor (Original Mix) (4:48)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C3B433B52B9E44F5E6365A3423626D087E1D71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725267   (109009) от 24.05.2024
-
-VA - Fulltime Production Italo Disco, Vol. 1 (2013) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
+VA - DJ Hits 34 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 
 >>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108332.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Maurice Mc Gee - Gravity (5:18)
-02. Charlie - Spacer Woman (Vocal) (7:30)
-03. Jet Set - Love Dance (6:43)
-04. Orlando Johnson - With Just A Kiss (Vocal Version) (6:16)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 02:00:47
+01. Olli's Club - It's Allright (Euro Radio Edit)
+02. Mata Hari - Spy In The Name Of Love (Spy Remix)
+03. Sultans of Dance - Move On Your Body (Radio Edit)
+04. Freak Brothers - Funky Feeling (Funky Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:59:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD689B2A13214865CE0D359AE15BF99A1B048CA4
+magnet:?xt=urn:btih:9E60773A5B7C2F2CE0113069B8171AA2F346CE17
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725362   (109010) от 24.05.2024
+###  Публикация: 1728216   (108333) от 07.06.2024
 
-Обряд. Во власти демона / Di Ambang Kematian / The Verge of Death (2023) WEB-DLRip [звук с TS] [AD]
+Blue Deal - Can't Kill Me Twice (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108333.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2002 год. Отец девочки Надии проводит ритуальный жертвенный обряд, во время которого погибает её мать, а спустя 10 лет при схожих обстоятельствах умирает и старшая сестра. Вскоре выясняется, что каждые 10 лет жуткому демону требуется новая жертва, и теперь настал черёд Надии.Производство: Индонезия / MVP PicturesЖанр: ужасыРежиссер: Азхар Кинои ЛубисАктеры: Таскья Намья, Теуку Рифну Викана, Вафда Сайфан Лубис, Кинарёси, Гиулио Паренкуан, Элли Д. Лутан, Фарас Фатик, Рая Адена Сях, Анди БерсамаПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:38:02Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+01. Short Time Runner (2:31)
+02. Hard Times (3:27)
+03. Got 2 Go (4:08)
+04. Favorite Mistake (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:41
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:31CC75A5C3614E8193B4838DBB187DCFE5702CB1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725271   (109011) от 24.05.2024
+###  Публикация: 1728212   (108334) от 07.06.2024
 
-VA - Русская 30-ка хитов 2 (Новые русские песни) (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
+Black Cat Bones - Troublemaker (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108334.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Мира Маяковская - Белый шоколад #тост (2:34)
-02. Алексей Петрухин - Всё будет как надо (4:00)
-03. Григорий Лепс - Один на один (4:30)
-04. Дуэт "Не уходи" - Красное - белое (3:51)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:49:14
+01. Bad Enough (4:07)
+02. Jekyll And Hyde Woman (4:23)
+03. Troublemaker (3:29)
+04. Junkie (4:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:981C993E25319C090C88DFBAD7CE2DE664BDF6A2
+magnet:?xt=urn:btih:7AF9693F4A25EC4C08C4564702006AF5C61F9BE8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725404   (109012) от 24.05.2024
+###  Публикация: 1728539   (108335) от 07.06.2024
 
-В.В. Белага, И.А. Ломаченков, Ю.А. Панебратцев | Физика. Учебник для 9 класса (2011) [PDF]
+Cactus - Temple Of Blues: Influences And Friends (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данный учебник продолжает линию учебно-методических комплектов «Сферы» по физике. Материал учебника направлен на формирование первых научных представлений о физических законах и явлениях и основывается на достижениях современной физики и техники. Главными особенностями данного учебника являются фиксированный в тематических разворотах формат, лаконичность и жёсткая (   Читать дальше...   )Жанр: Учебная литература по физикеЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Хороший скан
+Барабанщик Кармайн Эппис (Carmine Appice) объявил о выходе нового альбома культовой группы 70-х Cactus. Альбом “Temple of Blues - Influences & Friends” - это продолжение диска "Tightrope" 2021 года, в котором приняли участие множество звезд, включая Джо Бонамассу, Ди Снайдера, Пэта Трэверса, Уоррена Хейнса, Вернона Рейда, Стива Стивенса, Теда Ньюджента, (   Читать дальше...   )01. Parchman Farm (feat. Joe Bonamassa & Billy Sheehan) (03:06)
+02. Bro. Bill (feat. Randy Jackson, Randy Pratt, & Bob Daisley) (04:50)
+03. Guiltless Glider (feat. Bumblefoot & Phil Soussan) (06:12)
+04. Evil (feat. Dee Snider & dUg Pinnick) (03:17)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:16:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C33D859AE4C267BEC7919E070017B5B4A6578AFD
+magnet:?xt=urn:btih:960B48E91032820ED5AD240D9EC9396B6A1D3720
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725380   (109013) от 24.05.2024
+###  Публикация: 1728364   (108336) от 07.06.2024
 
-Харитон Мамбурин | Самый Красивый Гном (Книга 3). Несносный тип (2024) [MP3, Виталий Трегубов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109013.jpg" />
-</div>
-
-
-###  Подробнее
-
-В городе новый шериф! И пусть ростом он не удался, но всем остальным вполне хорош! Сильный, ловкий, хитрый и дьявольский красивый Магнус Криггс с первых своих дней пребывания в Хайкорте зарекомендовал себя упрямым и вредным типом, портящим нервы окружающим. В принципе, именно из-за своего последнего таланта он и получил звезду шерифа, доведя предыдущего, как и других (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 07:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA4C60088BA182CBE9996E6B5F33EA7B966C1F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725353   (109014) от 24.05.2024
-
-Green Grey - The Best (2024) Remastered 2024 [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109014.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Подождём под дождем (Remastered 2024)
-2. Стереосистема (Remastered 2024)
-3. MF (Remastered 2024)
-4. Солнце и Луна (Remastered 2024)(   Читать дальше...   )Жанр: RockПродолжительность: 01:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5A871AC7DA9A9FB6E6015FE8008A10C5F4EFE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725472   (109015) от 24.05.2024
-
-Сергей Соловьёв | Чтения и рассказы по истории России (2006) [MP3, Сергей Казаков]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Михайлович Соловьёв (1820–1879) – русский историк, профессор Московского университета (с 1848), ректор Московского университета (1871–1877), ординарный академик Императорской Санкт-Петербургской Академии наук по отделению русского языка и словесности (1872), тайный советник.
-В сборник великого русского историка С.М.Соловьева включены наиболее характерные и (   Читать дальше...   )Жанр: Русская литература, историческая проза, рассказИздательство: БиблиофоникаПродолжительность: 24:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15004D17621FAD0D52E3524F2F1DD8BF1A66D8B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725322   (109016) от 24.05.2024
-
-Vivaldi 6.7.3329.35 include standalone [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E7297CCEC65AA3F3DDABAE3D8226FB026D4CCC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725417   (109017) от 24.05.2024
-
-Mary Gu - luvcore (deluxe) (2024) [FLAC|Lossless|WEB-DL|tracks] <Поп>
+VA - DJ Hits 35 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 
 >>Pop
->>Отечественная поп-музыка (Lossless)
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108336.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. что такое любовь? (01:00)
-02. зависимость (02:51)
-03. яд (02:34)
-04. прайс (03:04)(   Читать дальше...   )Жанр: ПопПродолжительность: 00:35:25
+01. Tokyo Ghetto Pussy - Everybody On The Floor (Pump It) (Pump It - Remix)
+02. One Love Feat. Marky Mark - That's The Way I Like It (Club Mix)
+03. Mr. President - Gonna Get Along (Without Ya Now) (Extended)
+04. Joe Samba Jr. feat. African Vibes - I Like Summer (Radio Remix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:11:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B7168E9A4C2DA27DAFDD8811E7CC88F3A1A1119
+magnet:?xt=urn:btih:4DAACD6E1016C4747A9335A21C1F649C08AFA4F3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725534   (109018) от 24.05.2024
+###  Публикация: 1728266   (108337) от 07.06.2024
 
-Савелий Гуреев | Рассказы о композиторах (2009) [MP3, Савелий Гуреев]
+Ian Hunter - Defiance Part 2: Fiction (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Classic Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. People (5:01)
+02. Fiction (5:39)
+03. The 3rd Rail (3:19)
+04. This Ain't Rock And Roll (3:47)(   Читать дальше...   )Жанр: Blues, Classic RockПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999081AAFEEACA4A35950DAE7F860C877EC3A1DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728407   (108338) от 07.06.2024
+
+The Iron Bees - РЖАВЫЙ ТРОМБОН (2024) [MP3|320 Kbps] <Ska, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108338.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Парнишка молодой
+2. вздрынч
+3. Окурок на глазах
+4. Заводская(   Читать дальше...   )Жанр: Ska, PunkПродолжительность: 00:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12EC39C4556DCDC4BC5B0BD6E2ED4EE390CD71B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728451   (108339) от 07.06.2024
+
+VA - Armin van Buuren - A State Of Trance 1176 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ilan Bluestone - Echoes Of Courage
+02. Krevix & Hadriani - Your Life (Future Favorite)
+03. Matt Fax - Frost (Progressive Pick)
+04. Cubicore - Glow(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DF62925E596520865B1D13E3D79897B057A8AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728270   (108340) от 07.06.2024
+
+Jamie Lockhart - Ship Fools (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ship of fools (5:19)
+02. Devils mistress (5:26)
+03. Getting rougher (4:34)
+04. Mary Brown (5:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443572D409FDF532C653939CED8CC4DE40D264B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728504   (108341) от 07.06.2024
+
+Louis Armstrong - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mop Mop [5:18]
+02. Blues [2:52]
+03. Esquire Bounce [1:58]
+04. Basin Street Blues [3:56](   Читать дальше...   )Жанр: Dixieland, New Orleans Jazz, SwingПродолжительность: 01:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79B3129F4B3419714352FBBD2F10F610E8C809F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728562   (108342) от 07.06.2024
+
+DarWin - Five Steps On The Sun (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Police (3:53)
+02. Inside This Zoo (5:23)
+03. Be That Man (5:18)
+04. One Step on the Sun (1:32)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B69EC687915CD5476C92255D91ABA6B1E1B72869
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728416   (108343) от 07.06.2024
+
+Екатерина Гопенко | Весьма вероятные приключения Морского Конька и его невозможной команды (2024) [MP3, Екатерина Гопенко]
 
 >>Художественные аудиокниги и публицистика
->>Другие аудиокниги
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Беседы о музыке.
-Сборник рассказов с музыкальными иллюстрациями о великих композиторах написанный профессиональным искусствоведом Савелием Гуреевым.
-Вы услышите истории о жизни и творчестве Баха, Бетховена, Верди, Гайдна, Генделя, Гершвина, Глинки, Моцарта, Прокофьева, Рахманинова, Шопена, Шуберта, Шумана.Жанр: Биография, воспоминания, ЖЗЛИздательство: Вира-МПродолжительность: 00:37:11
-
-Из этого рассказа слушатели узнают немало интересного о жизни и творчестве одного из самых поэтичных европейских композиторов середины XIX века - Роберте Шумане. Великий музыкант не ограничивался сочинением музыки, он был еще и замечательным исполнителем своих фортепианных сочинений, составивших основное ядро его творчества, а также прогрессивным музыкальным (   Читать дальше...   )
+Ровно в четыре часа я выползала на палубу, дабы лежать и страдать, пока мои товарищи вели корабль. Чтобы скрасить их ночи, я вначале рассказывала морские сказки – кельтские, скандинавские, испанские и французские. А когда известные сказки закончились, начала сочинять на ходу, вплетая нашу общую реальность в воображаемый мир. История продолжалась. Герои писались с (   Читать дальше...   )Жанр: Приключенческая художественная литератураИздательство: Аудиокнига своими рукамиПродолжительность: 02:08:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD76800EE895F872776FB86706BB1A07849C170F
+magnet:?xt=urn:btih:EBD9F533BB4348936F299DE860D47EBE91CADF58
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725418   (109019) от 24.05.2024
+###  Публикация: 1728229   (108344) от 07.06.2024
 
-Sumatra PDF 3.6.16254 Prerelease + Portable [Multi/Ru]
+Guitarbo' - Old Boxer (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
-Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Black Crows Keep Your Grave Clean (4:16)
+02. Nobody Is Free (6:06)
+03. Streets Of My Life (5:26)
+04. Old Boxer (5:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76372944BA85D22ADF74AED8439A8CFB4987DC2C
+magnet:?xt=urn:btih:F8BC1C8010376A76610F2742E9241C4732A11AA0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725428   (109020) от 24.05.2024
+###  Публикация: 1728449   (108345) от 07.06.2024
 
-Q-Dir 11.65 + Portable [Multi/Ru]
+VA - Bubblegum Is Back (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Pop>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
-Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+A1 1910 Fruitgum Company – Simon Says
+A2 1910 Fruitgum Company – Indian Giver
+A3 1910 Fruitgum Company – Goody Goody Gumdrops
+A4 The Lemon Pipers – Jelly Jungle(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:31:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC68CB02D2CBC38EA1674F976538B857AF64773B
+magnet:?xt=urn:btih:37DFED17E6073EB62A7E8FC3819F09C9FDF099FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728418   (108346) от 07.06.2024
+
+Chorus and Orchestra of Teatro Communale, Firenze, cond. E. Ghili - Bizet – Carmen (1966) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Classical, Opera, Romantic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Act I
+A1 Habanera: L'amour Est Un Oiseau Rebelle
+A2 Parlez-Moi De Ma Mere
+A3 Seguidilla: Pres Des Rampart De Seville(   Читать дальше...   )Жанр: Classical, Opera, RomanticПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B8E051941F5B10140DEC7251090EEEC3D4E70F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728280   (108347) от 07.06.2024
+
+Louis King - Little Devil! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. COUNT ME IN (3:45)
+02. T.R.O.U.B.L.E (3:34)
+03. YOU TARZAN ....ME JANE (3:50)
+04. LITTLE DEVIL (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3748178F1E28B0B124352A8539AA9B768FBD3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728540   (108348) от 07.06.2024
+
+Небывалый поход / Незабываемый поход (1931) WEBRip
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конструктивистский фильм-репортаж о движении «двадцатипятитысячников» – рабочих, направленных Партией в 1929 году на поднятие села. Фильм снимался в одном из крупнейших совхозов в свое время «Гигант» (Ростовская область), Харьковском тракторном заводе, Черноморском флоте в Севастополе.
+Последняя авангардистская работа школы кино в УССР. В «Небывалом походе» Кауфман (   Читать дальше...   )Производство: СССР / УкраинфильмЖанр: документальный, история, немое киноРежиссер: Михаил КауфманЯзык озвучки: немойСубтитры: русские (интертитры)Продолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B31004EC3293E70A2BF18BB02C8EBCA3A67B923
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728398   (108349) от 07.06.2024
+
+Шахида Араби | Нарциссический абьюз (2024) [MP3, Екатерина Кабашова]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Значительная книга о нарциссизме от автора бестселлера “Токсичные люди”. Поможет понять, кто такой нарцисс и как безопасно выйти из разрушающих отношений.Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 17:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFE3A2BF7A06B136E4BB4B2913EFC1654CC6860
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728228   (108350) от 07.06.2024
+
+Amber - The Hits Remixed (2000) [FLAC|Lossless|tracks + .cue] <House, Euro House, Synth-pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taste The Tears (Thunderpuss Original Mix (3:47)
+02. Love One Another (Pathos Original Mix) (3:46)
+03. Sexual (Li Da Di) (Deep Dish Cheez Whiz Remix) (4:12)
+04. Above The Clouds (Eric Kupper Remix) (4:02)(   Читать дальше...   )Жанр: House, Euro House, Synth-popПродолжительность: 01:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21237763C9754BC17689FC3118423DEBE5660E41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728276   (108351) от 07.06.2024
+
+Levee Town - Stories (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Healthy Woman (3:39)
+02. I Got a Hole in My Pocket (2:54)
+03. Where I Lay My Head (3:36)
+04. Worn Soul (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B67B2A50556C8A14BCEB4DB837C292CC2CD20ED
 ```
 
 

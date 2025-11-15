@@ -1,3 +1,57 @@
+###  Публикация: 1195173   (144341) от 28.12.2017
+
+Miika Kuisma, Luminescent, DJ Tab - Ambient Selection (2017) [MP3|320 Kbps] <Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (Original Mix) 3:43
+02. 128 feat. Luminescent (Original Mix) 5:52
+03. Lightworks (Original Mix) 5:40
+04. Fastforward In Stillness (Original Mix) 3:05(   Читать дальше...   )Жанр: DowntempoПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93BE95D04620339CFCCA3FA241D34929122F8612
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195357   (144387) от 28.12.2017
+
+VA - Suanda Music Radio Top 20 2017 [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - Lullaby (Original Mix) (Feat. Roxanne Emery) 03:56
+02. Photographer - Infinity (Roman Messer Remix) 05:40
+03. Bogdan Vix - I Am Now (Mhammed El Alami Extended Remix) 06:40
+04. Frainbreeze - Black Eagle (Ahmed Helmy Extended Remix) 05:49(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691E383CDF7F16E08F4FB3315FAFA297CF3BCAE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195373   (144400) от 28.12.2017
 
 VA - Mondo Records: The Best Of (2017) [MP3|320 Kbps] <Trance>
@@ -638,60 +692,6 @@ Jean Mare - Atmospheric Dreams (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20D503CABCA4C260809759C087323E18F086C2BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969975   (145688) от 28.12.2015
-
-VA - Chillout 2016 Best of 30 Top Hits (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illuminus - The Purrts Of Navarone [06:55]
-02. Lemonchill - I Missed a Heart Beat - Deep in Mind Remix [06:09]
-03. Argus - Elenya [07:13]
-04. Flux Natura - Reconnect to Our True Elves [12:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E7D7EAD97457965022049D389B0A5EB68872E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272058   (145693) от 26.12.2018
-
-VA - Space Odyssey: New Year's Voyage 2019 (2018) 2CD [MP3|320 Kbps] <Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laserlight - Intro (1:26)
-02. AlimkhanOV A. - Cold Winter (4:40)
-03. Spacehawk - From The Shadows (4:02)
-04. NeoSpace - Hibernation (6:16)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 02:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB97F0E58CBFDB88D9914620AF48805BCC53B866
 ```
 
 

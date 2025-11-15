@@ -1,3 +1,30 @@
+###  Публикация: 968394   (156096) от 23.12.2015
+
+VA - Хитовая зима №1 (2015) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156096.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Согдиана - Эпидемия
+002. Ольга Орлова - Птица
+003. Артем Пивоваров - Хвилини
+004. Archi-M Feat. Timaro - Сколько Боли Во Мне(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABDD39C1953C1EB8DFFF8FC56265F8791A93449A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085623   (156418) от 22.12.2016
 
 VA - 50 Latin Hits 2016 (2016) [MP3|320 Kbps] <Pop, Latino>
@@ -668,33 +695,6 @@ VA - Disco Is Alive (2020) [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16310883A84306BD471C922C6B1E7D2531996739
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673710   (163123) от 03.11.2023
-
-ORS / Orlando Riva Sound - Compilation (2023) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fire On The Water
- 02.  Indian Reservation
- 03.  Body To Body Boogie (Late Nite Tuff Guy Edit)
- 04.  The Blaze(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD5FD6E276F47C7C43EAF002CAC33E24C841FEE9
 ```
 
 

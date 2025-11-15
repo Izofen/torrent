@@ -1,3 +1,57 @@
+###  Публикация: 1753268   (103853) от 04.10.2024
+
+VA - Armin van Buuren - A State Of Trance 1193 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Protoculture - Viper
+02.	LÜRUM - Decisions
+03.	Armin van Buuren - Pulstar (Future Favorite)
+04.	Pennyman - Paloma (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D551302EB73567D35DADC81C52EC1E4ED902A9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752147   (103959) от 29.09.2024
+
+VA - It's All About Deep-House, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Krumm & Schief - Everything Is Right (Unforgettable Extended Mix) [06:40]
+02. Fonetica - I Need Your Love (Carlos Hdez Remix) [06:50]
+03. Vinback - Erase Me (Original Mix) [02:22]
+04. KOHL - Beyond the Round (Original Mix) [05:06](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC02CEA4B3637634B36F7EDE6C1CF0DE7EA9C823
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752111   (103987) от 28.09.2024
 
 VA - Sunset Dreamer (Lounge & Chill out Sessions), Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -638,60 +692,6 @@ VA - Inside Ibiza 2025 - The Sound Of The Island (2025) [MP3|320 Kbps] <House, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E29B947633CFCD8B46CCE606A7137C125CDBE505
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749260   (104523) от 13.09.2024
-
-VA - Armin van Buuren - A State Of Trance 1190 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond ft. Richard Bedford – Heart Of Stone
-02. MEDUZA ft. HAYLA – Another World
-03. AYU – Move
-04. MORTEN & ARTBAT ft. Bonn – Hollow(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0482AC329A5B22493FBC5384A5905107E81CA2A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749318   (104527) от 13.09.2024
-
-VA - Black Hole House Music 09-24 (2024) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Thomas & Christian Burns - Enjoy The Silence (Extended Mix) [7:25]
-02. PARAFRAME - Close To Me (Extended Mix) [5:56]
-03. Markus Schulz & Sarah De Warren - Light On (ZOYA Extended Remix) [5:05]
-04. Scot & Millfield x Cabriolet Paris - Talamanca (Extended Mix) [5:25](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E75C3FFBE2FF6DDE1352CB80B77FFC64C9AEA2
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1719754   (110375) от 02.05.2024
+
+VA - Footsteps On The Dancefloor, Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dainpeace - Not Follow (Extended Mix) (04:47)
+02. George Rodgers - How Will I Know (03:30)
+03. VarZet - Flashback (02:22)
+04. Ismael johnson - Shaker (03:28)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:784E3664C0C60AD787BE1F0894A90F58C23E541A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719813   (110377) от 02.05.2024
+
+Pretty Pink - Live @ DxB Boat Party Dubai, United Arab Emirates (2024-03-23) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretty Pink - Happening (Pretty Pink Edit)
+02. Underworld - Born Slippy (Pretty Pink Remix)
+03. Julian Jordan - The Bass (Pretty Pink Remix)
+04. Sunbeam - Outside World (ID Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A59AAAD656ED1B1071ABA7DE031489C0022B727B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720146   (110384) от 02.05.2024
 
 VA - Trance Fusion Vol. 02 (2024) [MP3|320 Kbps] <Trance>
@@ -632,60 +686,6 @@ Astropilot - LIMITLESS (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97C2E0915F14DCE6857C8097D3ED0F2120516551
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718673   (110898) от 26.04.2024
-
-Pet Shop Boys - Nonetheless (2024) [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loneliness (05:38)
- 02. Feel (05:02)
- 03. Why am I dancing? (03:33)
- 04. New London boy (04:53)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4A75079E4B8F13DE6935358C8A9491E26A5E5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718589   (110941) от 25.04.2024
-
-Christian Löffler - A Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Vocal, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian Löffler – When Everything Was New
-02. Christian Löffler – Roused (feat. Malou)
-03. Christian Löffler – A Life
-04. Christian Löffler – Portals (feat. Mogli)(   Читать дальше...   )Жанр: Tech House, Deep House, Vocal, ProgressiveПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3C7FD1E9CEE99E070722F7401920BA42021415
 ```
 
 

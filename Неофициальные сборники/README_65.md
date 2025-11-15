@@ -1,3 +1,30 @@
+###  Публикация: 1691334   (123199) от 13.01.2024
+
+VA - Mega Dance Hits Collection (1990-2001) [MP3|320 кб/с] <Eurodance, Euro-House, Pop, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123199.jpg" />
+</div>
+
+
+###  Подробнее
+
+0001. Mr. John - It's Not Too Late (Extended Club Version)
+0002. King Of Paradise - Give Me Your Love (My Desire Mix)
+0003. Space Master - World Of Confusion (Extended Mix)
+0004. DJ Bobo - Respect Yourself (B+B Remix)(   Читать дальше...   )Жанр: Eurodance, euro-house, pop, technoПродолжительность: 465:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14329F610744D7CFA4E296740B526D00046D2B2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691459   (123293) от 12.01.2024
 
 VA - Music News vol.330 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Music News vol.327 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EB00B189A33607B5BCD857C6286F95427221667
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687110   (125745) от 25.12.2023
-
-VA - Music News vol.326 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125745.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Till Lindemann - Entre dos tierras (03:45)
- 002. AARPI - Без Тебя (04:14)
- 003. ADRIAN HIS - Знаешь (02:00)
- 004. AJ Tracey - Wifey Riddim 4 (03:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC304BC1FEA57F11361469BE4DF39E0968AC2E33
 ```
 
 

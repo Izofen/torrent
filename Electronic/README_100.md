@@ -1,3 +1,57 @@
+###  Публикация: 1369221   (150797) от 24.12.2020
+
+Vanessa Daou - Discography 40 Releases (1992-2020) [MP3|320 Kbps] <Nu Soul, Spoken Word, Chilled Jazz, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150797.jpg" />
+</div>
+
+
+###  Подробнее
+
+1992 - Head Music (Reissue '17 Expanded Deluxe Edition)
+1994 - Zipless (Reissue '17 Expanded Deluxe Edition)
+1996 - Slow To Burn (Reissue '17 Expanded Deluxe Edition)
+1998 - Plutonium Glow(   Читать дальше...   )Жанр: Nu Soul, Spoken Word, Nu Jazz, Chilled Jazz, Downtempo, Lounge, Deep House, Avant PopПродолжительность: 29:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC319943BF442546A37DFBFBDC9F21A34B9DE7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601477   (150923) от 31.12.2022
+
+VA - Interplay Highlights 2022 (2022) [MP3|320 Kbps] <Trance, House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150923.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ANASTASiiA - Skyline
+2. Alexander Popov/Whiteout/LTN/Ghostbeat - Right Back (LTN, Ghostbeat Remix)
+3. Ron With Leeds - Petrichor
+4. Prime Punk - Not Available(   Читать дальше...   )Жанр: Trance, HouseПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFDE5A6CF391C009340297F45884DC5A4F5B0B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676962   (151023) от 17.11.2023
 
 VA - Clubhits Top 200 Vol. 13 (2019) [FLAC|Lossless|tracks] <Club, Future House>
@@ -640,60 +694,6 @@ VA - Atmosfera Records Best of Trance (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A337C3080EB20664EB410C9E1D86CC957D3B445
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194900   (152377) от 27.12.2017
-
-CoH - CoHgs (2017) Editions Mego [FLAC|Lossless|WEB-DL|tracks] <Abstract, Experimental, Minimal, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exercise in Colour (feat. Ann Demeulemeester) (05:44)
- 02. Sleepwalker (feat. Anna Yamada) (06:10)
- 03. Silence Is Golden (feat. Peter 'Sleazy' Christopherson) (05:00)
- 04. Fffetish (feat. Frankie Gothard) (05:00)(   Читать дальше...   )Жанр: Abstract, Experimental, Minimal, AmbientПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F952CDD64D92E31441DF1E33183B10A6A002BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194978   (152382) от 27.12.2017
-
-VA - The Hues of Infinity (2015) Projekt [FLAC|Lossless|tracks+.cue] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Roach - The Function Inside The Form (Excerpt) (05:46)
- 02. Steve Roach - Etheric Imprints (Excerpt) (09:44)
- 03. Erik Wøllo - Pathway (06:31)
- 04. As Lonely As Dave Bowman - Failure Of The AE-35 Unit Radio Antenna (07:23)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D5FF8061EB4F58E31AF8D0F6FD5FD427545FB3
 ```
 
 

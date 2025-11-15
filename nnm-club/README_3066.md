@@ -1,734 +1,737 @@
-###  Публикация: 473475   (97667) от 25.03.2012
+###  Публикация: 469736   (97229) от 19.03.2012
 
-Сокровища Царицы Елены (2012) DVDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хитон Господень и Терновый венец, Плат Богородицы и Пелены Богомладенца, мощи волхвов и сандалия Спасителя - как сложилась судьба этих святынь и почему сегодня они находятся в Европе? Этим и другим вопросам посвящён документальный фильм-исследование о христианских святынях. Многие реликвии сохранились благодаря трудам Равноапостольной Царицы. Всю жизнь, собирая их как бесценные сокровища, она сама стала святой, а ее тело сегодня почитается как одна из реликвийЖанр: ДокументальныйРежиссер: Е. КаретникПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB63D763ADF29C0503605C91EE5C050C24F729C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473003   (97669) от 25.03.2012
-
-VA - Лучшие клубные хиты (2012) [MP3|192-256 кб/с]<Dance, Club>
+VA - Чума-Дэнс (1995) [APE|Lossless]<Pop, pop-rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Maxima - Могла Бы Быть Любовь (Fidel Wicked Rmx) (3:17)
-2. Shyma - Ветрами (Flashtronica remix) (3:14)
-3. Hardwell - Cobra (Official Energy Anthem) (6:46)
-4. Dj Bobo - Everybody's Gonna Dance (Radio Version) (3:40)
-5. Idiot Boyz - Bass In Your Face (3:59)
-6. Тамерлан И Алена Омаргалиева - Ты Только Мой (Sense Of Noize Extended Reedit) (4:26)
-7. Jessica Mauboy - Inescapable (3:35)
-8. Rico Bernasconi & Beenie Man feat. Akon - Girls (T & K remix) (4:58)
-9. Dazzle - Global Forcast (original mix) (6:49)
-10. Горячий Шоколад - Без Ума От Счастья (Andry Makarov Remix) (4:32)2012Жанр: Dance, ClubПродолжительность: 07:11:58
+01. Дубы-Колдуны - Осенние Дубы (01:53)
+02. Опасные Соседи - Танцуй! (04:26)
+03. Два Самолёта - Абу (04:54)
+04. Михаил Владимиров & Мифы - Воспоминание о Париже (01:31)
+05. Камикадзе - Japanese Child (06:17)
+06. Спокойной Ночи - Она Женщина (03:10)
+07. Дубы-Колдуны - Пора по Бабам (00:59)
+08. Препинаки - Боливия (02:32)
+09. НОМ - Дедушкин Табак (04:36)
+10. НЭП - Спичек нет (05:50)(   Читать дальше...   )1995Жанр: Pop, pop-rockПродолжительность: 01:02:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22A078E44FE3A5BC54AC76EBBC62595CE32E7FCD
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 473246   (97670) от 25.03.2012
+###  Публикация: 470584   (97230) от 19.03.2012
 
-Юрий Узбяков | Мастера советской карикатуры [1964] [PDF, DjVu]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97670.jpg" />
-</div>
-
-
-###  Подробнее
-
-ВОТ ТО-ТО И ОНО!
-Если человек не прожил и полстолетия, если в младенческие годы он уже требовал вместо соски акварельные краски, если несколько позже закончил художественный институт, был на фронте, видал-перевидал немало в жизни и стал карикатуристом,— это хорошо.
-Юрий Узбяков родился в 1916 году, з младенческом возрасте требовал акварельные краски, учился в Художественном институте имени Сурикова, ходил по фронтовым дорогам, повидал немало в жизни и стал карикатуристом. И хорошо сделал. ...Формат: PDF, DjVu
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7591D3CF931527D987CD9663124AA2AE193766A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473482   (97671) от 25.03.2012
-
-Р. Халхатов | Величайшая подводная битва. "Волчьи стаи" в бою [2010] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Битва за Атлантику, продолжалась в общей сложности более пяти лет и унесла жизни десятков тысяч моряков. Впервые подлодки решали стратегические задачи, впервые от их победы или поражения зависела судьба войны - Черчилль впоследствии признавался, что немецкие субмарины почти поставили Британскую империю на колени. Однако, несмотря на непревзойденное боевое мастерство, отвагу и беспощадность Rudeltaktik (тактики «волчьих стай»), не подводники Кригсмарине, а противолодочные силы Союзников вышли из этой схватки победителями.2010Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B9E8FA0E9E3DF58351321C171F4B8B75EFF05D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472907   (97675) от 25.03.2012
-
-VA - Ayurveda Lounge. Relaxation & Meditation. Volume 2 (2012) [MP3|320 кб/с]<New age, Chillout, Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97675.jpg" />
-</div>
-
-
-###  Подробнее
-
-(04:42) 01. Sangre De La Tierra - Aguas Blancas 7 A.m. (Original Mix)
-(12:02) 02. Klaus Schonning - Nightfall At Ganges (Original Mix)
-(07:08) 03. Lazy Hammock - Buddha State (Original Mix)
-(06:11) 04. Florito - Feel So Good (Original Mix)
-(02:16) 05. Krystian Shek - Slightly Breeze (Original Mix)
-(04:20) 06. Chris Le Blanc - Debussy en Es Vedra (feat. Miss Luna)2012Жанр: New age, Chillout, Relax, MeditativeПродолжительность: 01:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BBD7E4CF0B395B09C342B22A0142552DEEF41F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472646   (97676) от 25.03.2012
-
-VA - XXXL Продвинутый Русский Весна (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Арина Перчик - Шторм
-02. Алекс Малиновский - Я Люблю И От Этого Легче
-03. Vlada Crystal - Я Разрешаю Тебе
-04. Driu Mc Feat. Funky Inlite - Только Тебе
-05. Mc Zali - Облака (Kolya West Remix)
-06. Анастасия Коновалова - Люблю Тебя
-07. Дмитрий Колдун Feat. Alex Brashovean - Ray Of Light (Forever Mine)
-08. Сацура - Больше Чем Слова
-09. Music Hayk - Деньги И Слава
-10. Миша Романова - Невесомая(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E602F64EF90E7615876BFACC525E86315BB9BAD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472972   (97677) от 25.03.2012
-
-Рекс Стаут | Пасхальный парад [2010] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ
-Оригинальное название:Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0FB130DA8C5E260183D627404208FC078696751
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472391   (97680) от 25.03.2012
-
-VA - XXXL Максимальный Хит 50/50 (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97680.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Потап И Настя Каменских - Если Вдруг
-002. Romadi - My Sister
-003. Непара - В Облаках
-004. Sasha Dith & Dreamway - Crazy Sun
-005. Жанна Фриске И In-Grid - Падает Снег
-006. Ilhama Feat. Dj Ogb - Bei Mir Bist Du Scheen
-007. Гайтана - Самый Лучший
-008. Aqua - How R U Doin
-009. Елка - Около Тебя
-010. Mylene Farmer - Du Temps(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDC50467600868ABEA3F6D3C4B8F3C83EBF1E95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472806   (97681) от 25.03.2012
-
-VA - Зажги танцпол 50/50 (2012) [MP3|256 кб/с]<Рор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mixi - Текила (DJ Val Remix)
- 02. Victoria & Radu Sirbu - Lambada Night (Radu & Ana Sirbu Mix)
- 03. Ирина Нельсон - Тёплое Солнце (Dark City Remix)
- 04. Pitbull feat. Ne - Yo & Afrojack & Nayer - Give me everything
- 05. Belle Amie - Girls Up (Soulshaker Club)
- 06. Sebastian Ingrosso & Alesso - Calling
- 07. Radio Killer - You and me
- 08. Ассорти - Плакала
- 09. Cobra Starship - #1Nite ( One Night )
- 10. Ольга Плотникова - Лето(   Читать дальше...   )2012Жанр: РорПродолжительность: 06:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF9A82495397E01D94151FE807908835FE286BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473310   (97682) от 25.03.2012
-
-Будь мужиком. Выпуск №2 (2012.03.25) SATRip
+Журнал | Едим со вкусом №1-2 [2012] [PDF]
 
 >>Архив торрентов
->>Архив Юмора
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С 18 марта на ПЕРЦЕ новое бронебойное ток-шоу «Будь мужиком!». Закадычный дуэт из команды «Уездный город» и ПЕРЕЦ напомнят, что русский мужик должен быть брутальным, а заодно сделают прививку против разбушевавшегося метросексуального вируса. Длинный каблук и фэшн-лук, мыльные саги, солярий и тональный крем — борцы за мужскую независимость Писаренко и Никишин отважно рубят головы расплодившегося женоподобия. Раз в неделю настоящие самцы, которые презирают узкие штанишки и шопинг, собираются в суровом мужском логове, чтобы поделиться опытом и наставить на путь истинный новичков. Каждый выпуск «Будь мужиком!» — это уморительный винегрет из постоянных рубрик. В основном ведущие работают с залом. Устраивают конкурсы, в которых гости могут померяться мужицкой силой. Дают кулинарные мастер-классы, объясняя, как закатить пир горой из хлеба, яиц и майонеза. Делают обзор самых горячих девушек. Кроме того, приглашают образцовых мужиков, берут у них интервью и разыгрывают скетчи. В гостях уже побывали актер Дмитрий Певцов, (   Читать дальше...   )Жанр: ЮморПродолжительность: ~ 00:45:33
+Едим со вкусом - одно из самых лучших изданий о кулинарии. Каждый номер этого издания включает не только множество оригинальных и доступных кулинарных рецептов, включающих полную калькуляцию расходов, но и потребительскую экспертизу и тесты различных продуктов питания, кухонной утвари и бытовой техники для кухни. Также в каждом номере журнала приводятся сводный бюджет питания на месяц.
+Хороший ресторан - дома!
+Шеф-повара столичных ресторанов раскрывают свои профессиональные секреты.2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0D135AA38CB0C594ADF38D95BA00846AA2144D5
+magnet:?xt=urn:btih:F9D143374878DF19214C85538A9CBDEBA4C91C05
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472412   (97684) от 25.03.2012
+###  Публикация: 470185   (97233) от 19.03.2012
 
-VA - Русское Радио. Фестиваль Хитов (2012) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergej Maksimov - No Tj Prosti
-02. Mc 77 Feat. Mainstream One - Bez Ljubvi
-03. Dj Bjke Feat. Shamsi - Solntse I Luna
-04. Denis Ljubimov - Novjj Den'
-05. Hanchik - Djshu Toboj
-06. Natal'ja Pugacheva - Razljubila
-07. Dan Balan - Do Utra (Alex Shade Remix)
-08. Skrjabin - A Pomnish'
-09. Alina Artts - Prekrasnaja Lozh'
-10. B'janka - Nashe Pokolenie(   Читать дальше...   )2012Жанр: PopПродолжительность: 12:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:442D725C26A95E335C7FBD6294A1198F20F55B0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472989   (97685) от 25.03.2012
-
-VA - Deep Line. Best Of ChillOut & Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97685.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Agua Loca Project - Marea Morada (6:39)
-2. Almadrava - Now You Can Reach The Sky (4:31)
-3. Amazonics - Jumpin' Jack Flash (3:20)
-4. Bart&ampBaker Feat. Kitten On The Keys - - Peek A Boo (2:39)
-5. Baz - Never Ending Story (2:53)
-6. Beegie Adair And David Davidson - La Vie En Rose (2:59)
-7. Betina Bager - Palinque (5:58)
-8. Biscaine - Romance (4:25)
-9. Blank & Jones - Smooth (4:20)
-10. Blue Pilots Project - Million Clouds (4:59)2012Жанр: Downtempo, Lounge, ChilloutПродолжительность: 05:22:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F99F9EE824F28A401A74F120117407A90B590A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472188   (97691) от 25.03.2012
-
-Быть или не быть / To Be or Not to Be (1942) BDRemux [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в Польше до и во время немецкой оккупации. В одном театре Варшавы работают муж и жена - Йосиф и Мария Тура. Ставят антинацистскую пьесу, но ее запрещают, и приходится играть «Гамлета». Чрезвычайно тщеславный и ранимый Йосиф Тура играет самого принца датского, один из зрителей, молодой и красивый летчик, встает и уходит из зала в самый ответственный (   Читать дальше...   )Производство: СШАЖанр: драма, комедия, военныйРежиссер: Эрнст ЛюбичАктеры: Кэрол Ломбард, Джек Бенни, Роберт Стэк, Феликс Брессарт, Лайонел Этуилл, Стэнли Риджес, Сиг Руман, Том Дуган, Чарльз Хэлтон, Джордж ЛиннПеревод: Дублированный, Многоголосый закадровыйСубтитры: Французские, Русские, НемецкиеПродолжительность: 01:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3673751FDFD88AE0621585751DF0B88C6BFE9638
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473242   (97695) от 25.03.2012
-
-Николай Капуста | Мастера советской карикатуры [1989] [PDF, DjVu]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Капуста — известный украинский художник-карикатурист. Его рисунки публикуются в городских» областных, республиканских и союзных газетах и журналах «Ворошиловградская правда», «Радяньска Донечччина», «Социалистический Донбасс», «Правда», «Известия», «Труд», «Литературная газета», «Крокодил», «Пврець», «Советский Союз»... Он — участник и призер многих (более ста) конкурсов и выставок карикатуры, не только республиканских и всесоюзных, но и международных — в Италии, Канаде, Турции, Югославии, болгарин...
-И несмотря на большие успехи, Николай Капуста — скромнейший человек. Когда он привез в редакцию свои рисунки для этого альбома, мы надеялись, что уж ему-то будет о чем написать в небольшой вступительной статье. Но... в ответ услышали: «Я художник, и мне трудно рассказывать о себе, а все мое отношение к сложностям жизни — в рисунках». Однако, отказавшись написать о себе несколько страниц, Николай Капуста все же согласился ответить на некоторые наши вопросы. Эту беседу мы и предлагаем читателю. Итак...Формат: PDF, DjVu
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E82824DC928A0D439A7CA131505ED60B29932F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472468   (97698) от 25.03.2012
-
-VA - Гуляй братан! Песни шансона (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97698.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ильдар Южный и Диана Теркулова - Побежали ручьи (3:42)
-2. Жорик Затонский - На Мерседесе В Казахстан (3:21)
-3. Владимир Гунбин - Давайте жить (3:42)
-4. Р. Рай - Забыто (4:10)
-5. Виктор Красавин - Невеселая (4:13)
-6. Петр Зыкин - Лагеря (3:11)
-7. Влад Павлецов - Скромный Музыкант (3:31)
-8. Виктор Тюменский - Жиганы (3:38)
-9. Грин Гарик и группа На Троих - Загремит-заклацает (4:00)
-10. Алексей Порхачев - Гуляю (4:10)2012Жанр: ШансонПродолжительность: 06:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A8006F4B75D9E463658E927CB8DB8DBE797D17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472887   (97701) от 25.03.2012
-
-Gustav Lundgren - Plays Django Reinhardt (2012) [MP3|256 кб/с]<Gypsy Swing, Jazz Guitar>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Impromptu
-02. Place De Brouckеre
-03. Vamp
-04. Blues En Mineur
-05. Swing 48
-06. This Kind Of Friend
-07. Appel Indirect
-08. Mеlodie Au Crеpuscule
-09. Vendredi 13
-10. Nuages(   Читать дальше...   )Жанр: Gypsy Swing, Jazz GuitarПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5069D622380B3105485F9171595D5AE02C6C682
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472675   (97702) от 25.03.2012
-
-[Картинки] Фото знаменитости/Джулианна Маргулис/Julianna Margulies
+[Wallpapers] Best Wallpapers Pack 8
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джулианна Маргулис (род. 8 июня 1966, Спринг-Вэлли, Нью-Йорк) — американская актриса.
+[Wallpapers] Best Wallpapers Pack 8
+Название: Best Wallpapers Pack 8
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200/1680x1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF134145653034C8C06617668B2E4FF27D61D9E6
+magnet:?xt=urn:btih:F538A2BAB06939F3CA62F34B57CA56ABAD9BEE8A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472818   (97705) от 25.03.2012
+###  Публикация: 470181   (97236) от 19.03.2012
 
-Georgia Gibbs - The Complete Original Hits Of Georgia Gibbs (2007  (1950-1958)) [MP3|320 кб/с]<Vocal Pop, Traditional Pop>
+[Wallpapers] Games Wallpapers Pack 2
 
->>Pop
->>Советская эстрада, Ретро
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Kiss Of Fire
-2. Ballin’ The Jack
-3. I'D'Ve Baked A Cake
-4. Dance With Me Henry
-5. Tweedle Dee
-6. Seven Lonely Days
-7. I Want You To Be My Baby
-8. I Still Feel The Same About You
-9. Cry
-10. So Madly In Love(   Читать дальше...   )Жанр: Vocal Pop, Traditional PopПродолжительность: 00:58:16
+[Wallpapers] Games Wallpapers Pack 2
+Название: Games Wallpapers Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 3200х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F4C37046F2FDD534284FBC0672A8A522DF2151F
+magnet:?xt=urn:btih:4E55FCDDD5AE2F06F6C627827297AD7434DDAF23
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471945   (97711) от 25.03.2012
+###  Публикация: 469505   (97238) от 19.03.2012
 
-At The Ruins - Death Earth Empire (2012) [MP3|320 кб/с]<Post-Hardcore / Electronic>
+VA - Groove Attack (2CD) (2012) [MP3|320 кб/с]<Psychedelic Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97238.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 (01:19:03)
+01. Sinister Silence Feat. Camille Jones - Someday (Still Around Mix) 08:03
+02. Liquid Soul & Electric Universe - Liquid Universe 09:36
+03. Major7 - Obsession 06:37
+04. Zyce - Dreaming 07:32
+05. Liquid Soul & Symbolic - Different Reality 08:31
+06. Timelock - 99 Calibre 07:17
+07. Sonic Species - Machina Terra (E-Clip Remix) 08:41
+08. D-Addiction - WTF 08:40
+09. Rocky & Sphera - Echo (Yotopia Remix) 08:21(   Читать дальше...   )2012Жанр: Psychedelic Trance, Progressive TranceПродолжительность: 02:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42A11B4525C841B15915E7902B2A041956B53F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470199   (97240) от 19.03.2012
+
+Lana Lane - El Dorado Hotel (2012) [FLAC|Lossless]<Progressive Metal / Symphonic Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Separation
-02. Novus Ordo Seclorum
-03. Sincere Hatred
-04. The Retaliation
-05. Mona Lisa
-06. The Necromancer
-07. The Walking Death2012Жанр: Post-Hardcore / ElectronicПродолжительность: 00:24:30
+01. A Dream Full Of Fire
+02. Maybe We'll Meet Again
+03. El Dorado
+04. Darkness Falls
+05. Hotels
+06. Believe
+07. Life Of The Party
+08. Gone Are The Days
+09. Moon God
+10. In Exile2012Жанр: Progressive Metal / Symphonic RockПродолжительность: 01:02:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52F969D87316FA16EE235C1C6116B9611D1D04A0
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 473361   (97712) от 25.03.2012
+###  Публикация: 470267   (97241) от 19.03.2012
 
-Александр Больных | XX век танков [2009] [PDF]
+VA - Prodвинутые Новинки Радиостанций 50\50(2012) [MP3|256 кб/с]<Pop,Dance>
 
->>Научная и техническая литература
->>Военная литература
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Автор книги убедительно доказывает, что полноценные, по-настоящему эффективные ТАНКОВЫЕ ВОЙСКА удалось создать лишь трем государствам - Германии, Советскому Союзу и Израилю. Только эти страны, пройдя долгий путь кровавых проб и ошибок, смогли разработать и успешно применить на практике теорию ВОЙНЫ ТАНКОВ. Ни одно другое государство, даже обладающее значительным танковым парком - ни Франция, ни Британия, ни США, - даже не приблизилось к уровню лидеров.
-Особый интерес представляет последняя глава книги, в которой автор моделирует несостоявшийся конфликт между СССР и НАТО, наглядно демонстрируя, что, вопреки американским прогнозам, на европейском театре военных действий у Запада фактически не было шансов устоять против советской танковой мощи.2009Формат: PDF
+01. Мара - Головокружения
+02. Ian Carey Ft. Bobby Anthony & Snoop Dogg - Last Night
+03. Дмитрий Колдун - В Комнате Пустой
+04. Alice Cooper - What Baby Wants
+05. Мила Нитич - Каюсь
+06. Kalomira - This is the time
+07. Сергей Ялтан - Окаянная
+08. Sophie Ellis-Bextor - Not Giving Up On Love (Extended Version)
+09. Земфира - Webgirl (Alex Valenso Remix)
+10. Darren Hayes - Talk Talk Talk2012Жанр: Pop,DanceПродолжительность: 06:32:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:324EE763E5BF4F453D402C75FA9E1E1E24C78F94
+magnet:?xt=urn:btih:D26F63ED3240ECB048B8A9A36D100B086451EFE1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 473243   (97714) от 25.03.2012
+###  Публикация: 470439   (97243) от 19.03.2012
 
-Валентин Литвиненко | Мастера советской карикатуры [1965] [PDF, DjVu]
+VA - Get Sexy vol.1 (2012) [MP3|320 кб/с]<Electro House, House>
 
->>Разное (категория книг)
->>
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ВАЛЕНТИН ЛИТВИНЕНКО
-Нередко бывает так, что перелистаешь альбом репродукций или посетишь художественную выставку и ничто не привлечет твоего внимания. Нет ничего более обидного для художника, чем равнодушие, с каким встречается его новая работа. ...Формат: PDF, DjVu
+VA - Get Sexy vol.1 (2012)Год: 2012
+Жанр: Electro House, House
+Продолжительность: 01:40:24Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТреклист:
+01.Ian Carey & Rosette Ft. Timbaland & Brasco - Amnesia (Cazzette Another Sugar Hunt Mix)
+02.Sean Paul - She Doesnt Mind (LX-Tronix Remix)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E458773EC71BA97AD0B672CD73F2D537A9B34F49
+magnet:?xt=urn:btih:92B89A1F2E44A2D23DCB432D6D50A16CFE7AE008
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 473534   (97720) от 26.03.2012
+###  Публикация: 468559   (97244) от 19.03.2012
 
-Авто плюс - Наши тесты / Skoda Citigo (2012) IPTVRip
+VA - Swedish House Album (2012) [MP3|~245 кб/с (V0)]<House>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Наши тесты" - это знакомство с новым, как правило еще не появившимся на рынке автомобилем. Только комплексный тест на полигоне и дорогах общего пользования способен выявить все преимущества и недостатки автомобиля. Ведущие сами испытывают новинку, моделируя всевозможные ситуации, от спортивных заездов до серьезного бездорожья.Жанр: ТелепередачаПродолжительность: 00:12:59
+1. Swedish House Mafia - Save The World
+2. Avicii - Fade Into Darkness (Vocal Extended)
+3. Axwell - Heart Is King
+4. Michael Calfan - Resurrection (Axwells Recut Club Version)
+5. Armin Van Buuren - Drowning (Avicii Remix)
+6. David Tort Feat. Gosha - One Loock (Axwell Vs Dimitri Vegas)
+7. Eric Prydz - Niton The Reason (Extended Mix)
+8. Tim Berg - Seek Romance (Avicci Vocal Extended)
+9. Albin Myers Feat. St James - There 4 You (Extended Mix)
+10. Adrian Lux - Teenage Crime (Axwell & Henrik B Remode)(   Читать дальше...   )2012Жанр: HouseПродолжительность: 03:54:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF00FC00A42E106BE4DC5ECB405CDA763E44FDE6
+magnet:?xt=urn:btih:1513E762128A87881843EF7A86CA77F660D7C372
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472272   (97721) от 26.03.2012
+###  Публикация: 470316   (97247) от 19.03.2012
 
-[EN] Позади Ваших Глаз / Behind Your Eyes (2011) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая пара Эрика и Стивен несколько раздосадованы тем обстоятельством, что выходные дни будут потрачены на встречу родителей Стивена. Неожиданно события принимают крайне негативный характер, когда их похищают и берут в заложники. Теперь для них это борьба за свои жизни против таинственного похитителя, которому известны секреты их прошлого. А когда Эрика смогла убежать, ситуация стала еще хуже...Жанр: ТриллерРежиссер: Клинт ЛиенАктеры: Фрида Шоу, Том Сандовал, Даниэль Фэнэберия, Артур Робертс, Реми О’НейллПеревод: ОтсутствуетПродолжительность: 01:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F471DBD711598BFD01C0EF3FF7A5618309FBBE00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473451   (97723) от 26.03.2012
-
-Авто плюс - Наши тесты / Cadillac CTS 4 — американский седан с полным приводом (2012) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97723.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Наши тесты" - это знакомство с новым, как правило еще не появившимся на рынке автомобилем. Только комплексный тест на полигоне и дорогах общего пользования способен выявить все преимущества и недостатки автомобиля. Ведущие сами испытывают новинку, моделируя всевозможные ситуации, от спортивных заездов до серьезного бездорожья.Жанр: ТелепередачаПродолжительность: 00:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551512ADF8EF1A2FC0516395679B2FC57AE90617
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473499   (97724) от 26.03.2012
-
-Vespera - Desert Of The Real (2011) [MP3|320 кб/с]<Gothic / Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mary Of Bethany 04:32
-02. Fame 03:54
-03. Behind My Smile 03:57
-04. Close To Madness 04:21
-05. Through The Neon Lights 03:48
-06. Desert Of The Real 03:49
-07. Your Weakness 04:46
-08. NDE 04:16
-09. Point In The Circle 03:30
-10. Afterglow 03:52(   Читать дальше...   )2011Жанр: Gothic / Industrial MetalПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA32AC6C7F2D51AEC9003EAFBD128725D7AA833
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471459   (97727) от 26.03.2012
-
-Obsidian Gate - Colossal Christhunt (2001) [MP3|320 кб/с]<Symphonic Black Metal>
+Municipal Waste - The Fatal Feast (2012) [MP3|320 кб/с]<Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Urgewalten
-2. Behold the Imperial Rise
-3. Tides of the Envenomed Oceans
-4. Dux Bellorum
-5. Of Purest Pandaemonium
-6. Colossal Christhunt2001Жанр: Symphonic Black MetalПродолжительность: 00:42:18
+1. Waste In Space
+ 2. Repossession
+ 3. New Dead Masters
+ 4. Unholy Abductor
+ 5. Idiot Check
+ 6. Covered In Sick/The Barfer
+ 7. You’re Cut Off
+ 8. Authority Complex
+ 9. Standards and Practices
+ 10. Crushing Chest Wound(   Читать дальше...   )2012Жанр: Thrash MetalПродолжительность: 00:39:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E3B38CA242C3ED65AB527745EAE521A321F925C
+magnet:?xt=urn:btih:395F85C473A0A849F1035DE32A016BC0E233842E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470170   (97250) от 19.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 42
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97250.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 42
+Название: Sexy Girl Wallpapers Pack 42
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6859C45D2067726973B43B01400ECF12678D34CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470259   (97251) от 19.03.2012
+
+[Wallpapers] Girls Wallpapers (18.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF6C00A77D4F769E6D422DFA18DB1C939BE9C77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470613   (97252) от 20.03.2012
+
+[Wallpapers] Best HD Wallpapers (19.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FC7F58F2AE58EA866DB7C6B91A60B6E4ADAC9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467137   (97253) от 20.03.2012
+
+Artёm Puchkoff&Sasha Fresh - Jam Sation vol.2 (2012) /2012, Resonanse Records/ [MP3|320 кб/с]<Progressive House/Commertial>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Tommy Vee & Nicola Fasano & Steve Forest & Luca Guerrieri - Tell Me (Meg Nerak Vocal Mix)
+02 - Eurythmics vs. Tonite Only & Nicky Romero - Sweet Gonna Dreams (Relanium Bootleg)
+03 - David Di Sabato - Orbits (Alex Cucciolini Remix)
+04 - Ultra Nate - Save Me (Dj Chus and Abel Ramos Miami Mix)
+05 - Dj Soulstar feat. Wally B - Move (Tune Brothers Remix)
+06 - Tom Geiss & Mark Simmons feat. Polina - Dream On (A.C.K. & Love N Joy Remix)
+07 - Jared Dietch feat. Kelli Sae - You're Not Alone (Gregori Klosman Instrumental Mix)
+08 - Sebastien Drums feat. Mitch Crown - Fly Again (Rob Adans Remix)
+09 - Joey C & Dj Torio & Nikki Kay - Fade Away (Valetto Remix)
+10 - Mitchell Niemeyer - Botox (Nene Dasile Remix)(   Читать дальше...   )2012Жанр: Progressive House/CommertialПродолжительность: 01:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE2EFD7CCBC8A6465C9792EC1556E6171D19814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470709   (97255) от 20.03.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (20.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470621   (97256) от 20.03.2012
+
+[Wallpapers] Desktop wallpapers (19.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E5EC75BB2A98220E8DA1EF706FC090C893F104
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470985   (97258) от 20.03.2012
+
+[Wallpapers] Nature Pictures №31
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97258.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №31
+Название: Nature Pictures №31
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 3200х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2052B36D2F8236A1E139C0FFB6A678DC02D69F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471067   (97259) от 20.03.2012
+
+[Wallpapers] HD Wallpapers Pack 4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97259.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers Pack 4
+Название: HD Wallpapers Pack 4
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE2196E7C7474FA0BBED9BDB17D0A141BF7C24A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470715   (97261) от 20.03.2012
+
+[Wallpapers] Nature Desktop Wallpapers (20.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD955C23F747D2902FE43C35FBB77C77B2AB78FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470712   (97262) от 20.03.2012
+
+[Wallpapers] Best HD Wallpapers (20.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3468C7FACB8EACA0056A6D73D4CF71BCA75ECB2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470164   (97263) от 20.03.2012
+
+VA - Beat Generation 2 (2009) [MP3|320 кб/с]<Psy-Prog>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97263.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Zyce & Flegma - Afterglow (8:41)
+2. Cabal - The sacred Spirit (7:38)
+3. Aquafeel - GloryLand (6:43)
+4. Aqualize - Land of 2 Suns (7:51)
+5. Audioload - Way Out (7:42)
+6. Andromeda - Sensation (Aquafeel RMX) (6:32)
+7. Time in Motion - Colour (8:07)
+8. Progenitor - Typical Human Behaviour (8:18)
+9. Ocean and Display - Kastefa Beach (7:59)2009Жанр: Psy-ProgПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470988   (97264) от 20.03.2012
+
+[Wallpapers] Nature Pictures №32
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97264.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №32
+Название: Nature Pictures №32
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470987   (97265) от 20.03.2012
+
+[Wallpapers] HD Pictures №1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97265.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Pictures №1
+Название: HD Pictures №1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF2635889029D43BDA055BDE56B9212C770B003
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471008   (97266) от 20.03.2012
+
+[Wallpapers] HD Wallpapers Pack 3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97266.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers Pack 3
+Название: HD Wallpapers Pack 3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD48F16BBB94DAC2E89DD8457524139FD7AB7034
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471029   (97267) от 20.03.2012
+
+[Wallpapers] Mixed Wallpapers (21.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB9A9D24D3E633A82675033F1B2F866D3E7D8A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471007   (97268) от 20.03.2012
+
+[Wallpapers] HD Pictures №2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97268.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Pictures №2
+Название: HD Pictures №2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15FAAA55AF321846C0EE531B642260BDCB61F25
 ```
 
 

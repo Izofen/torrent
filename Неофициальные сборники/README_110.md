@@ -1,3 +1,30 @@
+###  Публикация: 1584295   (205126) от 18.10.2022
+
+VA - Pop 2 Remix NNM (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lizzo - 2 Be Loved (Am I Ready) (PNAU Remix) (3:42)
+02. Sam Smith - Unholy (feat. Kim Petras) (Disclosure Remix) (5:02)
+03. Elton John - Hold Me Closer (Joel Corry Remix) (4:08)
+04. James Hype - Ferrari - Oliver Heldens Remix (3:08)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1617CFF83DC9D22DB6DD8E4F18436B6C2A1705F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830690   (205640) от 27.10.2025
 
 VA - Anything and everything assorted part 10 (2025) [MP3|320 Kbps] <Electronic, Vocal, Other>
@@ -668,33 +695,6 @@ Sinead O'Connor - How Nice A Woman Can Be (2023) 2 CD Compilation  [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0369371CFF8ED0EAE69036342E9C6C61E1CDA989
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648100   (208296) от 21.07.2023
-
-VA - Music News vol.283 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208296.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ann Ly - Пополам (02:50)
- 002. Akmal' - Одинокая (03:39)
- 003. Alex Andreev - Гори Оно Огнём (02:29)
- 004. Alle Farben - Revolution (Club Mix) (02:59)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF4E4057AB93CB259FA4AA0E927299E5FD287A3
 ```
 
 

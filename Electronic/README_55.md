@@ -1,3 +1,57 @@
+###  Публикация: 1758200   (103410) от 01.11.2024
+
+VA - Armin van Buuren - A State Of Trance 1197 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Norman – Phantom Manor (Daniel Wanrooy Remix)
+02. Vintage Culture & Fideles ft. Be No Rain – Fallen Leaf (Massano Remix)
+03. Yoel Lewis – Meteor
+04. MRPHLNDR – Tron (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05322831652000E8EB833D15E4EEAF8CA2DBC067
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757416   (103444) от 27.10.2024
+
+VA - Halloween Party 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Mamacita [02:45]
+02. Lorenz Koin - Adrenaline [02:05]
+03. JLUIS & Teknova - Fast Love [02:26]
+04. MaxRiven - Together [02:44](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B914F81CB0773172EE2995BDC597A74BC30720
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757311   (103446) от 27.10.2024
 
 VA - Nothing But... Trancetopia Vol. 19 (2024) [MP3|320 Kbps] <Trance>
@@ -638,60 +692,6 @@ VA - Dancewood Records - Six Years (2024) [MP3|320 Kbps] <Trance, Progressive, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CF6DFE27FB79F4809BFB0133F897F0D4891578C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753268   (103853) от 04.10.2024
-
-VA - Armin van Buuren - A State Of Trance 1193 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Protoculture - Viper
-02.	LÜRUM - Decisions
-03.	Armin van Buuren - Pulstar (Future Favorite)
-04.	Pennyman - Paloma (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D551302EB73567D35DADC81C52EC1E4ED902A9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752147   (103959) от 29.09.2024
-
-VA - It's All About Deep-House, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Krumm & Schief - Everything Is Right (Unforgettable Extended Mix) [06:40]
-02. Fonetica - I Need Your Love (Carlos Hdez Remix) [06:50]
-03. Vinback - Erase Me (Original Mix) [02:22]
-04. KOHL - Beyond the Round (Original Mix) [05:06](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC02CEA4B3637634B36F7EDE6C1CF0DE7EA9C823
 ```
 
 

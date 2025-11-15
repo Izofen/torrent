@@ -1,3 +1,30 @@
+###  Публикация: 1515857   (167805) от 09.12.2021
+
+VA - Beatport Tech House: Sound Pack #381 (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка которая находится на стыке двух стилей - ещё не техно, но уже не хаус. Это уже даже не стиль, а точка пространства, где встречаются и взаимопроникают две большие музыкальные стихии – техно и хаус.001. Cristhian Balcazar - Body Trap
+002. Dexxx Gum - Lights
+003. Ron Flatter - Dragoon
+004. Arni & Kazuma Akasaki - Kage(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 10:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE0214AC1906C3B2D859A7E765D9DD5602F4F66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345090   (167807) от 13.12.2019
 
 VA - My Lyric Soul: Romantic Music Compilation (2019) [MP3|320 Kbps] <Pop, Lyric>
@@ -671,33 +698,6 @@ VA - В машине с музыкой Vol.324 (2022) MP3 [320 Kbps] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3478DBE89FDB706551BA25709810506FD35BF08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596736   (168963) от 11.12.2022
-
-VA - The True Romance (2022) [MP3|320 Kbps] <Pop, Lyric, Romantic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giovanni Toscano - Amore Mio
-02. I Le Lucertole - Supercoppa
-03. Philipp Dittberner - Marie
-04. Pom Poko - Cheater(   Читать дальше...   )Жанр: Pop, Lyric, RomanticПродолжительность: 03:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3E1A09F563B8D9BA5B16945E7658C08381BE70
 ```
 
 

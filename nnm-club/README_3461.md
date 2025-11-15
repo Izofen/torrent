@@ -1,678 +1,683 @@
-###  Публикация: 1720465   (110347) от 03.05.2024
+###  Публикация: 1722546   (109678) от 12.05.2024
 
-Calibre 7.10.0 + Portable [Multi/Ru]
+Банда Андрюха - Пожарная Команда (2005) [WavPack|Lossless|image + .cue] <Pop>
 
->>Архив торрентов
->>Архив Программ
+>>Pop
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Шоу Начинается!
+ 02. Гори, Гори, Ясно!
+ 03. До Утра!
+ 40. Ё-Моё! А.Чижов Против Мата!(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F762285F502D87ADF93CBC5AC19A20FB3C2E2163
+magnet:?xt=urn:btih:2FEE3ECAE9147FA6B5D99452816EBB9687A0A7FE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720297   (110348) от 03.05.2024
+###  Публикация: 1722644   (109679) от 12.05.2024
 
-VA - Lounge Sexiest Ladies, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+Закон и порядок / Law & Order (2008) HDTVRip [H.264/720p] (сезон 18, серии 1-18 из 18) FOX Crime
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109679.jpg" />
+</div>
+
+
+###  Подробнее
+
+В системе уголовного судопроизводства обвинение представляют две независимые, равные по значению инстанции - полиция расследующая преступления и прокурор, представляющий дело в суде.Производство: США / NBC Universal Television, Studios USA TelevisionЖанр: триллер, драма, криминал, детективРежиссер: Константин Макрис, Эдвин Шерин, Джейс АлександрАктеры: Сэм Уотерстон, С. Ипейта Меркерсон, Джерри Орбак, Стивен Хилл, Джесси Л. Мартин, Лесли Хендрикс, Фред Долтон Томпсон, Крис Нот, Бенджамин Брэтт, Майкл МориартиПеревод: Многоголосый профессиональный (FOX Crime)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4744F49761D5B03E8B54A950FFAF13BAE356740
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722751   (109680) от 12.05.2024
+
+Своя игра (12.05.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109680.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться 30 игр, и победитель получит один миллион рублей!
+
+Во второй круг юбилейного турнира вышли 18 участников из 30 — они продолжат борьбу (   Читать дальше...   )Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96ABF71060E53C5E2918C0EA714D776F3E7EDF56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722717   (109681) от 12.05.2024
+
+Seventh Sunset - Hard Rock Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thank You for Your Payment (3:15)
+02. Songbird With a Six-String (3:55)
+03. Scars on my Tattoos (3:18)
+04. Red Headed Warrior (4:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE7DF1FF6F5EBA11140F15C732443428379BCA76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722548   (109682) от 12.05.2024
+
+VA - Metal Massacre (1982) Reissue, 1984, Metal Blade Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Hard Rock, Glam, Thrash>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109682.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Black N Blue - Chains Around Heaven
+A2 - Bitch - Live For The Whip
+A3 - Malice - Captive Of Light
+A4 - Avatar - Octave(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Glam, ThrashПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F06BC36E1AA4F30250E1BC51530B826585CFD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722622   (109683) от 12.05.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 4-й матч) Нью-Йорк Рейнджерс - Каролина Харрикейнз (11.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109683.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 мая 2024, воскресенье. 02:00 МСК. 1/2 финала - Восток. 4-й матч. Стадион: Пи-Эн-Си-Арена (Роли, США), 19 074 зрителя (100% при вместимости 19 041)
+Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Стив Бартон (Ванклик Хилл, Канада); Линейный: Джесси Маркис (Буктуч, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE449FFA5AE15FEC05148D3ABEDBA5DBB8301EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722587   (109684) от 12.05.2024
+
+Сто к одному (12.05.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109684.jpg" />
+</div>
+
+
+###  Подробнее
+
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда Школа фигурного катания против команды Школа мюзиклаЯзык озвучки: РусскийПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEEFCCA4983ED30192F3D6193ECBFD50F3F3D26F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722714   (109685) от 12.05.2024
+
+Real Blue - Silly slush swing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A touch of blue (2:30)
+02. Heartattack and vine (3:48)
+03. Silly slush swing (4:09)
+04. Wild women don't have no blues (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3100F7067E7C2761542624DD9B2F1915B53B2263
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722584   (109686) от 12.05.2024
+
+Сто к одному (11.05.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109686.jpg" />
+</div>
+
+
+###  Подробнее
+
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Свердловское ТВ" против команды "ТВ Екатеринбург"Язык озвучки: РусскийПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F3CDB0B243B47AE9DB2CEAA12EC69859FE3FE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722760   (109687) от 12.05.2024
+
+Juicy M - Live @ LOA, Luxembourg (2024-05-03) [MP3|320 Kbps] <Tech House, Techno>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109687.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Groove Messengers & Jamaican Reggae Cuts - This Girl (Chill Mix) (03:07)
- 02. Eve St. Jones - Everywhere (03:01)
- 03. Urban Love & Ivette Moraes - Roads (02:52)
- 04. Dinah Eastwood - I Ran (So Far Away) (04:02)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:27:03
+01. Corey James, HIISAK, Steve Angello, Roland Clark vs. Age Of Love vs. Charlotte de Witte & Enrico Sangiuliano vs. Fatboy Slim vs. Dirty Funker - The Age Of Ultimate Underground Right Here Right Now (Juicy M Mashup)
+02. Valy Mo & Avi Sic - The Music
+03. Matt Guy - You Can Dance
+04. Noizu feat. Madge - Acid Rain(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 01:00:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:994452252B95F9FEE7F0880D16EDC88D4E97CD54
+magnet:?xt=urn:btih:8AC8C7C0BAB36B326E653A96CA67EE763E4EBF9F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720463   (110349) от 03.05.2024
+###  Публикация: 1722727   (109688) от 12.05.2024
 
-MAGIX Samplitude Pro X8 Suite 19.1.3.23431 (x64) Portable by 7997 [Multi]
+The Sweet Peach Band - A Conversation With (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Samplitude Pro X – это программное обеспечение для производства музыки, предназначенное в первую очередь для профессионалов в этой области, отвечающее самым высоким требованиям качества при аудиопроизводстве, от первого дубля до финального мастеринга.
-Samplitude Pro X предлагает звукозаписывающим и микширующим инженерам уникальные функции, которые революционизируют (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие
+01. Your Melody (4:31)
+02. Same Old Feeling (4:53)
+03. 3 O'clock (5:18)
+04. Outta Sight (5:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CF06F98041DE223C5EE6D3D6AF20D45DCEBB01C
+magnet:?xt=urn:btih:BFC61FC3468A5C29996DD6D64977170EAB991452
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720296   (110350) от 03.05.2024
+###  Публикация: 1722745   (109689) от 12.05.2024
 
-Icecream Photo Editor Pro 1.50 [Multi/Ru]
+Soziedad Alkoholika - Confrontación (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Crossover>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109689.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Icecream Photo Editor - лучший бесплатный фоторедактор и менеджер фотографий для Windows. С легкостью редактируйте свои фотографии как профессионал: добавляйте текст и изображения, обрезайте и изменяйте размер, добавляйте фильтры, создавайте коллажи и многое другое.Язык интерфейса: Русский, Английский и другие
+01. Control de masas
+02. Colapso final
+03. Somos contradicción
+04. Traición(   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:43:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF36058CEA2F28BD72E41868ECBDC4DA550C1181
+magnet:?xt=urn:btih:1DF1E85BC909ED529E9451729FA250B6B09D3280
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720178   (110351) от 02.05.2024
+###  Публикация: 1722473   (109690) от 11.05.2024
 
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 5-й матч) Лос-Анджелес Кингз - Эдмонтон Ойлерз (01.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+MotoGP. Этап 05 из 21. Гран-при Франции. Квалификация (11.05.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
 
 >>Спорт и активный отдых
->>Хоккей
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2 мая 2024, четверг. 05:00 МСК. 1/4 финала - Запад. 5-й матч. Стадион: Роджерс Плэйс (Эдмонтон, Канада), 18 347 зрителей (98% при вместимости 18 641)
-Главный судья: Ти Джей Люксмор (Тимминс, Канада); Главный судья: Горд Дуайер (Галифакс, Канада); Линейный: Либор Суханек (Стод, Чехия); Линейный: Скотт Черри (Дрэйтон, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:12
+11 мая 2024, суббота. 11:50 МСК. Этап 5, Ле Ман. Гран-при Франции. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:57:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:124F2287F266BBE3D9B4E098621B65C97A37FD3B
+magnet:?xt=urn:btih:2599CFC4F1D0AC5313E4DE9C7A241A7C515BC914
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720112   (110352) от 02.05.2024
+###  Публикация: 1722451   (109691) от 11.05.2024
 
-Bathym - Into Darkness (1990) Demo, Reissue, 2023, Doomed to Obscurity Records [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
+Анжелика Агурбаш - Любовь! Любовь? Любовь... (2009) [WavPack|Lossless|image + .cue] <Pop>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Pop
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Palace of Belial (05:42)
-02. Into Darkness (04:54)
-03. Legion of Hate (04:48)
-04. Congregation of the Dead (04:08)Жанр: Black, Death MetalПродолжительность: 00:19:32
+01. Слышишь. Я Так Тебя Люблю
+ 02. Дождями
+ 03. Голуби
+ 04. Роза На Снегу(   Читать дальше...   )Жанр: PopПродолжительность: 00:44"51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:952BD710198AB910FC96C0147ACA1EC21DB5041A
+magnet:?xt=urn:btih:F396E3A68E33D59FD87F763B73F22982CA1F3480
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720157   (110353) от 02.05.2024
+###  Публикация: 1722411   (109692) от 11.05.2024
 
-Rudi Tuesday Band - Before The Petrichor (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Folk>
+Пятеро на одного (11.05.2024) WEBRip [H.264/720p-LQ]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Rose In The Desert (4:20)
-02. Leaving The Rain Behind (4:16)
-03. I'm Okay! (3:37)
-04. I Walk Alone (3:41)(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 00:48:00
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51628A464D2B744403BF6CFC6154A70F365040C1
+magnet:?xt=urn:btih:52E9AC608F90450B79978F00388350FE1D635C59
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720202   (110354) от 02.05.2024
+###  Публикация: 1722450   (109693) от 11.05.2024
 
-Privacy Eraser Free 6.6.3 Build 4909 + Portable [Multi/Ru]
+Ананда - No Title (2007) [WavPack|Lossless|image + .cue] <Pop>
 
->>Архив торрентов
->>Архив Программ
+>>Pop
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
-Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Если знал бы ты...
+ 02. Тайная печаль
+ 03. Я полюблю
+ 04. Лишь на минутку(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCA29BD60D01DC15235DFB3281A67FAB43032F64
+magnet:?xt=urn:btih:978DDCD1426DF2F33D7F350378EA7F9A2C6BAA80
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720195   (110355) от 02.05.2024
+###  Публикация: 1722399   (109694) от 11.05.2024
 
-Сладкая месть: расследование Ханны Свенсен / Sweet Revenge: A Hannah Swensen Mystery (2021) WEB-DLRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ханне и Майку пора планировать свадьбу, но плотные рабочие графики обоих существенно осложняют процесс. Чтобы успеть подготовить пекарню к открытию Ханне приходится посещать спортзал в 5 утра. В один из таких походов она находит в СПА труп одной из сотрудниц центра, которая недавно переехала в их городок, но уже успела заработать сомнительную репутацию среди местных (   Читать дальше...   )Производство: США / Lighthouse Pictures, Canadian Film or Video Production Tax Credit (CPTC), Province of British Columbia Film Incentive BCЖанр: криминал, детективРежиссер: Пэт УильямсАктеры: Элисон Суини, Кэмерон Мэтисон, Тесс Аткинс, Барбара Нивен, Джулиана Уимблс, Риз Александр, Наташа Барнетт, Маркиян Тарасюк, Люсия Уолтерс, Катрина Мёльман и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:25:05Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B8B2585968F077CFB6EBCE3FE337F5736FEF28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720143   (110356) от 02.05.2024
-
-Most Relaxing Music Academy, Jazz Lounge Zone - Jazz Affinity: Connecting Through Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calling the Hotel Desk (3:23)
-02. Elegant Elevator Music (3:42)
-03. Pleasant Chill Jazz (3:19)
-04. Wait without Stress (3:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A502F4B46B3F61C10640F09DEC813C34E1E22760
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720211   (110357) от 02.05.2024
-
-Mob Rules - Celebration Day - 30 Years Of Mob Rules (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way of the World (8:26)
-02. Run to the Hills (3:53)
-03. Fame (4:13)
-04. Square Hammer (3:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA032DDF2A31CA9D412A87F27AECDF88079406B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720106   (110358) от 02.05.2024
-
-Jazz Chillout - Jazz in Eden (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Day (3:33)
-02. The Good Life (3:39)
-03. Sunset Beach Jazz (3:43)
-04. Follow Your Heart (3:35)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B23BF706E080DD7C2C51197130DF0014D1911BBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719931   (110359) от 02.05.2024
-
-Opera Trance featuring Emma Shapplin - Spente Le Steele (Part 2 - The Remixes) (2000) [FLAC 24/96|Lossless|tracks] <Hard House, Hard Trance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Spente Le Steele (Vocal Club Mix)
-02 - Spente Le Steele (Club Dub)Жанр: Hard House, Hard TranceПродолжительность: 00:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:415E61895429E2E40FD5C7B42B6A0EBB0DD7D64D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720167   (110360) от 02.05.2024
-
-Written on Water - Like dewdrops, like diamonds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birds (5:17)
-02. Meeting (6:32)
-03. Shelling Peas (5:49)
-04. Stopped Clocks (4:54)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36044414FA11D076C61F4FB1BD946A356E6B7307
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720230   (110361) от 02.05.2024
-
-Потрошитель. Наследие / Bloodline Killer (2024) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько лет назад Мойра пережила настоящий ад: ее кузен устроил резню и убил почти всех ее родственников и других невинных людей. Психа так и не удалось поймать, и каждую осень убийца напоминает о себе. В городе его даже прозвали маньяком по кличке Череп. Когда листья начинают желтеть, город погружается в страх и панику. И только детектив Сайферс может вернуть (   Читать дальше...   )Производство: США / BondIt, Future Proof Films, Gaudioso Twins FilmsЖанр: ужасы, триллерРежиссер: Анте НоваковичАктеры: Шоуни Смит, Тэрин Мэннинг, Дрю Морлейн, Тайриз Гибсон, Брюс Дерн, Джеймс Гаудиозо, Монтанна Гиллис, Крешимир Новакович, Сол Рендино, Адам ШиппиПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:45:55Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720241   (110362) от 02.05.2024
-
-Gothminister - Pandemonium II: The Battle of the Underworlds (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle of the Underworlds (5:22)
-02. We Live Another Day (3:45)
-03. Creepy Shadows (3:31)
-04. One Dark Happy Nation (3:37)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF1C0D6A553CF7A0D6F0096D6AF5F820A547BF1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720162   (110363) от 02.05.2024
-
-Sergio (Sérgio) Pereira - Bossa+ (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bossa (4:18)
-02. Sea of Love (5:05)
-03. One for Pat (5:20)
-04. Montgo (5:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C3A807D3485B7759FCB8E75A0C69A29D09A538
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720244   (110364) от 02.05.2024
-
-Gothminister - Pandemonium II: The Battle of the Underworlds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle of the Underworlds (5:22)
-02. We Live Another Day (3:45)
-03. Creepy Shadows (3:31)
-04. One Dark Happy Nation (3:37)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19BA7336DCEDEBAAB9DA92E26919724208F04EA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720227   (110365) от 02.05.2024
-
-Mob Rules - Celebration Day - 30 Years Of Mob Rules (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way of the World (8:26)
-02. Run to the Hills (3:53)
-03. Fame (4:13)
-04. Square Hammer (3:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6B6D7616788F573EEDF172C51B81C49C07B17B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720172   (110366) от 02.05.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 5-й матч) Вегас Голден Найтс - Даллас Старз (01.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110366.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 мая 2024, четверг. 02:30 МСК. 1/4 финала - Запад. 5-й матч. Стадион: Американ Эйрлайнс-центр (Даллас, США), 18 532 зрителя (98% при вместимости 18 889)
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Стив Бартон (Ванклик Хилл, Канада); Линейный: Кайл Флемингтон (Паркхилл, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B20B288DD084484C3E61DE31089FE6DCB45E1DB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720137   (110367) от 02.05.2024
-
-Jola Recchioni - Wrongtime (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Her Substitute (3:55)
-02. November Leaves Song (5:08)
-03. I'm Walking Out On You Baby (5:09)
-04. I'm The Best For Your Motor (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D59D71F18FF9BFB6642F3AF2C576F9B0497426E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720108   (110368) от 02.05.2024
-
-Jeff Pitchell - Brown Eyed Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now You Know (3:24)
-02. Brown Eyed Blues (3:45)
-03. Wait (4:16)
-04. Caught Up In The Wave (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1B988925F43BDF82CE5D15F4D5E1806A00F5BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720118   (110369) от 02.05.2024
-
-Gerald Ross - Absolute Uke (2015) UkeTone Records [FLAC|Lossless|tracks + .cue] <Swing, Ukulele>
+Jackie McLean - Rhythm Of The Earth (1992) Antilles [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Take the 'A' Train [2:26]
-02. You Belong to My Heart [2:36]
-03. Under Paris Skies [2:54]
-04. On the Street Where You Live [3:14](   Читать дальше...   )Жанр: Swing, UkuleleПродолжительность: 00:36:36
+01. Rhythm of the Earth [15:35]
+02. For Hofsa [4:12]
+03. Sirius System [6:44]
+04. The Explorers [7:58](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C83C24BE6B52E837783BE2BAC0AD48C0ACFE631
+magnet:?xt=urn:btih:1A2D04BE310E577EC7B85397AC7EECCC05F6BDF8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720140   (110370) от 02.05.2024
+###  Публикация: 1722526   (109695) от 11.05.2024
 
-Mitch Polzak & The Kaw-Ligas - Down South Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
+Виктор Драгунский | Виктор Драгунский (2000) [MP3, Виктор Драгунский]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109695.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Down South Blues (4:45)
-02. Lonesome, On´ry and Mean (4:09)
-03. Walking The Streets Of Love Alone (3:02)
-04. Sugarfoot Rag (2:48)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:35:45
+Серия/Цикл: «Мелодия – детям».
+Имя Виктора Драгунского знают дети в нашей стране и за рубежом. Он написал около ста историй из жизни мальчика Дениски. Эти истории, рассказанные, как говорил сам автор, «по секрету всему свету», известны читателям как «Денискины рассказы».
+В сборник вошли самые известные истории о Дениске Кораблеве, весёлом и добром мальчике, который (   Читать дальше...   )Жанр: Русская литература для детей, рассказИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:45:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D5FAB164AFA4A2AE1584551702B273BC51EB4DF
+magnet:?xt=urn:btih:3BC6505CAD6FBA253068E346BB331B19B8C086C1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720104   (110371) от 02.05.2024
+###  Публикация: 1722455   (109696) от 11.05.2024
 
-Bart Bryant - Backstage II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+Villagers - That Golden Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Day Of the Eagle (3:58)
-02. If You Love Me Like You Say (3:02)
-03. I Can't Quit You Baby (6:37)
-04. Empty Arms (3:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:53
+01 - Truly Alone (00:03:36)
+02 - First Responder (00:04:39)
+03 - I Want What I Don't Need (00:03:35)
+04 - You Lucky One (00:04:54)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:44:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB5ABBFFDEA437CCDEDCFFF0631DE5DC09D725B1
+magnet:?xt=urn:btih:14B50CA680B795D23A7EA420A50C83EAA7A3808C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720134   (110372) от 02.05.2024
+###  Публикация: 1722512   (109697) от 11.05.2024
 
-Jerome Godboo - One Monkey (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+Виктор Голявкин | Обыкновенные дела (2018) [MP3, Алла Човжик]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tension (4:06)
-02. Communication (3:21)
-03. All I Want (3:18)
-04. One Monkey (5:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:57
+Серия/Цикл: Детская аудиокнига.
+Виктор Владимирович Голявкин (1929–2001) – русский советский детский писатель-юморист, художник, короткими весёлыми рассказами которого зачитывались не только дети, но и взрослые.
+Студия «АРДИС» представляет повесть известного российского писателя Виктора Голявкина «Обыкновенные дела», рассказывающую об обыкновенном, нет! – необыкновенном (   Читать дальше...   )Жанр: Русская литература для детей, повестьИздательство: Студия «АРДИС»Продолжительность: 04:19:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2CB476A41874BF9D9CD8BDBA10DC84AD8BD549FE
+magnet:?xt=urn:btih:1231422CE6A9F8DC003455D4452BCE8A791AAC4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722464   (109698) от 11.05.2024
+
+Арбат - Голубоглазая (2006) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109698.jpg" />
+</div>
+
+
+###  Подробнее
+
+10. Голубоглазая
+ 02. Арбат
+ 03. Мосты
+ 04. Олигархи(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2826C200A7D3123D9CFD41CBA30DDD3BFEDEC44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722501   (109699) от 11.05.2024
+
+Драма эпохи рыцарства / Et Drama fra Riddertiden (1907) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совсем небольшой ролик. Во времена мушкетеров было сплошное благородство и рыцарство, всякие там "мерси-пардон мадам, вызываю Вас на дуэль!" Ну, и все такое. Но ведь и любовь и страсть тогда тоже были. А как говорится, в любовной войне правил нет. И если какой-то заезжий кавалер со шпагой у тебя невесту отбивает, какое уж тут рыцарство...Производство: Дания, Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Вигго ЛарсенАктеры: Вигго Ларсен, Густав Лунд, Clara NebelongЯзык озвучки: немойСубтитры: отсутствуютПродолжительность: 00:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B269C604909E3EB6E6F39688CBE70EDFA93B474C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722396   (109700) от 11.05.2024
+
+David "Fathead" Newman, Ellis Marsalis, Cornell Dupree - Return To The Wide Open Spaces (1990) Amazing Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [1:27]
+02. Buster's Tune [5:40]
+03. Hard Times [8:34]
+04. 13th Floor [7:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5BF720CE12F416158E4DF596DE1C207E3F3ED8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722397   (109701) от 11.05.2024
+
+Gigi Gryce - The Rat Race Blues (1960) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rat Race Blues [6:37]
+02. Strange Feelin' [7:48]
+03. Boxer's Blues [7:02]
+04. Blues in Bloom [7:47](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E1C01254EE3F398BE8411EBA9F3070B454D065
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722393   (109702) от 11.05.2024
+
+Richard Marx - Rush Street (1992) Unofficial Release [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109702.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Take This Heart
+A2 Keep Coming Back
+A3 Big Boy Now
+A4 Calling You(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B8781127FD652CFA383F36639CBF0CA6FB1AEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722426   (109703) от 11.05.2024
+
+VA - Deep House Summer Charts 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CJ Stone, Voodoo, Serano & Rocco - Overload 2024 (02:52)
+02. Nora & Chris - Baby Cherie (feat Jorik Burema) (02:14)
+03. Dj Soulstar - Think Too Much (02:55)
+04. Wallace - Memories (02:51)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C23C46F18DB732271DBBB99F397600216A2AAC
 ```
 
 

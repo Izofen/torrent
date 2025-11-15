@@ -1,3 +1,30 @@
+###  Публикация: 1676169   (158943) от 12.11.2023
+
+VA - Trance In Motion Vol.365 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allende - Horizon Painter (Original Mix)
+02. Myon - Albion (Pavel Khvaleev Extended Remix)
+03. Ron with Leeds - Obsidian (Extended Mix)
+04. Sunlight Project - Darkstar (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:24:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15194472E83BCBDAECE8AAF20E7C7EE0B93F69B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676083   (159152) от 11.11.2023
 
 VA - Reflection Of A Dream (2023) [MP3|320 Kbps] <Progressive, Trance, Electro>
@@ -668,33 +695,6 @@ VA - My Playlist - Hammond organ blues, soul, jazz & funk music (2023) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F93255D85B953280A3A530FA64D4ACA7776C9910
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674216   (160830) от 06.11.2023
-
-VA - Kontor Top of the Clubs Vol. 98 (2023) [MP3|~266 Kbps (V0)] <Electronic, Dance, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VA - Kontor Top of the Clubs Vol. 98 Mix by Jerome (Continuous DJ Mix) (63:12)
-02. VA - Kontor Top of the Clubs Vol. 98 Mix by Markus Gardeweg (Continuous DJ Mix) (72:32)
-03. VA - Kontor Top of the Clubs Vol. 98 Mix by Neptunica (Continuous DJ Mix) (65:53)
-04. Leony, Niklas Dee & VIZE - I Can Feel (02:52)(   Читать дальше...   )Жанр: Electronic, Dance, Club, HouseПродолжительность: 04:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C9B8E41F2484BA76C1DC3A47749CCDAA8C4724
 ```
 
 

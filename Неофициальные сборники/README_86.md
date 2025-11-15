@@ -1,3 +1,30 @@
+###  Публикация: 1825915   (150732) от 18.10.2025
+
+VA - Осень на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sabrina Carpenter - Tears (2:40)
+02. Сергей Лазарев - Тут или Там (3:25)
+03. Shouse & Cub Sport - Only You (2:57)
+04. Ava Max - Don’t Click Play (2:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5861D27584D065F4383495FBC328A6C930E8EA1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968856   (150835) от 25.12.2015
 
 VA - Авто. Музыка. Дорога (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с] <Deep, House, G-House, Nu Disco, Indie, Trap, Dubstep, Drum & Bass, Electro, Progressive, Techno, Tech, Tranc ...
@@ -678,33 +705,6 @@ VA - Creative Electro Box 1 (2012) [MP3|320 кб/с]<House/Electro House/Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA3C4BA38220A45AEF3989EEAC931B50C7D796EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434222   (153246) от 23.12.2020
-
-VA - Eternal Vices (2020) [MP3|320 Kbps] <Rock Indie, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это возвращение к ушедшим ощущениям музыкантов: от чувства единения с природой до личных эмоций. Это реинкарнация ранних мелодий, которые звучат по-другому в постоянно меняющемся мире вокруг нас. Мелодические эмоции похожи на дежавю - вы ранее уже чувствовали что-то подобное, но эти ощущения новые, еще более воодушевляющие.001. Fire In The Radio - Rewind
-002. Fours - Is This The Night
-003. Lewis Capaldi - Fade
-004. Tim Burgess - Empathy For The Devil(   Читать дальше...   )Жанр: Rock Indie, AlternativeПродолжительность: 07:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B459051EA7ACEC9C653A4DAFE8874325C81577B8
 ```
 
 

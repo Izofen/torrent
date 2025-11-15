@@ -1,668 +1,693 @@
-###  Публикация: 1750767   (104151) от 21.09.2024
+###  Публикация: 1756929   (103489) от 24.10.2024
 
-Сайгон / Saigon (1947) BDRip [H.264] [VO]
+Gillian Welch & David Rawlings - Woodland (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Folk, Blues, Americana>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Герой Второй мировой войны, военный лётчик майор Ларри Бриггс узнаёт от врача, что его боевой товарищ капитан Майк Перри страдает от неизлечимой болезни мозга. Не говоря об этом Майку, Ларри решает сделать последние месяцы его жизни максимально счастливыми, и, чтобы заработать для этого денег, соглашается на предложение подозрительного бизнесмена Мариса перевезти (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: нуар, драма, криминал, триллерРежиссер: Лесли ФентонАктеры: Алан Лэдд, Вероника Лэйк, Дуглас Дик, Уолли Кассел, Лютер Эдлер, Моррис Карновский, Михаил Разумный, Луис Ван Рутен, Юджин Борден, Грифф БарнеттПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (den904), английскиеПродолжительность: 01:33:58
+01. Empty Trainload Of Sky (3:25)
+02. What We Had (3:59)
+03. Lawman (4:32)
+04. The Bells And The Birds (3:14)(   Читать дальше...   )Жанр: Folk, Blues, AmericanaПродолжительность: 00:41:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55C422E1F5C57C47BAE783333E74CF8CA5B82277
+magnet:?xt=urn:btih:1C23DE161E88A2CDFC4C1188DA1290BEE2836FA6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750787   (104152) от 21.09.2024
+###  Публикация: 1757018   (103490) от 24.10.2024
 
-Трус / The Craven (1912) WEBRip
+Malabari - Down The Maelstrom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшой вестерн, с феминистским оттенком. Новичок на ранчо складно рассказывает байки и сам молодцом. Дочка хозяина влюбляется и выходит за него замуж. Да и местные ковбои доверяют ему и выбирают шерифом. Вот только чуть позже молодая женка выясняет, что на самом деле ее благоверный болтун и трус. Что же делать?! Ведь в те времена и в тех краях такое понятие как (   Читать дальше...   )Производство: США / Vitagraph Company of AmericaЖанр: короткометражный, драма, вестерн, немое киноРежиссер: Роллин С. СтарджонАктеры: Роберт Торнби, Энн Шефер, Эгил Эй, Чарльз Беннетт, Фред БарнсПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:14:42
+01. Down The Maelstrom (1:54)
+02. Maelstrom (4:38)
+03. Empty Sacrifice (3:51)
+04. Shadows (4:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B15434CADD6D824525F2C0FACF186B31FD9BF2E6
+magnet:?xt=urn:btih:4ED6111EADC96F3863DA85978798128964B207BF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750730   (104153) от 21.09.2024
+###  Публикация: 1757003   (103491) от 24.10.2024
 
-MotoGP. Этап 14 из 20. Гран-при Эмилии-Романьи. Квалификация (21.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+Casandra's Crossing - Garden Of Earthly Delights (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger (5:01)
+02. Impatient (4:54)
+03. Closer to Heaven (5:21)
+04. Ring Me Around (4:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8823A18633939A217E04E32BC1A9AF77390FAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756979   (103492) от 24.10.2024
+
+The Grammers - Rockfield (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil in the Eyes of Men (3:33)
+02. DNA (2:40)
+03. Live It Up (4:39)
+04. I Know You're Strong (4:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4668C87514275B2CDF48545BBDC234A341F7FBD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756240   (103493) от 20.10.2024
+
+НХЛ 2023-2024. Каролина Харрикейнз - Питтсбург Пингвинз (18.10.2024) WEB-DLRip [H.264/720p] [hand made 30 fps] [EN]
 
 >>Спорт и активный отдых
->>Авто, Мото
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-21 сентября 2024, суббота. 11:50 МСК. Этап 14 Мизано-Адриатико. Гран-при Эмилии-Романьи. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:55:54
+19 октября 2024, суббота. 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 074 зрителя (91% при вместимости 18 673)
+Главный судья: Кендрик Николсон (Милвертон, Канада); Главный судья: Картер Сандлак (Лондон, Канада); Линейный: Мэтт Макферсон (Энтигониш, Канада); Линейный: Си Джей Мюррей (Питтсбург, США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:39:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F1B62D95B98704BB47E9EFED932C728ACC237C3
+magnet:?xt=urn:btih:584B572231904307816558210DD8437F75D5F229
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750677   (104154) от 21.09.2024
+###  Публикация: 1756392   (103494) от 20.10.2024
 
-Пятеро на одного (21.09.2024) WEBRip [H.264/720p-LQ]
+Moonrise - Under The Flight Crows (2011) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under the Flight of Crows 06:50
+02. Dusk 05:46
+03. Dressed by Our Dreams 04:36
+04. My Ruins 04:21(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D409D29776B70231C84293F5CA6FFB3DDFA198D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756318   (103495) от 20.10.2024
+
+Первая передача на НТВ. Автомобильная передача (20.10.2024) WEBRip [H.264/720p]
 
 >>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:04
+В Тюмени невиновный водитель оказался в дураках, хотя ПДД нарушил другой участник аварии. Какую ответственность несет аварийный комиссар и как получить документы в ГАИ, ведь экипаж на место никто не вызывал?
+ Самая массовая модель «Жигулей»: как она создавалась и чего не хватает нынешнему автолюбителю.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B866CAE5396AA7AB4FD97D8894BF53CFCF8B429
+magnet:?xt=urn:btih:0577C660A374C39D153175684E25E3AB2CEE16D6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750590   (104155) от 21.09.2024
+###  Публикация: 1756202   (103496) от 20.10.2024
 
-Jumaane Smith - Come On Home (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+Starcrazy - Starcrazy (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock, Art Rock>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103496.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Know (3:03)
-02. Come On Home (5:17)
-03. Chief (5:35)
-04. I'm Gone (2:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:34
+01. The Fire [00:03:36]
+02. What It's Worth [00:03:17]
+03. Going Underground [00:03:24]
+04. Nighttime [00:03:11](   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Art RockПродолжительность: 00:38:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D39D6247A697EC519058C614C291F20DE9435BFC
+magnet:?xt=urn:btih:BC7A67C49306258E621C9A5AD8E97A29BB3BB5FB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750583   (104156) от 21.09.2024
+###  Публикация: 1756178   (103497) от 20.10.2024
 
-JD Simo & Luther Dickinson - Do The Rump! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+Mother's Cake - Ultrabliss (2024) [FLAC|Lossless|WEB-DL|tracks] <Progresive, Space, Psychedelic Rock>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Street People (3:11)
-02. Right Down There (4:03)
-03. Lonesome Road (4:46)
-04. Come and Go With Me (4:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:09
+01. Clockwork [00:09:53]
+02. Feel Alright [00:04:10]
+03. One of These Days [00:03:51]
+04. Love Me [00:09:05](   Читать дальше...   )Жанр: Progresive, Space, Psychedelic RockПродолжительность: 00:53:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:907E67FD2F44C0564304E660AA0778BBF2E2BD80
+magnet:?xt=urn:btih:54F344997D6DDA1E7892B69F6B7AC35F53F8C9D5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750797   (104157) от 21.09.2024
+###  Публикация: 1756294   (103498) от 20.10.2024
 
-Alyssa Galvan - Darling (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guilty By Design (4:12)
-02. Turning Blue (3:34)
-03. Good Feeling (3:58)
-04. Want It Bad (3:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66540C4859B757CE276FE09F511F4E344ED41E3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750668   (104158) от 21.09.2024
-
-Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Динамо (Москва) (20.09.2024) WEBRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Динамо (Москва) (20.09.2024)
-СУДЬИ Бирин Виктор (Москва, Россия) Раводин Алексей (Москва, Россия)
-СТАДИОН «Фетисов-Арена» (Владивосток) Зрителей: 5386Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949E68C7851C2E0F4F6805E42841D919C9C228A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750670   (104159) от 21.09.2024
-
-Хоккей. КХЛ 2024-2025. Авангард (Омск) - Автомобилист (Екатеринбург) (20.09.2024) WEBRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Авангард (Омск) - Автомобилист (Екатеринбург) (20.09.2024)
-СУДЬИ Ермолаев Иван (Москва, Россия) Сидоренко Максим (Белоруссия)
-СТАДИОН «G-Drive Арена» (Омск) Зрителей: 12011Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2209F2A56E7BB47501A13AF9F40C0E90A654DAB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750745   (104160) от 21.09.2024
-
-Журнал | Лечащий Врач (том 27) №8 (2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Лечащий Врач» - профессиональное медицинское издание. Новости медицинского и фармацевтического рынков, научно-практические статьи для врачей общей практике, терапевтов, педиатров, узких специалистов. Постоянные рубрики, адресованные руководителям медучреждений, преподавателям, студентам медвузов.Жанр: Медицинский научно-практический журналИздательство: ООО "Издательство "Открытые системы"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:944BB1B42B760A0573C509BDAE49F7A11CD30609
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750660   (104161) от 21.09.2024
-
-Ночь и город / Night and the City (1950) BDRip [H.265/1080p] [10-bit] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондонец Гарри Фабиан постоянно строит честолюбивые планы, которые никогда не срабатывают. Однажды, когда он сталкивается с наиболее известным греко-римским борцом в мире Грегориусом, он придумывает схему, которая, как он полагает, положит начало к его финансовой независимости.Производство: Великобритания / 20th Century Fox Film Corporation, Twentieth Century-Fox Productions Ltd.Жанр: фильм-нуар, триллер, криминал, детектив, спортРежиссер: Жюль ДассенАктеры: Ричард Уидмарк, Джин Тирни, Гуги Уизерс, Хью Марлоу, Френсис Л. Салливан, Херберт Лом, Станислаус Збишко, Майк Мазурки, Чарльз Фаррелл, Ада РивПеревод: Двуголосый профессиональный (DVD Classic)Язык озвучки: русский, английскийСубтитры: английские (Full, SDH)Продолжительность: 01:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA14A91B25C38E917FBFF9FE5BFCF1755772903
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750689   (104162) от 21.09.2024
-
-Подшивка журнала | Цветок №12-18 (июнь-сентябрь 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практический журнал для цветоводов и дачников. Хотите еще больше узнать о выращивании растений? Мечтаете превратить свой садовый участок в райский сад? «Цветок» рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей!Жанр: Цветоводство, садоводство, огородничествоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DD0FBAD40B20A59089126233030ABAC9440C6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750698   (104163) от 21.09.2024
-
-VA - Dance the Night Away, Vol. 1 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+Jaime Narvaez - Joyous Cosmology EP (2019) [FLAC|Lossless|tracks] <Deep House, Progressive House>
 
 >>Electronic
->>House
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Francesco Diaz & All Purple - Hometown (Instrumental Mix) (03:35)
-02. Mags - Cookin Beats (Original Version) (05:17)
-03. Eligos - Feel Your Body Closer (02:54)
-04. James McGee - Breathe (04:24)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:49:40
+01. Jaime Narvaez - Joyous Cosmology (Original Mix) (8:08)
+02. Jaime Narvaez - Joyous Cosmology (Wonderful Life Vocal Mix) (8:08)
+03. Jaime Narvaez - Neptunian (Original Mix) (7:20)Жанр: Deep House, Progressive HouseПродолжительность: 00:23:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A14D87CEFE65DA6B0D257C8CB2663658EE14E09
+magnet:?xt=urn:btih:07DAC9F20A734C560BC870734F6390BC355A9C78
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750636   (104164) от 21.09.2024
+###  Публикация: 1756396   (103499) от 20.10.2024
 
-Markus Schulz - Global DJ Broadcast World Tour: Avalon, Los Angeles (2024-09-12) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz (Recorded Live from Avalon in Los Angeles - August 17 2024)
-01. Layton Giordani - Life Moves Fast
-02. Markus Schulz & Emma Hewitt - Till We Fade (Club Mix)
-03. Orjan Nilsen - Between the Rays (ALAT Remix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D392C8421AD13F61CE95931FAC5ED7EF6CAF8E35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750804   (104165) от 21.09.2024
-
-Чёрный Список - Глава первая (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Beorn - Time To Dare (2015) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103499.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Птица-печаль (04:27)
-02. Лица (03:37)
-03. Про Любовь (03:38)
-04. Взаперти (03:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:50
+01. From Here to Eternity (instrumental)
+02. Riders of the Sky
+03. Star Ocean
+04. In Quest for Planet Eden(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:41:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9690CF86C94703DAD65F691F93181C7F7577BAC1
+magnet:?xt=urn:btih:7152C12DF731AD0CA98D4201A145CFC15AEE2EF2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750594   (104166) от 21.09.2024
+###  Публикация: 1756263   (103500) от 20.10.2024
 
-Lofi Waves Japan - Whispers of Kyoto (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evening in Kyoto (2:37)
-02. Floating Dreams (2:35)
-03. Serene Shrine Sounds (2:51)
-04. Pagoda Dreams (1:57)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26938DF7AA10AA8009C8454117D2DECF8C450E52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750596   (104167) от 21.09.2024
-
-Tony Levin - Bringing It Down to the Bass (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bringing It Down to the Bass (5:34)
-02. Me and My Axe (4:23)
-03. Road Dogs (5:30)
-04. Uncle Funkster (2:32)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C30AAD724487D9581EED9D49C1D2B9B40372F69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750608   (104168) от 21.09.2024
-
-VA - DJ Hits 1997 November (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hand In Hand For Children E.V. - Children Need A Helping Hand
-02. DJ Bobo - World In Motion
-03. Mr. President - Olympic Dream
-04. Slammer - Do You Wanna Fank(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6386478EBF604A6F59FED4667F9F5AA71E6CE9F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750727   (104169) от 21.09.2024
-
-VA - Trance Clubbers, Vol. 1 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaron Inc. & Wavetraxx - Cloudsurfer (Radio-Edit) (03:26)
-02. Marc Dawn - Random Walk (Factor B's Back to the Future Remix Edit) (04:17)
-03. Stefano Negrini, Anthya & Alaera - Love Has Gone (Radio-Edit) (03:11)
-04. Solid Sleep - Tears (Edit) (03:19)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:23:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E38C70A8C75F721C7B5FECD321818A49ED717A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750801   (104170) от 21.09.2024
-
-Чёрный Список - Глава вторая (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Bite The Bullet - Looking For Paradise (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
 >>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Тьма (04:28)
-02. Кровь (03:47)
-03. Пустота (03:33)
-04. Страх (04:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:43
+01. Dirty Water (4:05)
+02. The Others (3:52)
+03. Looking For Paradise (3:51)
+04. Find You (4:14)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:43:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C147CA44A96B31C4BBFF02A15FB602A4963DB31
+magnet:?xt=urn:btih:D2655592139FD191BCBB4A5F5655C19A465DC26E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750734   (104171) от 21.09.2024
+###  Публикация: 1756272   (103501) от 20.10.2024
 
-Подшивка журнала | Ваш семейный доктор №1-5 (январь-октябрь 2024) [PDF]
+Jim Peterik & World Stage - Roots & Shoots Volume Two (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
->>Журналы
->>Другие журналы
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Ваш семейный доктор» — издание об альтернативной медицине, которое содержит достоверную информацию о здоровом образе жизни, профилактике и лечении различных заболеваний. В журнале вы найдете проверенные и понятные советы профессиональных докторов; уникальные разработки и классические методы поддержания физического и душевного равновесия; рекомендации и советы по (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Изначально электронное (ebook)
+01. American Dreamer (feat. Dave Mikulskis) (4:16)
+02. Your Own Hero (feat. Mike Reno with Jim Peterik) (4:02)
+03. Stronger Than You Know (feat. Jim Peterik and Dave Mikulskis) (4:10)
+04. All That's Mine To Give (feat. Toby Hitchcock) (4:28)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:50:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18229C274F4A5DFAC018869883F0B70AA4D150DA
+magnet:?xt=urn:btih:E1D13719105E82E6C4AAEB7B47513596DC75E305
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750776   (104172) от 21.09.2024
+###  Публикация: 1756262   (103502) от 20.10.2024
 
-Сайгон / Saigon (1947) BDRip [H.264/720p] [VO]
+The Art Farmer Quartet - To Sweden With Love (1964) 2013, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Герой Второй мировой войны, военный лётчик майор Ларри Бриггс узнаёт от врача, что его боевой товарищ капитан Майк Перри страдает от неизлечимой болезни мозга. Не говоря об этом Майку, Ларри решает сделать последние месяцы его жизни максимально счастливыми, и, чтобы заработать для этого денег, соглашается на предложение подозрительного бизнесмена Мариса перевезти (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: нуар, драма, криминал, триллерРежиссер: Лесли ФентонАктеры: Алан Лэдд, Вероника Лэйк, Дуглас Дик, Уолли Кассел, Лютер Эдлер, Моррис Карновский, Михаил Разумный, Луис Ван Рутен, Юджин Борден, Грифф БарнеттПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (den904), английскиеПродолжительность: 01:33:58
+01. Va de du? [5:24]
+02. De salde sina hemman [6:13]
+03. Den motstravige brudgummen [5:53]
+04. Och hor du unga Dora [5:51](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 00:32:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35E03F5FA71CFBBC7015DEA1F8FFB2F9E128FD41
+magnet:?xt=urn:btih:832169EA9E7B1EC7CE4FDEB0337B9CC324046C2C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750680   (104173) от 21.09.2024
+###  Публикация: 1756269   (103503) от 20.10.2024
 
-Журнал | Народный доктор №18 (664) (сентябрь 2024) [PDF]
+Freddie Hubbard - Ride Like The Wind (1981) 2014, Warner [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz-Funk>
 
->>Журналы
->>Другие журналы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал составлен из писем читателей, в которых они делятся испытанными рецептами здоровья, красоты и долголетия, рассказывают необычные истории исцеления. На страницах издания вы найдете народные и традиционные методы лечения и профилактики различных заболеваний, полезную информацию о лекарственных растениях. В каждом номере — советы высококвалифицированных специалистов (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+01. Hubbard's Cupboard [4:55]
+02. This Is It [4:35]
+03. Condition Alpha [4:53]
+04. Ride Like the Wind [4:55](   Читать дальше...   )Жанр: Post-Bop, Jazz-FunkПродолжительность: 00:37:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88573DCAC468C4A60AF47E3235B8C49A7FA570D9
+magnet:?xt=urn:btih:C2B2D1A32EF98ABF5BA691B9F8461183F025B0BA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750695   (104174) от 21.09.2024
+###  Публикация: 1756051   (103504) от 20.10.2024
 
-VA - EDM Anthems 2024: Top 40 Club Beats For DJs (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+Ray Brown - The Best Of The Concord Years (1973 - 1993) 2CD, 2002, Concord Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
 
->>Electronic
->>House
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103504.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. JLUIS - About U (02:49)
-02. Rene Rodrigezz, Nico Roschnai & Miguel Lemos - Call It Love (02:30)
-03. Stephan F & Ya-Ya - No Broken Heart (03:09)
-04. Deep Emotion - To Love You (03:04)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:49:53
+01. Onion Roll [4:24]
+02. Gumbo Hump [4:08]
+03. High Heel Sneakers [8:00]
+04. Put Your Little Foot Right Out [6:01](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 02:19:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9807CD3A2F59DEC905291D7BCC5C83B3041576B3
+magnet:?xt=urn:btih:A99B5FE2DCD457367FA2DE1E42477248E9BFB80A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750728   (104175) от 21.09.2024
+###  Публикация: 1755848   (103505) от 20.10.2024
 
-VA - Trance Clubbers, Vol. 2 (2024) [MP3|320 Kbps] <Trance>
+Eddie Henderson - Witness To History (2023) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
->>Electronic
->>Trance
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jaron Inc. & Wavetraxx - Summerbreeze (Jaron Inc. Mix) (03:42)
-02. DJ Shog - The 2nd Dimension (UK Radio Edit) (03:49)
-03. Green Court & De/Vision - Shining (Tiesto Mix) (09:22)
-04. Tukan - When You Hear the Silence (Michael Parsberg Remix) (08:35)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:42
+01. Scorpio Rising [7:02]
+02. Why Not? [8:35]
+03. Sweet and Lovely [7:40]
+04. It Never Entered My Mind [8:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A768DCB571D6FB29982A3018CAF2113A435B81EB
+magnet:?xt=urn:btih:576E8204A31209715A5CB9D7EFFD7CC95EB3D3F2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750751   (104176) от 21.09.2024
+###  Публикация: 1756395   (103506) от 20.10.2024
 
-VA - Progressive House Waves, Vol.01 (2024) [MP3|320 Kbps] <House, Progressive House>
+Beltane - Jera (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Electronic
->>House
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103506.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Module2 - No Dialog (Original Mix) [6:29]
-02. Jaimy - Kardamena (Original Mix) [6:31]
-03. Máximo Lasso - Randa (DJ Version) [6:15]
-04. Kazamayé - Yelema (Khush Remix) [5:13](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:29:09
+01. Golden Dawn [04:15]
+02. Aij/A.S. [05:21]
+03. Seasons [07:06]
+04. E.O.S [05:38](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:51:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07216E7FCD2DAAE54FED2614E331CFF30E64EA20
+magnet:?xt=urn:btih:D0B9FA9FC27FAA4AB24A8E1BDB177ADE72B1522D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756257   (103507) от 20.10.2024
+
+Gary Burton - New Vibe Man In Town (1960, 1961) 2012, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy Spring [3:44]
+02. Over the Rainbow [4:25]
+03. Like Someone in Love [3:08]
+04. Minor Blues [5:33](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6A18FCE792D86B4037391E0575F0ED21F2057A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756334   (103508) от 20.10.2024
+
+НХЛ 2024-2025. Вашингтон Кэпиталз - Нью-Джерси Дэвилз (19.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103508.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 октября 2024, воскресенье. 02:00 МСК. Стадион: Пруденшиал-центр (Ньюарк, США), 16 514 зрителей (94% при вместимости 17 625)
+Главный судья: Картер Сандлак (Лондон, Канада); Главный судья: Крис Руни (Бостон, США)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151F1A180957D03281724AB8519D804650BA3B02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756161   (103509) от 19.10.2024
+
+NRBQ - Brass Tacks (2014) 10th Anniversary Edition, 2024, Omnivore Recordings [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waitin' On My Sweetie Pie [00:02:55]
+02. Greetings From Delaware [00:03:31]
+03. Sit In My Lap [00:02:39]
+04. Fightin' Back [00:03:31](   Читать дальше...   )Жанр: RockПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB02E80C4AC3812AC3D2BA33E49BA628AE57EBEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756192   (103510) от 19.10.2024
+
+Smash Atoms - Smash Atoms (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring The River (3:23)
+02. Black Cloud (3:19)
+03. Buried Under The Open Sky (3:41)
+04. Dead Season (4:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1BC0CCA4998E5A2E1E4F3636D0F50E6E64AD7C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756184   (103511) от 19.10.2024
+
+Malakye Grind - Dystopian Dream (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Night (4:04)
+02. Every Day Is Perfect (4:18)
+03. Seaside Cowboy Cult (2:33)
+04. The Not List (2:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7C45189AEC8973DD34B2BFB27D259C4EE0B86B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756176   (103512) от 19.10.2024
+
+Flamy Grant - CHURCH (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It for the Song (4:01)
+02. Revenge (3:39)
+03. How to Find the Words (4:37)
+04. Start Again (M.J.'s Song) (4:05)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B60993AC442ECAA2FB987213DE2EA55F7B2B4F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755678   (103513) от 19.10.2024
+
+Eddie Henderson - Collective Portrait (2015) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunburst [8:21]
+02. Dreams [9:56]
+03. Morning Song [7:40]
+04. You Know I Care [5:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C566C59E7F7B92CBEC29CDCD032E09D37B1AFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756179   (103514) от 19.10.2024
+
+Heather Pierson - Back To The Light (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dusty House Blues (2:59)
+02. Up Here In The Mountains (4:04)
+03. Feel Something (3:06)
+04. Nails Trimmed and Clean (2:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73AE7198EFFFDA05EA3E055AA7B2385833FADC8D
 ```
 
 

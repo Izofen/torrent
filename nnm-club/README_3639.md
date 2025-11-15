@@ -1,675 +1,672 @@
-###  Публикация: 1703571   (114989) от 29.02.2024
+###  Публикация: 1704145   (114306) от 04.03.2024
 
-Brymir - Studio Albums (4 releases) (2011-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Melodic Death/Pagan Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brymir — финская мелодик-дэт-метал/симфоник-метал группа из Хельсинки, основанная в 2006 году.2011 - Breathe Fire to the Sun
-2016 - Slayer Of Gods
-2019 - Wings Of Fire
-2022 - Voices in the SkyЖанр: Symphonic/Melodic Death/Pagan MetalПродолжительность: 03:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28CD34E232C0EB34F4C42508B817BA2C6EAF8130
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703404   (114990) от 29.02.2024
-
-James Harman - Didn't We Have Some Fun Sometime (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pick Up The Slack (4:56)
-02. A Rut And A Groove (5:56)
-03. A Hand Shake (3:03)
-04. Work Don't Come To Me (6:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B519A40A32B088AE6B5A2A2574E8C1EA3B470394
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703485   (114991) от 29.02.2024
-
-Автограф - Каменный край (1989) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01-Город.
-02-О, мой мальчик.
-(Группа "Автограф" - С.Патрушев)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5238997836B32FA01B1BE91F11FF12AFC0456B66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703438   (114992) от 29.02.2024
-
-Станислав Миллер | Черновед (Книга 1). Свежая кровь (2024) [MP3, Андрей Федоренко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давно забытые страхи пробуждаются… Известный рок-музыкант приходит в ужас от вида высоты. Успешная бизнес-леди паникует в присутствии людей. Бывшего бродягу преследуют обезумевшие животные, а студентка факультета психологии спасается бегством от оживших мертвецов.Спасение от смертельных фобий способен принести лишь опытный черновед – представитель тайной и сложной (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 10:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9744F02CB64BE6380EA985E0195B93FA12C125A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703528   (114993) от 29.02.2024
-
-Ли Ода | В пепел (Книга 1) (2024) [MP3, Наталья Романова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114993.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В пепел» – роман, первая книга одноименного цикла, жанр авантюрный детектив, , историческое фэнтези, романтическое фэнтези.
-
-Те, кто грызутся за власть в столице, еще не раз пожалеют, что не учли в своих интригах бывшего сотрудника тайных служб, частного детектива в юбке и мальчишку с очень интересным прошлым. И хотя в тихом провинциальном Прауте редко случается (   Читать дальше...   )Жанр: Детективное фэнтезиИздательство: ИДДКПродолжительность: 09:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A971927307BF65305830A2332FAFC1C10218E851
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703533   (114994) от 29.02.2024
-
-Doro - Conqueress - Extended (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+Max Cruise - Nights at Sunset Beach (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Warlocks And Witches (Intro) (1:35)
-02. Horns Up High (3:41)
-03. True Metal Maniacs (3:37)
-04. Heart in Pain (4:22)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:20:26
+01. Nights at Sunset Beach (4:55)
+02. Risky Business (4:45)
+03. Midnight Glow (4:35)
+04. La Contessa (2:35)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4080E92BD524AC47153BA051723022CF2020229
+magnet:?xt=urn:btih:CD6F44FF5C466A3898B8226920F42D41D20B739A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703160   (114995) от 29.02.2024
+###  Публикация: 1704493   (114307) от 04.03.2024
 
-VA - Uplifting Only Top 15: February 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Fletcher & Ruslan Aschaulov - Valentina (Howlex Intro Remix) [5:27]
-02. Maratone & Saphron & Hardcode - Walk Through Shadows (Jimmy Chou Extended Remix) [6:49]
-03. Marco Torrance & Natasha Jaffe - Fragile (Extended Trance Mix) [7:35]
-04. Revolution 9 - Remember (Extended Mix) [6:22](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B82F81FDEE68023A48B7F621FC5EDECFAE1FC8B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703542   (114996) от 29.02.2024
-
-AC/DC - T.N.T (1975) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Long Way to the Top (If You Wanna Rock 'n' Roll)
-02. Rock 'n' Roll Singer
-03. The Jack
-04. Live Wire(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35446AD24DA6384B1BC64871208B6EA7AAD1B28D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703422   (114997) от 29.02.2024
-
-Steve Shive & the Urban Saints - Hard Bargain (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Time I Knock on Your Front Door (4:29)
-02. Fair Warning (Last Drop of Sympathy) (3:42)
-03. Hard Bargain (3:44)
-04. I'm Coming Home (3:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4C5244D23D00CBE5955D1FA08453BC7BC199A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703590   (114998) от 29.02.2024
-
-AC/DC - Dirty Deeds Done Dirt Cheap (1976) Reissue, 1987, Albert Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Deeds Done Dirt Cheap
-02. Ain't No Fun (Waiting Round to Be a Millionaire)
-03. There's Gonna Be Some Rockin
-04. Problem Child(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B7C58CF7641C37D42FBA92A43F49D18BBE43C26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703588   (114999) от 29.02.2024
-
-PhotoDirector v19.0.0 Mod by Balatan [Ru/Multi]
+WatsGo for Mac 8.4.0 [Multi/Ru]
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhotoDirector - функциональный, но весьма простой в управлении фоторедактор предлагающий пользователям обширный набор инструментов с интуитивной навигацией. Полный контроль над цветовой палитрой с помощью кривых, коррекция баланса белого, указание места фокуса, зоны размытия, использование эффектов и фильтров, устранение дефектов кожи, "вырезание" лишних (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 29.02.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+WatsGo перенос данных между Android и iPhone. Перенос WhatsApp/WhatsApp Business между Android и iOS одним щелчком мыши. Широкий спектр типов данных, включая сообщения WhatsApp, изображения, видео, контакты и т. д. Сделайте резервную копию WhatsApp на Android и iOS на компьютере и полностью освободите место на устройстве.
+Предварительный просмотр и восстановление (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.03.2024Разработчик: © 2024 iToolabПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA71D336251B526194BEBDCF53E2A8D832EDB4A6
+magnet:?xt=urn:btih:E76C4513B64580FA15E0F84D78A7CF501072BE2E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703587   (115000) от 29.02.2024
+###  Публикация: 1704485   (114308) от 04.03.2024
 
-Walter Trout - Broken (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+VA - Fusion Funky Jazz Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Broken (4:50)
-02. Turn And Walk Away (4:33)
-03. Courage In The Dark (5:36)
-04. Will Wilde - Bleed (4:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:41
+01. Lo Greco Bros - Temptation (6:10)
+02. AdrianoMaria - Shake It All (5:33)
+03. Faze Liquide - Diabolique (4:41)
+04. Super Bad - Holy Shit Party (4:55)(   Читать дальше...   )Жанр: Funky JazzПродолжительность: 02:20:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:395BF883B6759FBAD6A865F8DF7D44FE7491BED1
+magnet:?xt=urn:btih:E229A58DAFA69CFFCDF30409BE9A99961E15C592
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703375   (115001) от 29.02.2024
+###  Публикация: 1704078   (114309) от 04.03.2024
 
-Арсений Тарковский | Я свеча, я сгорел на пиру (1982) [FLAC, Арсений Тарковский]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115001.jpg" />
-</div>
-
-
-###  Подробнее
-
-«…Стихи я пишу с детства, — не помню времени, когда и не писал. После Лермонтова, однотомник которого мне подарили, когда мне было шесть лет, вторым моим поэтом стал Григорий Сковорода; его знают как философа, как прекрасного поэта его не знает почти никто».Арсений Александрович Тарковский (1907-1989)Жанр: ПоэзияИздательство: АО "Фирма Мелодия"Продолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D295F16246BD5E00A891472FB94BBC9C081D1322
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703523   (115002) от 29.02.2024
-
-Оноре де Бальзак | Дом кошки, играющей в мяч (2021) [MP3, Иван Забелин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: XIX век. Зарубежная классика.
-Оноре де Бальзак (1799–1850) – французский писатель, один из основоположников реализма в европейской литературе.
-Предлагаемый вашему вниманию короткий роман Оноре де Бальзака написан в 1829 году и является частью «Сцен частной жизни». Художник Теодор де Сомервье влюбляется в Августину Гильом, дочь торговца тканями, чей дом (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 02:24:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B935BE0A44B6B91AFF27BCFB7301B627CDEF3895
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703479   (115003) от 29.02.2024
-
-Последний человек / Der letzte Mann (1924) BDRip [H.264] [DE / RU Sub]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115003.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета престарелый портье высококлассного отеля. В его обязанности входит встречать клиентов, открывать им двери, относить и выгружать багаж. Большой, высокий и крепкий мужчина, он очень гордится своей должностью; красивая, тщательно вычищенная и выглаженная форма с блестящими медными пуговицами внушает его соседям почтение и уважение... Но всё меняется, (   Читать дальше...   )Производство: Германия, Universum Film (UFA)Жанр: драмаРежиссер: Фридрих Вильгельм МурнауАктеры: Эмиль Яннингс, Мали Дельшафт, Макс Хиллер, Эмили Курц, Ханс Унтеркирхер, Олаф Шторм, Херманн Валлентин, Георг ДжонПеревод: нетЯзык озвучки: немецкийСубтитры: русские (imvolk-13), английскиеПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DA47FD6B02378832713E492BA516A12E83CC0E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703525   (115004) от 29.02.2024
-
-Doro - Conqueress - Extended (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warlocks And Witches (Intro) (1:35)
-02. Horns Up High (3:41)
-03. True Metal Maniacs (3:37)
-04. Heart in Pain (4:22)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C2E3B1658A214633FDA49428485E3C12D035B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703482   (115005) от 29.02.2024
-
-Emurasoft EmEditor Professional 24.0.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115005.jpg" />
-</div>
-
-
-###  Подробнее
-
-EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
-Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C1BEFF314657360EB4D84758837F58C75D21D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703399   (115006) от 29.02.2024
-
-Band of Experts - Revisiting the Songs of Jimi Hendrix (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manic Depression (3:48)
-02. Purple Haze (4:29)
-03. The Wind Cries Mary (4:31)
-04. Foxy Lady (4:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:704F170421093F63A694B6B6F2802D2EA4DB391E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703483   (115007) от 29.02.2024
-
-Последний человек / Der letzte Mann (1924) BDRip [H.264/720p] [DE / RU Sub]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115007.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета престарелый портье высококлассного отеля. В его обязанности входит встречать клиентов, открывать им двери, относить и выгружать багаж. Большой, высокий и крепкий мужчина, он очень гордится своей должностью; красивая, тщательно вычищенная и выглаженная форма с блестящими медными пуговицами внушает его соседям почтение и уважение... Но всё меняется, (   Читать дальше...   )Производство: Германия, Universum Film (UFA)Жанр: драмаРежиссер: Фридрих Вильгельм МурнауАктеры: Эмиль Яннингс, Мали Дельшафт, Макс Хиллер, Эмили Курц, Ханс Унтеркирхер, Олаф Шторм, Херманн Валлентин, Георг ДжонПеревод: нетЯзык озвучки: немецкийСубтитры: русские (imvolk-13), английскиеПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45D7EF40CB9DD356B98893AF4EF96CC2D0598AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703535   (115008) от 29.02.2024
-
-Hell Boulevard - Requiem (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Another Lovesong (REQUIEM) (4:53)
-02. She Just Wanna Dance (4:01)
-03. The Monster (3:45)
-04. Guillotine (5:44)(   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575F8519DFB22A897B2BB377677DF5476C92DEAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703420   (115009) от 29.02.2024
-
-Nathan Beretta - Love Taxman (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HAD ENOUGH (3:24)
-02. DONT YOU CRY (3:14)
-03. GET ON THE MOVE (3:40)
-04. DRINKING ALONE (3:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0C5327F48C652478665981D590B027B107530C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703425   (115010) от 29.02.2024
-
-Luca Giordano, Victor Puertas, Netto Rockfeller Trio - Night Time Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. West Armitage Shuffle (3:37)
-02. Night Time Boogie (4:18)
-03. I Dont Know (3:55)
-04. Kidman Blues (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0D1AA17F2C4BBFC85A572C984EEB4EBBB3725C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702517   (115011) от 29.02.2024
-
-VA - The Orient Collective: Mithras (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sylva Drums & Tibetania - Virupaksha Temple (Original Mix) (7:29)
-02. Tadej Jaki & Tibetania - Ksenos (Original Mix) (6:56)
-03. Behind The Green Door & Tibetania - Wizer (Original Mix) (8:00)
-04. Mikhail Catan & Tibetania - Delirium (Diego Galloso & Noam Garcia Remix) (6:38)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7241AF6B86479836959643551AFC677CB17064
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703594   (115012) от 29.02.2024
-
-Above & Beyond - Group Therapy 500 Live from Los Angeles (2024) (Live) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trance, Electronic, Ambient>
+Solitude Aeturnus - Hour of Despair (2024) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Epic Doom Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114309.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Above & Beyond;OceanLab - Satellite (ABGT500) (Above & Beyond's 2023 Progressive Mix) [5:22]
-02. Above & Beyond;Richard Bedford - Thing Called Love (ABGT500) (Above & Beyond Club Mix) [5:34]
-03. Above & Beyond;Richard Bedford - Northern Soul (ABGT500) (ilan Bluestone Remix) [3:43]
-04. Above & Beyond - Group Therapy Intro (ABGT500) [0:35](   Читать дальше...   )Жанр: Trance, Electronic, AmbientПродолжительность: 01:58:46
+01. Scent of Death (HoD Deluxe Edition) [00:09:00]
+02. Haunting The Obscure (HoD Deluxe Edition) [00:04:56]
+03. Mental Pictures (HoD Deluxe Edition) [00:04:31]
+04. Destiny Falls To Ruin (HoD Deluxe Edition) [00:05:21](   Читать дальше...   )Жанр: Epic Doom MetalПродолжительность: 01:05:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08F80C335F6FAA0A0DC8D4D7E19052BDB119C28E
+magnet:?xt=urn:btih:D564A906947089940FFE1C5479A42B744835BB34
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703493   (115013) от 29.02.2024
+###  Публикация: 1704152   (114310) от 04.03.2024
 
-Алексей Любушкин | Сфера Влияния (Книга 3). Лед и Пламя (2024) [MP3, Григорий Андрианов]
+Sarah L King - Fire Horse (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Vocal Music (Secular and Sacred)>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holding On To Love (3:38)
+02. Devil May Care (4:39)
+03. Born Yesterday (4:22)
+04. Mystery Ride (5:34)(   Читать дальше...   )Жанр: Jazz, Vocal Music (Secular and Sacred)Продолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C24C583C51824C8B13AF3B0B11881808EA9E62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704521   (114311) от 04.03.2024
+
+Desktop Stickers 2.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Desktop Stickers поможет вам в выборе вашей самооценки.
+Ваши мысли являются источником ваших эмоций и настроения. Разговоры, которые вы ведете сами с собой, могут быть разрушительными или полезными. Большинству людей необходимо научиться культивировать позитивные мысли и рассеивать негативные. Разговор с самим собой может улучшить вашу производительность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 2024 Marian RaafatПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F0D2A7E1AA3FDCB9E77EA37D9E3C18EC31E64B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704144   (114312) от 04.03.2024
+
+Malted Milk - 1975 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1975 (3:11)
+02. A little bit of soul (3:28)
+03. Love for yourself (4:35)
+04. Better now (3:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E13DA2350351E6480D9743376A922A2D224DB08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704473   (114313) от 04.03.2024
+
+MetaRename for Mac 1.0.10 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114313.jpg" />
+</div>
+
+
+###  Подробнее
+
+MetaRename — это удобный инструмент для фотографов и видеооператоров, которым необходимо регулярно управлять обширными коллекциями файлов. Используя MetaRename, вы можете легко переименовывать и упорядочивать свои фотографии и видео на основе метаданных, таких как модель камеры, дата съемки и местоположение, что упрощает поиск нужных файлов, когда они вам нужны.Тип издания: macOS SoftwareРелиз состоялся: 03.03.2024Разработчик: © 2012-2024 Jérémy VizziniПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B8B37DC4B23C43A159630B9074A56786E72E16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704500   (114314) от 04.03.2024
+
+Syncovery for Mac 10.12.4 ARM/iNTEL [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Syncovery автоматически синхронизирует и делает резервные копии документов, фотографий, музыкальных файлов, электронных писем. Синхронизация производится между любыми носителями, как подключенными непосредственно к компьютеру, так и через локальную сеть и «Интернет».Тип издания: macOS SoftwareРелиз состоялся: 29.02.2024Разработчик: © 2024 Super Flexible Software GmbH & Co.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17590B59BF432048AA2E513663073C4CB89CE00B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704195   (114315) от 04.03.2024
+
+Observers - The Age of the Machine Entities (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <melodic metal, dark ambient, undertone, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Into The Eye
+02 – Frank Poole’s Dream
+03 – Frozen Lattices of Light
+04 – Strange and Beautiful(   Читать дальше...   )Жанр: melodic metal, dark ambient, undertone, InstrumentalПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D705E8433DC15E98844865C5BA8BF20DDDE53833
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704212   (114316) от 04.03.2024
+
+Black Sabbath - Sabbath Bloody Sabbath (1973) 1990 [FLAC 24/192|Lossless|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+01. Sabbath Bloody Sabbath
+02. A National Acrobat
+03. Fluff(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ECF220750FF2BE1B10594E48D10660F18EDFDD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704425   (114317) от 04.03.2024
+
+Эмма Райц | Фенрир (Книга 1). Нарушитель границ (2024) [MP3, Владимир Суменков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты всегда в пяти минутах от смерти. Каждый твой следующий вдох обнуляет этот таймер. Хотя я бы поспорил насчёт количества минут, если приходится всплывать со дна реки в середине октября.Ладно. Меня зовут Андрей Давыдов. И теперь я – главный герой. Если, блин, не сдохну, так и не добравшись к вожделенному воздуху. Пять минут, говорите?Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 10:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:901A31E462661FE357329D0B1C3F6099B72BD981
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704513   (114318) от 04.03.2024
+
+Джин-Тоник - #снебаупасть (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114318.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кто так обзывается
+2. Карусель
+3. С неба упасть
+4. Когда сломается мир(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D38FC996B57B30E7843848619459FBD2B8B1B2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704488   (114319) от 04.03.2024
+
+Редьярд Киплинг | Сновидец (2022) [MP3, Puffin Сafe]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клан Волка нарастил мышцы и закрепился на новых землях. Появились первые союзники и сильные враги, теперь клану придется доказать свое право на жизнь в смертельной борьбе! А Сай должен сделать еще один шаг по лестнице наследия предков...Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 09:41:56
+"Джорджи с малых лет привык, что временами он оказывается в одной и той же Стране Сновидений. Его неизменной спутницей стала девочка, которую он видел однажды в театре, не зная ее имени он назвал ее Аннилуизой. Шли годы, Джорджи получил высшую воинскую награду за службу в Индии. Все эти годы он знал, что если сон начинается со стопки хвороста у морского берега, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 01:15:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90EA846F6898A0916869C258B83B3D164E235BB0
+magnet:?xt=urn:btih:6604F00D20EDDD8149A2A1F00C260324F1B419C8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703578   (115014) от 29.02.2024
+###  Публикация: 1704168   (114320) от 04.03.2024
 
-YT Downloader 9.6.11 RePack (& Portable) by Dodakaedr [Ru/En]
+Caravan Palace - Gangbusters Melody Club (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <swing>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+1. MAD (2:47)
+2. Mirrors (3:41)
+3. 81 Specials (3:56)
+4. Raccoons (3:27)(   Читать дальше...   )Жанр: swingПродолжительность: 00:43:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E1FEEA57694AEC103F9ED849009CA683B47EFB4
+magnet:?xt=urn:btih:AF885EBB7B33FC835D384B3D321703A979D5E5AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704405   (114321) от 04.03.2024
+
+Screen Studio for Mac ARM/iNTEL 2.20.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые записи экрана за считанные минуты. Промо-видео вашего цифрового продукта так же просто, как сделать снимок экрана. Видео высокого качества — навыки редактирования не требуются.
+Все, что вам нужно было делать в программном обеспечении для видео, Screen Studio делает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 23.02.2024Разработчик: © 2024 Adam PietrasiakПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59DB1D2FB387C2B3F146EE43C94CC739920C9C30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704154   (114322) от 04.03.2024
+
+Smokin Dame - Revelations From A Gun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dope 'n Roll (4:21)
+02. Day Of The Living Dead (4:07)
+03. Electric Fire (2:48)
+04. Brain Dead (5:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE39BFEC5906347A05429D79ED854A81E21AA71D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704346   (114323) от 04.03.2024
+
+Чингиз Абдуллаев | Альтернатива (Книга 1). Альтернатива для грешников (2024) [MP3, Pogorelov FM]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ночная операция по задержанию банды преступников. Опасно, но не опаснее любой операции группы особого назначения. Уж такова работа многоопытного полковника и его людей. Однако одна-единственная случайная находка внезапно наводит полковника на след запутанного, необычного преступления. Преступления, раскрыть тайну которого практически невозможно…Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 09:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8F623D6D68EB0DDD17057E93AFB3E4ADC6041C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704495   (114324) от 04.03.2024
+
+VA - Ultimate Chill Lounge Relaxing Soothing Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Happiness (4:18)
+02. Chillaxonic - Iridescent (5:10)
+03. Kool&Klean - My World (5:25)
+04. Chillaxing Jazz Kollektion - Summer Wind (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C347856CC2F91D62409C626BF1BB853CC5528140
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704358   (114325) от 04.03.2024
+
+TunesKit AceMovi Video Editor 4.9.23 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114325.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesKit AceMovi Video Editor может отличаться от множества подобных приложений для редактирования видео на рынке, главным образом, благодаря простому и интуитивно понятному интерфейсу, а также множеству мощных функций. С помощью этого программного обеспечения вы можете легко создавать высококачественные видео на Mac, независимо от того, являетесь ли вы профессионалом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.02.2024Разработчик: © 2024 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE3931C68FCE7224C7D40727A02E3AB5C07A368
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704200   (114326) от 04.03.2024
+
+Absolon - The Blood Seed (2024) [MP3|320kbps] <Power Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destroyer [00:05:09]
+02. Darkness Calls [00:04:27]
+03. My Shadow [00:04:27]
+04. Anger Unconfined [00:04:13](   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81B8BB55F5371F06505E97F2F99F489DF018C78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704502   (114327) от 04.03.2024
+
+VA - Rock Delights (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fall Out Boy - We Didn’t Start the Fire (3:36)
+02. Against The Current - jump (2:40)
+03. Disturbed - Who (4:47)
+04. illenium - Eyes Wide Shut (2:32)(   Читать дальше...   )Жанр: RockПродолжительность: 02:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CC014BAFCADEE8AE2F68767EA34118DED8190E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704498   (114328) от 04.03.2024
+
+VA - 2020s Rock Attitude (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Linkin Park - Fighting Myself (3:21)
+02. Paramore - Running Out of Time (3:12)
+03. Green Day - Bobby Sox (3:44)
+04. THE GOO GOO DOLLS - Who's Gonna Hear Their Wish? (2:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7875111D67BCDDDA8EE3CD1C47993D822A313A1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704139   (114329) от 04.03.2024
+
+Dixie Jazz Proyecto Divertido, Jazz Instrumental Music Academy - Dixie Swingtime: Timeless Instrumental Collection of Dixieland Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birth Of The Dixieland Music (3:34)
+02. Happy Serenity (3:12)
+03. Break with Jazz (3:29)
+04. Timeless Vintage Coffee (3:35)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FB11EFCA4798DCB97043CD4DBF2572C8D921C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704514   (114330) от 04.03.2024
+
+Data Extractor 1.9.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Data Extractor позволяет извлекать данные, содержащиеся в текстовых документах, и собирать их во внутренней организованной таблице с полями и записями.
+Он может анализировать все указанные вами текстовые файлы. Проанализировав их, понять по текстовым тегам, что извлечь и куда это поместить. Data Extractor преобразует хаотические данные в один организованный элемент (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.03.2024Разработчик: © 2024 Roberto PanettaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CC152ACD137465788AB3AFA87B4A27E2D01474
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704365   (114331) от 04.03.2024
+
+Reader for Mac 5.8 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reader — это быстрая и минималистичная программа просмотра PDF с мощными элементами управления.
+Это полная версия Reader, которая включает в себя базовые аннотации, включая выделение и написание желтых заметок.Тип издания: macOS SoftwareРелиз состоялся: 26.02.2024Разработчик: © 2024 The Augmented Text Company LTDПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B9A6C313E8B0CC8D0740E702FB645F9B8F5433
 ```
 
 

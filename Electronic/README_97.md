@@ -1,3 +1,57 @@
+###  Публикация: 969975   (145688) от 28.12.2015
+
+VA - Chillout 2016 Best of 30 Top Hits (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illuminus - The Purrts Of Navarone [06:55]
+02. Lemonchill - I Missed a Heart Beat - Deep in Mind Remix [06:09]
+03. Argus - Elenya [07:13]
+04. Flux Natura - Reconnect to Our True Elves [12:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E7D7EAD97457965022049D389B0A5EB68872E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272058   (145693) от 26.12.2018
+
+VA - Space Odyssey: New Year's Voyage 2019 (2018) 2CD [MP3|320 Kbps] <Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserlight - Intro (1:26)
+02. AlimkhanOV A. - Cold Winter (4:40)
+03. Spacehawk - From The Shadows (4:02)
+04. NeoSpace - Hibernation (6:16)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 02:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB97F0E58CBFDB88D9914620AF48805BCC53B866
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969448   (145694) от 28.12.2015
 
 VA - Chilled Christmas (Finest Chill Out & Ambient Christmas Tunes) (2015) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
@@ -647,60 +701,6 @@ VA - Cosy Winter Lounge, Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3F66AA1B18BAA113C580D85B795B9EC98A820FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087255   (146987) от 27.12.2016
-
-VA - Sensual Lounge Stage Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrico Donner - Xonado por Voce 05:54
-02. Don Gorda Project - Feeling Free 05:43
-03. Cane Garden Quartet - Love Goddess 05:24
-04. Baghira - Put Your Arms 06:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0820B5ED03AB7969C7783E12777ADC73512E2DB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087212   (147006) от 27.12.2016
-
-VA - Winterbreath Vol.3 (Chilled Lounge Tunes For The Winter Season) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weathertunes - Destiny - Lemongrass Rmx (03:27)
-02. Jens Buchert - Aztec (04:47)
-03. Lazy Hammock - Nothing Is Stopping Me (04:34)
-04. Big Al - Miracle (04:46)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84534B4F2A7B8654254348015D0BB0BC23AB0F1C
 ```
 
 

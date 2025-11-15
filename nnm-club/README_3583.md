@@ -1,667 +1,677 @@
-###  Публикация: 1706622   (113533) от 13.03.2024
+###  Публикация: 1709416   (112850) от 24.03.2024
 
-PullTube 1.8.5.28 [Multi/Ru]
+Privacy Eraser Free 6.5 Build 4875 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112850.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 12.03.2024Разработчик: © 2024 MyMixAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BF0940BF5ED744A8456C584F4B23D00D0352B27
+magnet:?xt=urn:btih:60C14F2E2E5552EE871DBD9B052CF9833C85EFFC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706560   (113534) от 13.03.2024
+###  Публикация: 1709318   (112851) от 24.03.2024
 
-The Red Holloway / Clark Terry Sextet - Locksmith Blues (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+Therion - Leviathan III (Producers Edition) (2023) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112851.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Red Top [4:32]
-02. Happiness Is a Thing Called Joe [4:49]
-03. Hitting the Road Again [7:24]
-04. Come Sunday [4:30](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:51:42
+01. Ninkigal
+02. Ruler Of Tamag
+03. An Unsung Lament
+04. Maleficium(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:03:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DBC83AC408E078B60ABFFB6C7E2EC495C34E7940
+magnet:?xt=urn:btih:65B0A3DD062C0156E8E3355ADB494BC66E2D5D86
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706485   (113535) от 13.03.2024
+###  Публикация: 1709141   (112852) от 23.03.2024
 
-Sonny Stitt - Plays Jimmy Giuffre Arrangements (1959) 2010, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New York Blues [3:58]
-02. Giuff [2:59]
-03. Laura [4:51]
-04. Sonny Boy [3:59](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7562228F1C3B455ABC22C4DCE7A13C4FAEAA36C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706679   (113536) от 13.03.2024
-
-M.O.D - U.S.A. for M.O.D (1987) [WavPack|32/96|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover>
+Almanac (Victor Smolski) - Studio Albums (6 releases) (2000-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal, Heavy Metal, Progressive Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112852.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Aren't You Hungry
-A2 Get A Real Job
-A3 I Executioner
-A4 Don't Feed The Bears(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:40:40
+Almanac — неоклассическая метал-группа из Германии, основанная в 2015 году гитаристом, продюсером и композитором белорусского происхождения Виктором Смольским.2016 - Tsar
+2017 - Kingslayer
+2020 - Rush Of Death
+& Victor Smolski solo albumsЖанр: Power/Heavy/Progressive MetalПродолжительность: 05:06:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E30EE1E98ADF72E3B6A7E779F085AA30AC48D3C3
+magnet:?xt=urn:btih:9549FC32DFE49AE358E1C6E05C1C2D68031BB00C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706497   (113537) от 13.03.2024
+###  Публикация: 1709162   (112853) от 23.03.2024
 
-Darkthrone - A Blaze in the Northern Sky (1992) Reissue, 2009, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
+Сто к одному (23.03.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112853.jpg" />
+</div>
+
+
+###  Подробнее
+
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Стоп! Снято!" против команды "Новые клоуны"Язык озвучки: РусскийПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94821FA8F2541846668078D3CE7EF4C1339EE180
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709094   (112854) от 23.03.2024
+
+Пятеро на одного (23.03.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083E8DE82E52B373CFC7EE9497DF7CC245B63BE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709109   (112855) от 23.03.2024
+
+Bruce Dickinson - Tyranny of Souls (2005) Reissue, 2017, BMG [FLAC|24/192|tracks|Vinyl-Rip] <Rock, Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112855.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Kathaarian Life Code
-A2 In The Shadow Of The Horns
-A3 Paragon Belial
-B1 Where Cold Winds Blow(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:41:37
+01. Mars Within (Intro)
+02. Abduction
+03. Soul Intruders
+04. Kill Devil Hill(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:43:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:680077D83BA132D0C3704C8609291041C7621546
+magnet:?xt=urn:btih:D096B08FC05D3CBF574BEBF6C6693AA225CEAF88
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706474   (113538) от 13.03.2024
+###  Публикация: 1709056   (112856) от 23.03.2024
 
-Конрад Лоренц | Человек находит друга (2022) [MP3, Константин Корольков]
+Sonny Clark - The Complete Blue Note Sessions (1957 - 1962) 6СD, 2023, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
 
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Увлекательные рассказы о диалогах людей и братьев наших меньших
-Кошка и собака. Единственные представители животного мира, которые стали настоящими друзьями человека.
-Нет на свете зверя, который подчинил бы всю свою жизнь человеку так, как это сделала собака, и нет зверя, который бы умудрился подчинить себе человека так, как это сделала кошка.
-Бескорыстный, беспредельно (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 05:11:20
+01. Somethin' Special [6:24]
+02. Deep in a Dream [6:47]
+03. Melody for C [7:49]
+04. Eric Walks [5:43](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 06:38:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88C54D85C73C331C60B7BEA36C78556AFD1C28AC
+magnet:?xt=urn:btih:7C22941C53A70B0008D5B4EAD740359C76EA1615
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706545   (113539) от 13.03.2024
+###  Публикация: 1708930   (112857) от 23.03.2024
 
-Журнал | Народный доктор №5 (651) (март 2024) [PDF]
+VA - Just Jazz! & The Complete Triple Play Stereo Sessions (1962) 2009, Jazz Beat [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moten Swing [4:16]
+02. Out of Nowhere [4:05]
+03. Groovin' High [3:15]
+04. Autumn Leaves [4:37](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B25C6E996911C22F30F00BCA4127DE8C5D5000
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709033   (112858) от 23.03.2024
+
+Aktarum - Trollvengers (2022) 2024 Reissue, Troll Studios  [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Folk Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Tale of Trolls [1:41]
+02 - The Blood of Trolls [4:22]
+03 - In the Name of Trolls [4:17]
+04 - TrollVengers [5:23](   Читать дальше...   )Жанр: Black Metal, Folk Metal, MetalПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6DA11C1A9EACBAC8B1906C80D65CE080802C34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709016   (112859) от 23.03.2024
+
+Aktarum - Ragnatroll (2018) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Folk Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Troll Feast [4:21]
+02 - Trolls in the Fog [4:47]
+03 - Council of Trolls [4:28]
+04 - Troll Bard [4:48](   Читать дальше...   )Жанр: Black Metal, Folk Metal, MetalПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82000C7BCA0A4BBEC86BDAAA227B75E517886131
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709183   (112860) от 23.03.2024
+
+Dordeduh - Dar de duh (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112860.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Jind De Tronuri
+A2 Flăcărarii
+B1 E-an-na
+B2 Calea Roților De Foc(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626709864ED2E064B0F7A13053F129C6FDBDDD1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708926   (112861) от 23.03.2024
+
+Sidney Bechet - Hold Tight (1938 - 1946) 1989, Jazz & Jazz [FLAC|Lossless|image + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He May Be Your Man [2:48]
+02. Jack, I'm Mellow [2:47]
+03. My Unusal Man [2:49]
+04. Uncle Joe [2:37](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA547C10AD63F993F7E9DEDEC79EAB627C8A2D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708837   (112862) от 23.03.2024
+
+Aktarum - Game of Trolls (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Folk Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Opening Game [1:11]
+02 - Game of Trolls [4:12]
+03 - Light up the Torches [4:51]
+04 - Troll Forever [5:54](   Читать дальше...   )Жанр: Black Metal, Folk Metal, MetalПродолжительность: 00:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608992ECB61E606A86C57483F67729D6D52F3A00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709186   (112863) от 23.03.2024
+
+Dordeduh - Har (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112863.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Timpul Întâilor
+A2 În Vieliștea Uitării
+B1 Descânt
+B2 Calea Magilor(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FEDA8EAC7E3492346DE230196B56C9576FABCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709025   (112864) от 23.03.2024
+
+Menhir - Buchonia (1998) EP Reissue, 2004, Perverted Taste [FLAC|Lossless|image + .cue] <Pagan Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonnenwende
+02. Germanenkunst
+03. Buchonia
+04. FalkenburgsteinЖанр: Pagan Black MetalПродолжительность: 00:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DC3A6B58A88C25D9B9EA2686509D6A34D1A2D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709019   (112865) от 23.03.2024
+
+Menhir - Die ewigen Steine (1997) Reissue, 2003, Perverted Taste [FLAC|Lossless|image + .cue] <Pagan Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Menhir
+02. Winter
+03. Die Auserwählten
+04. Warrior Of The North(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE289EC30BDD87699AF61729382D15E57023C424
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709127   (112866) от 23.03.2024
+
+Menhir - Ziuwari (2001) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wotans Runenlied
+02. Die Letzte Schlacht
+03. Herminafrieds Klage
+04. Das Verborgene Reich(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C3D9CE6EA202C54BBA2926342E90CB33681463
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709124   (112867) от 23.03.2024
+
+Menhir - Thuringia (1999) Reissue, 2003, Perverted Taste [FLAC|Lossless|image + .cue] <Pagan Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Die Kelten
+03. Schwertes Bruder
+04. Thuringia(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1A686D15A5E2B41E430FF06FB089DA9133D644
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709104   (112868) от 23.03.2024
+
+Журнал | SALON-interior №04 (302) (2024) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторитетный российский журнал по архитектуре и дизайну представляет на своих страницах все новое, уникальное, эксклюзивное, что создается в стране и мире, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна. События, мировые выставки, обзоры аксессуаров, исторические здания, интервью с мировыми звездами, ландшафтные и флористические (   Читать дальше...   )Жанр: Архитектура, дизайн, строительствоИздательство: АО "Бренд Комьюнити Медиа"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51093ED1BA78517C38D2B63ADA10C4036B53579C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709167   (112869) от 23.03.2024
+
+Лето сокола / Der Sommer des Falken / The Summer of the Hawk (1988) DVDRip [АVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рик приезжает на лето из Берлина к дедушке в горы и собирается учиться запускать воздушных змеев. Замкнутый городской мальчик знакомится с деревенской девочкой Мари, ребята становятся друзьями, и начинаются неожиданные приключения. Жадный и бессовестный Женри покушается на гнездо сокола, которого Мари считает своим другом. Рик и Мари решаются любой ценой помешать (   Читать дальше...   )Производство: Германия (ФРГ) / Atlas Film, Topas Film, Westdeutscher Rundfunk (WDR)Жанр: приключенияРежиссер: Аренд АгтеАктеры: Riad Al-Sammarraie, Фолькер Брандт, Janos Crecelius, Mirko Festini, Альфред Грубер, Christian Hannoschöck, Рудольф Хисель, Хайди Йошко, Хайнц Каммер, Hamdy KhalefПеревод: Авторский (Юрий Муравский)Язык озвучки: Русский, НемецкийСубтитры: ОтсутствуютПродолжительность: 01:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C792486A34E23CA008628F7E7CC55FC0521956
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709181   (112870) от 23.03.2024
+
+Журнал | Лечащий Врач (том 27) №3 (2024) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал составлен из писем читателей, в которых они делятся испытанными рецептами здоровья, красоты и долголетия, рассказывают необычные истории исцеления. На страницах издания вы найдете народные и традиционные методы лечения и профилактики различных заболеваний, полезную информацию о лекарственных растениях. В каждом номере — советы высококвалифицированных специалистов (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+Журнал «Лечащий Врач» - профессиональное медицинское издание. Новости медицинского и фармацевтического рынков, научно-практические статьи для врачей общей практике, терапевтов, педиатров, узких специалистов. Постоянные рубрики, адресованные руководителям медучреждений, преподавателям, студентам медвузов.Жанр: Медицинский научно-практический журналИздательство: ООО "Издательство "Открытые системы"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:359764665A9CAADCCCEF2084961D3E40E7AEC006
+magnet:?xt=urn:btih:9935D9B04113F78704BB520452402BC920C4C7BB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706592   (113540) от 13.03.2024
+###  Публикация: 1709170   (112871) от 23.03.2024
 
-Ben Hemming - Darkness Before Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+VA - Trance Fusion Vol. 01 (2024) [MP3|320 Kbps] <Trance>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The End (3:59)
-02. Baptise Me (3:23)
-03. Lonesome Road (3:16)
-04. Holy For A Day (3:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:00
+01. Seraphin - Across The Odyssey (Original Mix) [3:20]
+02. Cadeya - Take Me Here (Extended Mix) [5:51]
+03. 3rdWave - Utara (Extended Mix) [6:23]
+04. Andre Wildenhues - Seven Days One week (Extended Mix) [5:32](   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90FB3741AD7829475D65C42B169A316D4EB374CA
+magnet:?xt=urn:btih:0651E2DE6ADA3924CDA767D5E81274C1330E6B10
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706594   (113541) от 13.03.2024
+###  Публикация: 1709079   (112872) от 23.03.2024
 
-Cosmic Promise - Navigator (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Navigator (4:07)
-02. C'est La Vie, My Darling (3:16)
-03. Then There Were You (2:50)
-04. Roots (3:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3554E8C34C8D62A46FB6C34360519062ABAA9397
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706509   (113542) от 13.03.2024
-
-Елена Счастная | Воин забвения (Книга 2). След бури (2024) [MP3, Ольга Андреянова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть трилогии. Через снегопады и суровые зимние бури княжеское войско отправляется в поход. С надеждой на победу, с желанием избавить народ от напасти под названием вельды. Млада, связанная с князем и вельдским мальчиком колдовством неизвестной силы, следует за дружиной, чтобы потребовать с жреца Зорена ответы о прошлом и настоящем. По её следам идёт посланный (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 13:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642E7838C62A1207583D507CAB1D0B86DBFDC495
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706541   (113543) от 13.03.2024
-
-Skeewiff - Something Like That (2024) [FLAC|Lossless|WEB-DL|tracks] <Big Beat, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misirlou
-02. Exclusive Blend
-03. These Boots Are Made for Walking
-04. Soul Bossanova(   Читать дальше...   )Жанр: Big Beat, FunkПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA4105213A68D53F9BBEBAFE22FDCFAF1073DDCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706603   (113544) от 13.03.2024
-
-Nine Below Zero - Denmark (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Story Of Nathan John (3:40)
-02. What's Going On (3:48)
-03. You Made Your Bed (So You Better Lie In It) (2:12)
-04. Ice Cream Man (3:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1AE68AF3A4F861F41D2D749BCE935A4A1BD31C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706610   (113545) от 13.03.2024
-
-Ty Clayton - An Animist Hymnal (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invocation (2:54)
-02. No Man's Land (4:28)
-03. Love-Drunk (3:06)
-04. Gunslinger (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A791EA7C066D2441251C3EA59BAA71C6E060A22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706661   (113546) от 13.03.2024
-
-Allavsoft Video Downloader Converter 3.26.2.8837  [Multi/Ru]
+KineMaster - Video Editor & Maker v7.4.4.32358.GP Mod by youarefinished [Ru/Multi]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 13.03.2024Разработчик: © 2024 AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
+Скачайте KineMaster и испытайте лучшие возможности редактирования видео! Это легко благодаря мощным инструментам редактирования, эксклюзивным функциям и библиотеке ресурсов, которые можно использовать, чтобы оживить свои видео!Тип издания: PremiumРелиз состоялся: 20.03.2024Разработчик: KineMaster, Video Editor Experts GroupПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCCF4DFAA60A14BE2D392FC886A6EB1FD5D69915
+magnet:?xt=urn:btih:596C957BB4E8B4D7DC7D393024926E2D2CF1B7BA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706708   (113547) от 13.03.2024
+###  Публикация: 1709097   (112873) от 23.03.2024
 
-NCH ClickCharts Diagram Pro 9.15 [En]
+Маша Распутина - Городская сумасшедшая (1991) [FLAC 24/192|Lossless|tracks] <Pop>
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112873.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Легко создавайте блок-схемы и диаграммы с помощью этого программного обеспечения для Mac. Быстро создавайте четкие визуальные эффекты организации, процесса, интеллект-карты, UML-диаграммы и т. д. Найдите узкие места в процессе и способы оптимизации производительности. Начните процесс с опций шаблона или начните заново, выбрав формы, символы, стили соединительных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.03.2024Разработчик: © 2024 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+Сторона 1:
+01. Гималаи (А. Лукьянов)
+02. Клава (М. Дунаевский)
+03. Я тоже жить хочу (И. Кружалин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EA2E79F183F64408E07CF30527ED956BDA96E32
+magnet:?xt=urn:btih:B7462D3649E060AE80A92746330BB9E9DBDEC4A4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706446   (113548) от 13.03.2024
+###  Публикация: 1709074   (112874) от 23.03.2024
 
-Navicat for SQLite on Mac 16.3.7 [Multi/Ru]
+Александра Ромашова | Лунный город (Подкаст) Часть 1 (2012) [MP3, Александра Ромашова]
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клиент Navicat для SQLite от PremiumSoft — это интегрированный инструмент с графическим пользовательским интерфейсом, позволяющий упростить администрирование SQLite и разработку баз данных. Расширенные функции позволяют создавать модели баз данных, импортировать/экспортировать данные, выполнять резервное копирование, передавать базы данных, создавать запросы и управлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+"Жанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 80:41:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5A77EF7A488DFE5774F00B8B1C85E616CBF0AC3
+magnet:?xt=urn:btih:D41D9456012A791C707C1A7DDF6843A0D5A19C70
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706587   (113549) от 13.03.2024
+###  Публикация: 1709088   (112875) от 23.03.2024
 
-Arms Grace - Summit (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+KineMaster - Video Editor & Maker v7.4.4.32358.GP Mod by AppKaMods [Ru/Multi]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Have You Ever Wondered (4:21)
-02. If I Said (3:53)
-03. Oh Yay, The Blues Has Got Me (3:52)
-04. Don't Give up on Love (5:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:57
+Скачайте KineMaster и испытайте лучшие возможности редактирования видео! Это легко благодаря мощным инструментам редактирования, эксклюзивным функциям и библиотеке ресурсов, которые можно использовать, чтобы оживить свои видео!Тип издания: PremiumРелиз состоялся: 20.03.2024Разработчик: KineMaster, Video Editor Experts GroupПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D4FED416DEA2532E3A6808B1B61637A73E52061
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706644   (113550) от 13.03.2024
-
-Ink2Go 1.9.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ink2Go - интересное приложение, которое позволяет создавать аннотации и выделять текст различными способами на любом приложении, работающем в данный момент времени: Web-страницы, окна других приложений, документы и даже на видео.
-Все ваши действия вы можете сохранить в виде графического файла или сохранить весь сеанс работы как видео, для совместного просмотра с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2024Разработчик: © 2011-2018 EyePower Games Private Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE99E8C862B803AED108A96A8F525B9DA4F2AC64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706607   (113551) от 13.03.2024
-
-Samuel Bowen - Closer to the Sky (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love & Mercy (2:15)
-02. Hey Hey (3:56)
-03. Sick of it all (4:42)
-04. Friend of Sinners (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9367FCF5063846065E9ED66A613C5BA46FFFEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706449   (113552) от 13.03.2024
-
-iBarcoder 3.14.7 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cristallight iBarcoder - профессиональный генератор штрих-кодов Mac для создания любого количества отдельных или последовательных штрих-кодов, и их печати в виде красочных этикеток со штрих-кодом в собственном стиле, любого размера или формы или их экспорта в виде файлов графических изображений в обычном векторном и растровом изображении.Тип издания: macOS SoftwareРелиз состоялся: 12.03.2024Разработчик: © 2022 Cristallight SoftwareПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F319A922D5A04F6D8AC4E0ADD252716FA69FACED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706588   (113553) от 13.03.2024
-
-Вильгельм Гауф | Калиф-аист. Сборник сказок (2008) [MP3, Александр Климашевский]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская литература (аудиокнига).
-Эти сказочные истории о невероятных, а порой и опасных приключениях, колдовстве и чудесном освобождении от злых чар знакомы с детства. Одна история сменяет другую. Взяв маленького слушателя за руку, Гауф ведет его за собой: в Каир, в Багдад, в Александрию, все вперед и вперед, туда, где слушатель еще не был. В страну, (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Равновесие, Говорящая книгаПродолжительность: 05:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228A4DAF645D842BCEAE90102705D3EE2F81C3BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706582   (113554) от 13.03.2024
-
-Al Rodriguez - Nowhere station (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nowhere station (4:06)
-02. A Boom in my head (3:05)
-03. Bottle of wine (3:32)
-04. Song for you (4:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42B2A6918525D5CD89318BFD60A2EDA4107394A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706631   (113555) от 13.03.2024
-
-Deckset 2.0.28 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поистине если человеку лень что-либо делать, он готов сделать все что угодно, чтобы не делать то, что ему не хочется делать. Яркий пример — программа Deckset, которая позволяет создавать симпатичные презентации… на основе простого текста.
-Если вы знакомы с языком разметки Markdown, то суть работы в Deckset вам будет понятна. То есть вы просто составляете текстовое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2024Разработчик: Unsigned Integer UGПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246B58F874810782B6A5300B48470F4C71AC339A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706486   (113556) от 13.03.2024
-
-Stephane Grappelli - Stephane Grappelli with Strings (1961,1970) 2CD. 2020, Label Ouest [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gerba [2:52]
-02. Opportunity [2:20]
-03. Emotion [2:54]
-04. Hesitation [2:33](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7D58401E3828EDDF3554FB4B1AF129234DAE2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706677   (113557) от 13.03.2024
-
-4K YouTube to MP3 Pro for Mac 5.1.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113557.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 26.01.2024Разработчик: © 2023 Open Media OOO.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B18515AA1D828C6B5365C48652A00F66C035BD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706694   (113558) от 13.03.2024
-
-4K Video Downloader + 1.5.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.03.2024Разработчик: © 2023 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399048BA8C5E3B2F44014616D7BA1FA004AD0C2D
+magnet:?xt=urn:btih:C251C3D42CD9C412604E5A4267707463DBCB2CCB
 ```
 
 

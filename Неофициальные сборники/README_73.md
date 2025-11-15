@@ -1,3 +1,30 @@
+###  Публикация: 970758   (137651) от 31.12.2015
+
+VA - Black and White (Compiled by Lazyra) (2015) [MP3|320 кб/с] <Trance , Uplifting Trance , TechLifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Bowdidge - Final Rising (Original Mix) (6:58)
+02. James Kelly - 400 (Extrema 400 Official Anthem) (5:49)
+03. John O'Callaghan - Meridian Bay (Original Mix) (6:52)
+04. WeAreAliens - Star Driver (Original Mix) (6:49)(   Читать дальше...   )Жанр: Trance , Uplifting Trance , Techlifting TranceПродолжительность: 01:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19F49AEA338D3396A83EEAE9F39DAA019BEE75C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521054   (137674) от 31.12.2021
 
 Chris Bell - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
@@ -665,33 +692,6 @@ VA - Singles Chart Hot 100 Billboard (07 January 2017) (2016) [MP3|320 Kbps] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF685DDFFD91B84286322229624EC16752228C3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520901   (138680) от 30.12.2021
-
-VA - Радио Шансон. Лучшее (2021) MP3 от DON Music [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138680.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Пискун - Падал белый снег
-002. Воровайки - Тикают часы
-003. Григорий Лепс - Lucky Man
-004. Яна Павлова - Предновогодняя(   Читать дальше...   )Жанр: ШансонПродолжительность: 15:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1994E11CD968026190BF626606244F755DAC4ED9
 ```
 
 

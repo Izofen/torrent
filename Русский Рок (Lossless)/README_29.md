@@ -1,3 +1,109 @@
+###  Публикация: 1664098   (186276) от 24.09.2023
+
+Nitrogenium - Игра Теней (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Она — это тьма [00:03:27]
+02. Во льдах [00:00:54]
+03. Холодно [00:03:12]
+04. Не знаю [00:02:39](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C9ED585D25184BBCF32F000297B4C19C75B4EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664106   (186286) от 24.09.2023
+
+6ES - Поворот в никуда (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ил [00:08:06]
+02. Прометей [00:06:00]
+03. На проводе [00:02:59]
+04. Утерян [00:06:45](   Читать дальше...   )Жанр: Sludge Metal / Stoner / Doom MetalПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B34FA5368F4F75C30294FB85C5F853B8AA68C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663111   (186589) от 22.09.2023
+
+Тролль Гнёт Ель - Хмель его хранил (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Без благословения [00:04:08]
+02. Хмель его хранил [00:03:27]
+03. Бодун-колдун [00:03:42]
+04. Пивоварня Ульва [00:03:32](   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:913C10A1D13F859E5BFE173E39C9F3C89F18D9EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591834   (186612) от 20.11.2022
+
+Thy Grave - 3 Release (2013-2022) [FLAC|Lossless|WEB-DL|tracks] <Doom metal, Sludge>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yoshio Sudo (The Plague Bearer) [00:04:45]
+02. My Body Is a Coffin [00:04:29]Жанр: Doom metal, SludgeПродолжительность: 3 CD, 01:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CAFDF866F0CDA0A5FB6C0596565BD74C3ECEEE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591490   (186764) от 19.11.2022
 
 Кино - Это не любовь (2022) 3xCD [FLAC|Lossless|image + .cue] <Rock>
@@ -584,114 +690,6 @@ magnet:?xt=urn:btih:06DDA08AD954A6C55BAE202BA9C551255FF27FFB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DBD999358700E1725F694511EC277B025F207F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658837   (190609) от 10.09.2023
-
-Thunder Volt - 4 Releases (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Bear's Rythm) [00:02:30]
-02. To Let This Go [00:04:40]
-03. Don't Need Your Love [00:05:07]
-04. Keep Complain [00:03:38](   Читать дальше...   )Жанр: Grunge, Stoner, Doom MetalПродолжительность: 01:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33B31E661FA93A404F3B12929A7A2F33833094A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658901   (190650) от 10.09.2023
-
-Якорь - Дорога к счастью (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дорога к счастью [00:04:57]
-02. Ой тяжел ремень, бляха чёрная... [00:04:48]
-03. Последняя агония [00:03:49]
-04. Не здесь и не сейчас [00:04:20](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A06DF4715F26EAA5C1BFD4802569A1BE7438F4BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658552   (190974) от 09.09.2023
-
-The Starkillers - Пираты Японского Моря (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Метал командос [00:03:34]
-02. Кайдзю Кай [00:03:32]
-03. Что за уроды на сцене? [00:03:57]
-04. Сумасшедшие года [00:02:56](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600791D5A01D866975604A0B8E3BC5969367F316
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658556   (190982) от 09.09.2023
-
-Ravanna - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Уходя уходи [00:03:31]
-02. Всё ок [00:03:11]
-03. Лес [00:03:52]
-04. Отпусти меня [00:03:01](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D844A8714331DF99123B99F2E23E7ED7F227ADD
 ```
 
 

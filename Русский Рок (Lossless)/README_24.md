@@ -1,3 +1,111 @@
+###  Публикация: 1597788   (165203) от 16.12.2022
+
+виа ЭПИНЕФРИН - Хлам (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Валдай [00:02:59]
+02. Просто [00:03:08]
+03. Трамвай [00:04:22]
+04. Эшафот [00:03:36](   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3495ECDEC289078A3BF2D49CB13613A7854D2931
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516601   (165337) от 12.12.2021
+
+Старый Приятель - Время (2021) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Качай и веселись
+02. Рыжий лис
+03. Смелее
+04. Любовь(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF60428F6F1924395967DC9DC2FBDFD35690E41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673524   (165361) от 01.11.2023
+
+Леонид Фёдоров & Игорь Крутоголов - Ашера (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165361.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Баал
+2. Дагон
+3. Шамшу
+4. Муту(   Читать дальше...   )Жанр: Rock, AvantgardeПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A8EE5BA57DB93BCC85778C9B3FCC62C85D699C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516435   (165925) от 11.12.2021
+
+Гарик Сукачёв - Помнишь (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165925.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Тишина
+2. Ай, былбылым
+3. Разговор на остановке трамвая
+4. Помнишь(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AED0C525396ADF729159C1FA9947B68EB0712BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597535   (166054) от 15.12.2022
 
 Skaльпель - ВОВРЕМЯ (2022) [FLAC|Lossless|WEB-DL|tracks] <Ska Punk-Rock>
@@ -587,112 +695,6 @@ Princesse Angine - Никому не нужны твои жертвы (2022) [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C39368C2F35869DC8EC4AFF0750BA99291210D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672407   (169330) от 28.10.2023
-
-Артур Беркут - Стритрейсер (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стритрейсер [00:03:35]
-02. Разорви [00:03:57]
-03. В плену пустоты [00:04:09]
-04. Последний день [00:04:18](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00E36E77929C9E7F34465B5A6099BAD9014E424
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596580   (169358) от 11.12.2022
-
-Anderdog - Kelgoma (2022) [FLAC|Lossless|WEB-DL|tracks] <Experimental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ineved [00:04:17]
-02. Moksha [00:03:50]
-03. Setmoshi [00:04:19]
-04. Pinae [00:03:50](   Читать дальше...   )Жанр: Experimental RockПродолжительность: 00:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF83E50F662B434EFF3B1BEC12EB85553CBE4FA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512381   (169400) от 07.12.2021
-
-Forces United - 2 Studio Albums (2020-2021) 3xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169400.jpg" />
-</div>
-
-
-###  Подробнее
-
-2020 - Предания о преданных и предателях
-2021 - Предания о преданных и предателях - 2Жанр: Heavy MetalПродолжительность: 02:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C80B011C589A041687472721BB626881342B72F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672426   (169435) от 28.10.2023
-
-Asper X - Для тех, кто молчит (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Abstract Hip-Hop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Патрон [00:04:54]
-02. Скоро узнаешь [00:03:03]
-03. Прикосноверие [00:02:49]
-04. Monsta [00:02:42](   Читать дальше...   )Жанр: Alternative Rock, Abstract Hip-HopПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08ED7D1AF15CFDCA51C07D20B3A00EB65834FCD3
 ```
 
 

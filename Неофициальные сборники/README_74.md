@@ -1,3 +1,30 @@
+###  Публикация: 1520901   (138680) от 30.12.2021
+
+VA - Радио Шансон. Лучшее (2021) MP3 от DON Music [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138680.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Пискун - Падал белый снег
+002. Воровайки - Тикают часы
+003. Григорий Лепс - Lucky Man
+004. Яна Павлова - Предновогодняя(   Читать дальше...   )Жанр: ШансонПродолжительность: 15:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1994E11CD968026190BF626606244F755DAC4ED9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590990   (138691) от 18.12.2012
 
 VA - Новогодняя Дискотека В Стиле Modern Talking (2012) [MP3|128 кб/с]<Pop>
@@ -674,33 +701,6 @@ VA - Just music (2017) [MP3|320 Kbps] <Pop, Rock, Instrumental,  Eurodisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5F7A4D4FBDEC17B7581324A7570BC73AE6C1DBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088388   (139385) от 31.12.2016
-
-VA - Trance Elegance On This Year 005 (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UDM - Tornado (Original Mix) 6:37
-02. Lucid Blue - Eyes Wide Open (Saad Ayub Remix) 6:40
-03. Adam Lester - That Moment (Original Mix) 8:59
-04. Kukuzenko - Immortal (Original Mix) 6:44(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 02:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D898577BC38E1255383D5FF49D80E02F3A1CDF
 ```
 
 

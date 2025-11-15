@@ -1,3 +1,57 @@
+###  Публикация: 1739309   (106108) от 27.07.2024
+
+VA - Summer 2024: Best of Deep House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JLUIS - She's Not Me [02:33]
+02. Declan Drake - Lights Out [02:45]
+03. Deep Emotion - One More Night [02:36]
+04. Dani Corbalan - Promise Me [02:31](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:21:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E60CC30E0143C4380AD0555C1604A22A4451FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739067   (106157) от 26.07.2024
+
+VA - IBIZA 2024 (Deluxe Version) [MP3|320 Kbps] <House, Organic House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Société Parfaite - Language Of Your Soul (Original Mix) (4:32)
+02. Old Hermit Crab - One (Original Mix) (7:09)
+03. Mood 5 & Liana - Work 4 Love (Thrill Me Extended) (6:51)
+04. Marcus Soulbynight - Always (Extended Mix) (5:56)(   Читать дальше...   )Жанр: House, Organic HouseПродолжительность: 07:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70874990AB748EE9586159AE3095453488401462
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739064   (106163) от 26.07.2024
 
 VA - Armin van Buuren - A State Of Trance 1183 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -641,60 +695,6 @@ VA - Chillout Time Spring 2024 (2024) Original Mix [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B489B198FAFFECE600F6D69E3D96A8A3D5A1D691
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736135   (106723) от 11.07.2024
-
-VA - FSOE Summer Selection (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila & Richard Durand - Nebula (Extended Mix) [7:20]
-02. Billy Gillies - Nostalgia (Extended Mix) [7:26]
-03. Paul Denton - The Code (Michael Fearon Extended Remix) [5:18]
-04. Alex M.O.R.P.H. & Luminn - Shambhala (Extended Mix) [6:32](   Читать дальше...   )Жанр: TranceПродолжительность: 02:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB8FFEB76936B5254B2A56FDA4039A814A4EA00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736017   (106726) от 11.07.2024
-
-Markus Schulz - Global DJ Broadcast World Tour: Luminosity Beach Festival 2024 (2024-07-04) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz presents Dakota - Stereo 11AM (Intro)
-02. ID - ID
-03. ID - ID
-04. Binary Finary - 1998 (Victor Ruiz Remix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7771F0E4C7419B586E27E634B951EB1E6EE35021
 ```
 
 

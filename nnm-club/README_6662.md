@@ -1,664 +1,665 @@
-###  Публикация: 1649807   (227882) от 30.07.2023
+###  Публикация: 1653175   (215328) от 14.08.2023
 
-Little Feat - Sailin' Shoes (1972) 2CD, Deluxe Edition, Remaster, 2023, Rhino - Warner Records [MP3|320 Kbps] <Southern Rock, Blues Rock>
+Various Artists - Immortal Randy Rhoads - The Ultimate Tribute (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215328.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-Disc 1: Sailin’ Shoes (2023 Remaster)
-Disc 2: Hotcakes, Outtakes, Rarities & Thank You! I’ll Eat It Here: Live at the Palladium, Los Angeles, CA 8/28/71Жанр: Southern Rock, Blues RockПродолжительность: 2CD, 01:56:19
+01. Crazy Train
+02. Over The Mountain
+03. Mr. Crowley
+04. Believer(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A50BD4BF2F648AB0D1FA6BA608F5901E15D4194
+magnet:?xt=urn:btih:E7B0293B7E7971D327C905F14536905D41F821A1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649932   (227889) от 30.07.2023
+###  Публикация: 1653050   (215333) от 14.08.2023
 
-SoMaD - Story of Marion & Damiel (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
+Blindstone - Scars To Remember (2023) [FLAC|Lossless|image + .cue] <Heavy Blues Rock, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215333.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (Voices) [00:02:28]
-02. Only the children knows [00:04:08]
-03. The old singer of humanity [00:03:58]
-04. Living by the spirits [00:04:57](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 01:15:38
+01. Embrace The Sky
+02. A Scar To Remember
+03. Down For The Count
+04. Waste Your Time(   Читать дальше...   )Жанр: Heavy Blues Rock, Hard RockПродолжительность: 00:45:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8C21B4671E165C5D9DA69920B0BAA4FF170E2EA
+magnet:?xt=urn:btih:D9893DEAC14C99CED4D6618988A8C640EA50C0D1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649778   (227896) от 30.07.2023
+###  Публикация: 1652898   (215343) от 14.08.2023
 
-William The Conqueror - Excuse Me While I Vanish (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt Rock, Indie rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Puppet And The Puppeteer [00:06:01]
-02. The Bruises [00:04:04]
-03. Sheepskin Sleeve [00:04:47]
-04. L.W.Y. [00:03:59](   Читать дальше...   )Жанр: Alt Rock, Indie rockПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4203894F8DAB550259FB8403AF878271F72E310E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649693   (227907) от 30.07.2023
-
-Signs Of The Swarm - Amongst The Low And Empty (2023) [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amongst the Low & Empty [00:04:00]
-02. Tower of Torsos [00:03:29]
-03. Pray for Death [00:03:38]
-04. Borrowed Time [00:02:57](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A9CB33557A36744911756ECD6C47B76DF41B8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649994   (227914) от 30.07.2023
-
-Dogs Of Neptune - 2 Albums (2016-2023) [MP3|320 Kbps] <Progressive Heavy Metal, NWOAHM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2016 "One Taste Of Blood"
-2023 "Zero"Жанр: Progressive Heavy Metal, NWOAHMПродолжительность: 2 CD, 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EBDE7C649248113B22809A94C404668DDFFA35A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649912   (227926) от 30.07.2023
-
-Abaddon - Statues of Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Black Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March of the Gods [00:05:10]
-02. Imperious Divine [00:06:05]
-03. The Swarm [00:04:12]
-04. Order of Death [00:04:00](   Читать дальше...   )Жанр: Thrash Metal, Black Metal, Melodic Death MetalПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE27F7E101F8CBAF40FB253E3C73CAE51387C92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649699   (227932) от 30.07.2023
-
-James Rivera's Metal Wave - New Wave Gone Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Celebration [00:04:41]
-02. Love My Way [00:03:31]
-03. Lovesong [00:04:12]
-04. Shock The Monkey [00:05:01](   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30E1199FFD9C3F5817130220E7FFB59768F85D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649925   (227938) от 30.07.2023
-
-Arkham Witch - Beer And Bullet Belts (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beer and Bullet Belts [00:04:16]
-02. Death by Heavy Metal [00:02:22]
-03. Viking Pirates of Doom (2002) [00:05:08]
-04. Lamentations of My Fist [00:05:59](   Читать дальше...   )Жанр: Doom Metal, Heavy Metal, Hard RockПродолжительность: 01:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4166E00EF18A768D811D04A8B153D1692F2B62D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649696   (227948) от 30.07.2023
-
-Mutoid Man - Mutants (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call of the Void [00:03:59]
-02. Frozen Hearts [00:02:57]
-03. Broken Glass Ceiling [00:04:12]
-04. Siren Song [00:03:33](   Читать дальше...   )Жанр: Stoner Metal, Post-HardcoreПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3816EA70FD81C8B42A1174D8B2E7DDBB72BDCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649991   (227960) от 30.07.2023
-
-SyncBird Pro 4.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227960.jpg" />
-</div>
-
-
-###  Подробнее
-
-SyncBird Pro - это файловый менеджер iPhone, который обеспечивает синхронизацию iOS и чистку iTunes. Передавайте музыку, плейлисты, фотографии, видео, книги - все, между вашим iPhone, iPad, iPod и Mac без использования iTunes. Эксклюзивные функции SyncBird под названием PhoneCare и TunesClean созданы для того, чтобы освободить больше свободного места на вашем iPhone (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.07.2023Разработчик: © 2023 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский или Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940B971DCF95151A955B0A9BE511E21F8A82DE20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649922   (228004) от 30.07.2023
-
-Kost - Warden (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Warden (00:03:28)
-02 - Resume of Pain (00:05:33)
-03 - Tekel (00:04:10)
-04 - Charred Velvet Skies (00:05:28)(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C42F144DD31603193DC8B703B2370E0E7D8608
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649953   (228012) от 30.07.2023
-
-Herald the Apocalypse - They Don't Care About Us (2023) EP [MP3|320 Kbps] <Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. They Don't Care About Us 1 / 2
-02. They Don't Care About Us 3
-03. They Don't Care About Us 4 / 5Жанр: Death Metal, Doom MetalПродолжительность: 00:27:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93DEC9E3798AC60373D9675562310E65F411AAA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649780   (228022) от 30.07.2023
-
-Infection Code - Intimacy (2007) [FLAC|Lossless|image + .cue] <Industrial, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (E)motionless
-02. Sweet Taste Of Sickness
-03. Bleeding
-04. A Perfect Failure(   Читать дальше...   )Жанр: Industrial, Thrash MetalПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC06AB9D6125FD7ED4EA850EB54A87AAFABA240
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649905   (228030) от 30.07.2023
-
-Ashtar - Wandering Through Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Gloom [00:08:34]
-02. The Submerged Empire [00:06:34]
-03. Deep Space and High Waters [00:06:15]
-04. Voices (Collide Again) [00:03:49](   Читать дальше...   )Жанр: Doom Metal, Black MetalПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD499208694B0464B6CE0FAA297022891794ED9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649514   (228111) от 29.07.2023
-
-Плюшевый пузырь / The Beanie Bubble (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на книге Зака Биссоннетта «The Beanie Bubble: массовое заблуждение и неизвестная сторона милоты / The Great Beanie Baby Bubble: Mass Delusion and the Dark Side of Cute». О миллиардере Тае Уорнере, который основал известную компанию игрушек «The Beanie Bubble». Но мало кто знал, что за его успехом стоял труд и креативное мышление трех обычных женщин. (   Читать дальше...   )Производство: США / Apple Original Films, Apple Studios, Imagine EntertainmentЖанр: Драма, комедияРежиссер: Кристин Гор, Дэмиан КулашАктеры: Зак Галифианакис, Элизабет Бэнкс, Сара Снук, Джеральдин Вишванатан, Курт Яигер, Роуэн Делана Ховард, Бет Би Паркер, Швета Кешвани, Мариана Новак, Джейсон Бёрки, Калли Джонсон, Мэдисон Джонсон, Аделль Драхос, Карл Клемонс-Хопкинс, Джулия ФариноПеревод: Дублированный (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full, SDH), английские (Full, SDH), иврит, украинскиеПродолжительность: 01:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5564F0AC9FB51348ACDEA4E681E852641B9B85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648846   (228124) от 29.07.2023
-
-Русалочка / The Little Mermaid (2023) WEB-DL [H.264/1080p]
+Соперник, гол! / Paragon, gola! (1969) WEB-DL [H.264/1080p] [VO]
 
 >>Видео, Кино и Сериалы для детей и родителей
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Русалочка Ариэль из любви к человеческому принцу идёт на сделку с ведьмой Урсулой. Та даёт ей ноги, но взамен забирает голос.Производство: США / Walt Disney Pictures, Lucamar Productions, Marc Platt ProductionsЖанр: фэнтези, мелодрама, мюзиклРежиссер: Роб МаршаллАктеры: Холли Бейли, Джона Хауэр-Кинг, Мелисса Маккарти, Хавьер Бардем, Нома Думезвени, Арт Малик, Давид Диггс, Джейкоб Тремблей, Аквафина, Джессика АлександрПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (forced, full), украинские (forced, full), английские (full, SDH)Продолжительность: 02:15:17
+Мальчуган по прозвищу Парагон — лучший игрок и «мозг» дворовой футбольной команды. Но он вечно влипает в разные истории: то байдарку «угонит», то в лес убежит, то милиция им заинтересуется. Тем не менее, он сумеет привести свою команду к победе в турнире.Производство: Польша / PRF Zespol FilmowyЖанр: приключения, семейный, спортРежиссер: Станислав ЕндрыкаАктеры: Юзеф Нальберчак, Роман Вильгельми, Хенрик Бонк, Александр Фогель, Юзеф Новак, Рышард Петруский, Анна Чепелевская, Барбара Баргеловская, Барбара Солтысик, Магда ЦелувнаПеревод: одноголосый любительский (Вячеслав Прошин)Язык озвучки: русский, польскийСубтитры: русские (Angora_Cat), английские, польскиеПродолжительность: 01:35:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83C9F30D7D5E36F04FF79DFB246C0233E9780377
+magnet:?xt=urn:btih:2ABA5849DC563CDE7B3A1193E4A4512B6837CFFD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649805   (228156) от 29.07.2023
+###  Публикация: 1653174   (215352) от 14.08.2023
 
-Тюрьма живых мертвецов / День 0 / Day Zero (2022) BDRip [H.264/1080p] [VO]
+Cardhop 2.2.10 [Multi]
 
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215352.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Здоровяк Эмон сидит за решёткой уже 8 лет и научился вести себя тихо и не создавать проблем. Но когда окружающие внезапно начинают превращаться в плотоядных монстров, мужчина решает во что бы то ни стало вырваться из этого ада и добраться до своей маленькой дочки.Производство: Филиппины / Reality MM Pictures, Regal FilmsЖанр: ужасы, боевикРежиссер: Джои де ГусманАктеры: Брэндон Вера, Пепе Эррера, Мэри Джин Ластимоза, Джои Маркес, Фрейя Фьюри Монтьерро, Йоханс Леви Буйе, Риччи Риверо, Джема Галанза, Шермейн Сантьяго, Ховит МойяПеревод: Одноголосый любительский (datynet)Язык озвучки: русский, тагальскийСубтитры: английскиеПродолжительность: 01:22:19
+До сих пор управление и взаимодействие с вашими контактами было настоящим разочарованием. Магический синтаксический анализ Cardhop невероятно интуитивно понятен, позволяя вам искать, добавлять, редактировать и взаимодействовать с вашими контактами с помощью простого предложения!
+Просто введите «John G» и карта Джона немедленно появится. Или введите «Sarah Smith sarah@cardhopapp.com», (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.08.2023Разработчик: © 2017-2022 Flexibits Inc.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB9CFAA4C7289FADCACE0D0E71214D70D5981C31
+magnet:?xt=urn:btih:86ED4A2AADDDF7D80C0A1220C93C0C6330F4D632
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649577   (228163) от 29.07.2023
+###  Публикация: 1653027   (215363) от 14.08.2023
 
-Zorin OS 16.3 Pro/Pro Lite [64-bit] 2xDVD
+Asia - Resonance (2010) The Omega Tour 2010 - Live In Basel, Switzerland, 4th May 2010 (2CD) [FLAC|Lossless|image + .cue] <Pop Rock, Prog Rock>
 
->>След.
->>Сборки ОС Linux
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215363.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Zorin OS - дистрибутив на базе Ubuntu, разработанный для новичков мира Linux.
-Система обладает схожим с Windows графическим интерфейсом и включает многие аналоги приложений Windows. Zorin OS поставляется с приложениями, которые позволяют запускать обычные программы Windows.
-Основная цель дистрибутива - обеспечить пользователей Windows альтернативной системой на Linux, (   Читать дальше...   )
+CD2-1 Finger On The Trigger	4:27
+CD2-2 Time Again	5:15
+CD2-3 An Extraordinary Life	5:14
+CD2-4 End Of The World	5:42(   Читать дальше...   )Жанр: Pop Rock, Prog RockПродолжительность: 01:43:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4072C42AB653C1D7975C0567531D8CDD58427287
+magnet:?xt=urn:btih:D044D66E6669DC28BF4009D7F5FB26608AB216DA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649708   (228202) от 29.07.2023
+###  Публикация: 1653158   (215371) от 14.08.2023
 
-(Не)идеальные роботы / Robots (2023) WEB-DL [H.264/1080p]
+Cocktail Ventura Edition 16.4.1 [En]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чарльз — ловелас, Элэйн — охотница за деньгами состоятельных мужчин. Чтобы эффективнее достигать своих целей, они незаконным путем покупают себе роботов-двойников, которые делают за них всю предварительную работу по соблазнению клиентов. Однажды их пути пересекаются. Когда каждый должен получить свое (Чарльз — ночь любви, а Элэйн — деньги), отлаженная система дает (   Читать дальше...   )Производство: США, Company FilmsЖанр: фантастика, мелодрама, комедияРежиссер: Каспер Кристенсен, Энтони ХайнсАктеры: Шейлин Вудли, Джек Уайтхолл, Челси Эдмундсон, Эмануэла Постаккини, Ричард Липперт, Кэйси Мессер, Дженнифер Ингрум, Саманта Эшли, Кристофер Дж. Буззел, Тиффани АдамсПеревод: Дублированный (Лицензия)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:33:04
+Cocktail - комплекс утилит по всестороннему обслуживанию вашего Mac, который помогает каждый день получить от своего компьютера максимальную отдачу. Приложение позволяет: исправить права доступа к файлам, оптимизировать сетевое соединение, очистить всевозможные кэши (системные и пользовательские), воспользоваться скрытыми настройками, автоматизировать выбранные процессы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.08.2023Разработчик: © 2023 MaintainПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F417570F7726CF1CC23023563F1CEDF5044BC552
+magnet:?xt=urn:btih:C9AE6FC16B270EB5751414AB800133A0144E01D5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649740   (228210) от 29.07.2023
+###  Публикация: 1652859   (215376) от 14.08.2023
 
-Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack dixen18
+Duane Allen - Yin-Yang (2004) [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight Ahead, Guitar Jazz>
 
->>Win Игры
->>Action (TPS)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215376.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Название игры Assassin's Creed IV: Black Flag целиком и полностью отражает ее суть. Как известно, черный флаг – первый и самый очевидный признак корабля пиратов, ведь ни одна шхуна не ходила под знаменем «Веселого Роджера», за исключением пиратских, разумеется. Именно тематике морских разбойников была посвящена четвертая часть славно известной серии Ассасин Крид, (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montréal, Ubisoft Toronto, Ubisoft BucharestЖанр: Экшен, Ролевые игры, ПриключeнияЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+01. Night And Day (5:45)
+02. Dark Time (4:37)
+03. Crystal Ship (3:54)
+04. Yin-Yang (5:22)(   Читать дальше...   )Жанр: Post-Bop, Straight Ahead, Guitar JazzПродолжительность: 00:45:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1930E422B0B62B669C5B1635B1839A6A92E5E3DA
+magnet:?xt=urn:btih:79827C38B269868F494F19411C299D0893A64E67
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649924   (228219) от 29.07.2023
+###  Публикация: 1652750   (215388) от 14.08.2023
 
-Аватар: Путь воды / Avatar: The Way of Water (2022) BDRip [AV1/1080p-LQ] [10-bit]
+Cordovas - The Rose of Aces (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215388.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После принятия образа аватара солдат Джейк Салли становится предводителем народа на'ви и берет на себя миссию по защите новых друзей от корыстных бизнесменов с Земли. Теперь ему есть за кого бороться — с Джейком его прекрасная возлюбленная Нейтири. Когда на Пандору возвращаются до зубов вооруженные земляне, Джейк готов дать им отпор.Производство: США / 20th Century Studios, Lightstorm Entertainment, TSG EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джеймс КэмеронАктеры: Сэм Уортингтон, Зои Салдана, Сигурни Уивер, Стивен Лэнг, Кейт Уинслет, Клифф Кёртис, Джоэль Мур, Си Си Эйч Паундер, Иди Фалько, Брендан КоуэллПеревод: Дублированный (MovieDalen)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 03:12:38
+01. Fallen Angels of Rock 'n' Roll [00:03:08]
+02. What Is Wrong? [00:02:50]
+03. High Roller [00:02:31]
+04. Sunshine [00:03:08](   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:34:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8556534C15AD93F5828444D47B0A475FE177225
+magnet:?xt=urn:btih:8FF761781A66CB115CF52D5990200B6ECD6E267E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649746   (228228) от 29.07.2023
+###  Публикация: 1653123   (215396) от 14.08.2023
 
-Bloodhound (2023) [Ru/Multi] (1.0) Scene Skidrow
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сокрушите культ Астарота и уничтожьте его адских тварей, заставьте их вопить и прятаться в щелях, с которых они повылезали. Насладитесь обновленным видом и олдскульным весельем в аркадном хоррор шутере, вдохновленном легендами 90-х. Погрузитесь в глубины тьмы в этой головокружительной, щемящей сердце игре,
-созданной для любителей стремительного и мрачного геймплея.Тип издания: SceneРазработчик: Kruger & Flint ProductionsЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439E1237A3549E911F9F0F7E18E71031E85CFEC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649897   (228286) от 29.07.2023
-
-Wise Registry Cleaner Pro 11.0.3.714 RePack (& portable) by elchupacabra [Multi/Ru]
+Sandboxie 5.65.5 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wise Registry Cleaner - утилита для безопасной чистки реестра Windows. Программа сканирует реестр и ищет в нём некорректную и устаревшую информацию, после удаления которой операционная система работает значительно быстрее. После того, как программа проанализирует проблемы Вашей системы, Вы можете сами просмотреть каждую найденную неполадку и посмотреть её детальное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:090F478E07F5B8B83587D059D4EA7B83C1977EF3
+magnet:?xt=urn:btih:19F6E6AC3FF40B5320F735AB9F8C4A545FC7DD51
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649835   (228294) от 29.07.2023
+###  Публикация: 1653183   (215407) от 14.08.2023
 
-Солнце / Soleil (1997) HDTV [H.264/1080i] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алжир, 1940 год. После отъезда мужа в Париж с фальшивыми документами, на плечи матери ложится ответственность за воспитание пятерых детей. К каждому из пяти у мамы свой подход и отдельное внимание. Но самое большое беспокойство ей доставляет тринадцатилетний Мейер. Он выделяется на фоне остальных - умный, гордый и готовый уже отстаивать свое мнение, вопреки желанию (   Читать дальше...   )Производство: Франция, Италия, Германия / France 2 Cinéma и др.Жанр: драмаРежиссер: Роже АненАктеры: Софи Лорен, Филипп Нуаре, Марианна Зёгебрехт, Роже Анен, Мишель Кретон, Роже Дюма, Жозиан Столеру, Аттика Гуеди, Амиду, Элиза ТоватиПеревод: авторский (Владимир Штейн)Язык озвучки: русский, французскийСубтитры: отсутствуютПродолжительность: 01:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC0273E1D69A1280CAE129C043DF45999E6D080
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649741   (228302) от 29.07.2023
-
-VA - Late Night Piano Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy listening, Lounge>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Café Milieu - Corcovado (4:23)
-02. Café Milieu - Água de Beber (4:13)
-03. Café Milieu - They Say It's Spring (4:53)
-04. Café Milieu - Bewitched, Bothered And Bewildered (4:56)(   Читать дальше...   )Жанр: Instrumental, Easy listening, LoungeПродолжительность: 01:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2851C47D9AB1658B4EAD8113ACA70700378896F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649797   (228311) от 29.07.2023
-
-Uninstall Tool 3.7.3 Build 5716 RePack (& Portable) by KpoJIuK [Multi/Ru]
+Smooze Pro 2.0.60 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215407.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Uninstall Tool — быстрая, мощная и надежная альтернатива системному апплету «Установка и Удаление программ». Это безопасный, надежный и удобный способ удалять ненужные приложения и повысить эффективность работы вашего компьютера. Uninstall Tool обладает большим количеством функций: показывает скрытые установленные программы, сортирует список программного обеспечения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Smooze одушевляет ваш скролл и добавляет функциональность к вашей не оригинальной Apple мыши (прокрутки колеса мыши).Тип издания: macOS SoftwareРелиз состоялся: 14.08.2023Разработчик: © 2017 Segev SherryПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C849282507E544DB76D5CF9FD4C94E9EC01AC63D
+magnet:?xt=urn:btih:C02ABA30EC6FD69AF461CA8251D36BBD30A73171
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653112   (215420) от 14.08.2023
+
+Enuff Z'Nuff - 1985 (1994) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears Of A Clown [03:59]
+02. Catholic Girls [03:39]
+03. Day By Day [03:19]
+04. No Second Time [05:07](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0393D0320E2DE66EB62618C7F4F74AAE4233F5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653042   (215465) от 14.08.2023
+
+Virgin Steele - The Passion of Dionysus (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gethsemane Effect
+02. You'll Never See The Sun Again
+03. A Song Of Possession
+04. The Ritual Of Descent(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A338ED4D44A4C40EE2A7B75B06B078740B8C11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652936   (215472) от 14.08.2023
+
+Etreum - Evolucion (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ondas Estacionarias (00:01:10)
+02 - Evolucion (00:05:13)
+03 - Un Nuevo Amanecer (00:04:40)
+04 - Cyborg (00:04:54)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC88888DDEDDB165C2C8EF87D9E8EDF6035E9733
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653169   (215479) от 14.08.2023
+
+Kataklysm - Goliath (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Wings Of Deception 4:53
+02. Goliath 2:54
+03. Die As A King 3:37
+04. Bringer Of Vengeance 3:53(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8426C8C78AAF8A0FFAD3DE7B641101479525D135
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652917   (215496) от 14.08.2023
+
+Август Блом. Превратности любви / Af elskovs naade (1914) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опять Август Блом и значит опять дрaма и страсти на разрыв сердца.
+Случайная встреча и граф Тейн совершенно покорен Лидией. И вот уже взаимность и свадьба и счастье впереди. Медовый месяц молодоженов Лидии и графа фон Тейна подходит к концу. Граф заставляет свою новую жену ревновать, когда помогает знакомой владелице конюшен (он же кавалерист), которая явно заигрывает (   Читать дальше...   )Производство: Дания, Nordisk FilmЖанр: драма, немое киноРежиссер: Август БломАктеры: Бетти Нансен, Олаф Фонсс, Адам Поулсен, Йоханнес Мейер, Карл Лауритцен, Хенни Лауритцен, Торбен Мейер, Кристель Холх, Фредерик Якобсен, Питер ЙоргенсенПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F311974710E3EFD3121A4716B6A8B79D35E84C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653135   (215506) от 14.08.2023
+
+AYVY 1.21.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215506.jpg" />
+</div>
+
+
+###  Подробнее
+
+С AYVY вы, наконец, можете прекратить поиски красивой, простой, быстрой и удобной программы просмотра мультимедиа. Мы сделали все, что вам нужно.Тип издания: macOS SoftwareРелиз состоялся: 02.10.2022Разработчик: © 2022-2023 Sergiy LavrykПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACDEA51FB4B50E52C473AE7B10030D87BEAF86FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653173   (215514) от 14.08.2023
+
+Billie Bottle's Temple Of Shibboleth - The Mending Tour (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Temple
+02. Cantus
+03. The Wash
+04. Ironing Days(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFD4C88991AFEC762C480565361AEBE86D94AFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653049   (215525) от 14.08.2023
+
+OmniReader Pro for Mac 2.3.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215525.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniReader - полифункциональное приложение для чтения книг с простым и красивым интерфейсом и хорошим опытом чтения.Тип издания: macOS SoftwareРелиз состоялся: 13.08.2023Разработчик: © 2023 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B964FCCF12EC1532551C3D3FA60BA3A7CBB53E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652698   (215530) от 14.08.2023
+
+Richard Soucy - Freedom (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Freedom (00:05:26)
+02 - Fly With Me (00:05:14)
+03 - In My Head (00:05:49)
+04 - Children of the Night (00:06:02)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5B2BAF0DEAFA58AFC719F74AE3449D61A3E4A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653063   (215539) от 14.08.2023
+
+Magic Battery 7.8.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Magic Battery показывает уровень заряда батареи поддерживаемых устройств ввода и наушников, подключенных через Bluetooth, в строке меню. Также поддерживаются внутренние батареи.
+Информация о батарее будет отображаться в строке меню и в главном окне.Тип издания: macOS SoftwareРелиз состоялся: 14.08.2023Разработчик: © 2017-2023 Sascha SimonПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA899CEB2BB515F187AEF76196D9BD74FE69DF03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653141   (215547) от 14.08.2023
+
+4K Stogram Pro for Mac 4.6.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215547.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Stogram — это десктопный клиент Instagram для Mac, который позволяет скачивать и сохранять фотографии любого пользователя Instagram. Приложение, кроссплатформенно и имеет открытый исходный код. Просто введите имя пользователя или вставьте ссылку на фотографию и нажмите «Follow User». Попробуйте! Также вы можете использовать 4K Slideshow Maker для создания слайд-шоу.Тип издания: macOS SoftwareРелиз состоялся: 11.08.2023Разработчик: © 2022 OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0802ECB22E1AB6F5F317A49212400EC3069A9D73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653172   (215554) от 14.08.2023
+
+Iridient Developer for Mac 4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью не разрушают и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.08.2023Разработчик: © 2023 Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.13 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CEAC03079FA8881FC54DDFA60D964051ECCD944
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653026   (215563) от 14.08.2023
+
+Legion Of The Damned - The Poison Chalice (2023) [FLAC|Lossless|image + .cue] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saints In Torment
+02. Contamination
+03. Progressive Destructor
+04. Skulls Adorn The Traitor's Gate(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0E4C0F89A9EA67A6AA42460DDE0B6C40DCA895
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653143   (215572) от 14.08.2023
+
+Permute 3 v.3.10.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 10.08.2023Разработчик: © 2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281DF52783C281CF48F72F835D1D1DD516E3EA01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653033   (215579) от 14.08.2023
+
+J.J. Johnson & Kai Winding - Jay & Kai (1947 - 1954) 1992, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernie's Tune [3:58]
+02. Lament [4:07]
+03. Blue's For Trombones [5:07]
+04. The Major [3:15](   Читать дальше...   )Жанр: BopПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E01EAD55D191C800FE47ED5D74DCCE6BEE3B99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653045   (215588) от 14.08.2023
+
+RAW Power 3.4.15 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
+Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.08.2023Разработчик: © 2016-20213 Gentlemen Coders, LLC1Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE513FA054F98A08365958083F271AA72F43BE1
 ```
 
 

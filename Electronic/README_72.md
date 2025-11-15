@@ -1,3 +1,57 @@
+###  Публикация: 1718673   (110898) от 26.04.2024
+
+Pet Shop Boys - Nonetheless (2024) [MP3|320 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loneliness (05:38)
+ 02. Feel (05:02)
+ 03. Why am I dancing? (03:33)
+ 04. New London boy (04:53)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4A75079E4B8F13DE6935358C8A9491E26A5E5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718589   (110941) от 25.04.2024
+
+Christian Löffler - A Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Vocal, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christian Löffler – When Everything Was New
+02. Christian Löffler – Roused (feat. Malou)
+03. Christian Löffler – A Life
+04. Christian Löffler – Portals (feat. Mogli)(   Читать дальше...   )Жанр: Tech House, Deep House, Vocal, ProgressiveПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3C7FD1E9CEE99E070722F7401920BA42021415
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718017   (110943) от 25.04.2024
 
 Механический Пёс - Benzin (2024) [FLAC|Lossless|WEB-DL|tracks] <Electroclash, Breaks, Industrial>
@@ -631,60 +685,6 @@ Nena - 7 Albums (1983-1989) LP Collection [MP3|320 Kbps] <New Wave, Pop Rock, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F10DD4B35C5BE40FF3B24E593195C844A3C8929
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715628   (111421) от 13.04.2024
-
-VA - Selected Miami 2022: Tech House Cuts (2022) Unmixed [FLAC|Lossless|WEB-DL|tracks] <Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lexx Groove – Dancin' (6:40)
-02. Little Rick – What's Going on (5:12)
-03. Sliced – Something's Happening (6:10)
-04. Markyno – Great Life (6:43)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D741F1408E3007AE2B0607384848C15CFF6207E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715830   (111438) от 13.04.2024
-
-Alex O'Rion - Nostalgia (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex O'Rion – Elephant
-02. Alex O'Rion – Dank Farrik
-03. Alex O'Rion – Vale
-04. Alex O'Rion – Cellar Door(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A278B618B84F445E4880F372C9584594D3532AF7
 ```
 
 

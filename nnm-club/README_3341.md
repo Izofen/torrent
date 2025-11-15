@@ -1,669 +1,690 @@
-###  Публикация: 1733642   (107227) от 30.06.2024
+###  Публикация: 1737227   (106558) от 16.07.2024
 
-Lennie Tristano - 1947 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop, Cool, Piano Jazz>
+Сатисъ | О святой воде и просфоре, о елее и ладане (2002) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dissonance [2:40]
-02. Through These Portals [2:19]
-03. Speculation (Ear, Eyes) [2:27]
-04. New Sound [2:19](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 00:53:38
+Больно бывает верующему христианскому сердцу увидеть заплесневелую просфору или артос, или оброненный кусочек благоуханного ладана, пролитые Святую воду или елей.
+
+Конечно, случается это чаще всего не по чьему-то злому намерению, а невольно, нечаянно. Однако не зря ведь полагается приносить в этом покаяние – выявляется глубоко, незаметно для нас самих таящееся в (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:637625CA2E89644102A4AACEA9DAC6EF8D022A9E
+magnet:?xt=urn:btih:4B522E28B934181EEEBAED990E6FF63D0E7462AD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733867   (107228) от 30.06.2024
+###  Публикация: 1737228   (106559) от 16.07.2024
 
-Бриджертоны / Bridgerton (2024) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit] (сезон 3, серии 1-8 из 8) NewStudio, Videofilm, HDRezka, TVShows
+Сатисъ | Ангелы Твои да хранят его. Молитвы о детях. Акафисты (2006) [PDF]
 
->>Зарубежные сериалы
->>
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжение хита Netflix о том, как в альтернативном Лондоне начала XIX века дети из семьи Бриджертон и их окружение ищут себе достойную пару. В третьем сезоне поисками мужа займется Пенелопа Фезерингтон. Девушка заручается поддержкой Колина Бриджертона и обретает уверенность в себе, а он задумывается о том, что их дружба может стать идеальным фундаментом счастливых (   Читать дальше...   )Производство: США / ShondaLandЖанр: драма, мелодрамаРежиссер: Том Верика, Триша Брок, Шери ФоксонАктеры: Джули Эндрюс, Фиби Дайневор, Реге Пейдж, Джонатан Бэйли, Никола Кохлан, Клаудия Джесси, Аджоа Андох, Сабрина Бартлетт, Рут Геммелль, Люк НьютонПеревод: Дублированный (Videofilm International Ltd.), Многоголосый профессиональный (NewStudio, HDRezka, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: ~01:00:00 серия
+Без молитвы, заступления Божия – не сохранить наших детей от искушений современного мира. Главным для родителей-христиан должно быть «…воспитание в ребенке живого члена воинствующей Церкви Христовой» (Н.Е. Пестов).
+
+В молитвослов вошли прошения и молитвы о помощи Божией в воспитании детей и молитвы благодарения за Божие промышление о наших чадах.Жанр: ПравославиеИздательство: СатисъФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89F6E641C253CBAB150B071E73474511CA12E0F9
+magnet:?xt=urn:btih:DD9A9DF02BBEA9D0D28C1EAD8E8FBFF73893A158
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733874   (107229) от 30.06.2024
+###  Публикация: 1737116   (106560) от 16.07.2024
 
-Image Uploader 1.4.1 Build 5175 Nightly + Portable [Multi/Ru]
+Duran Duran - Skin Trade (1987) Mix, 2024, Parlophone Records [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
 
->>Архив торрентов
->>Архив Программ
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Image Uploader - бесплатная программа для Windows c открытым исходным кодом, предназначенная для загрузки изображений, фотографий, кадров из видео в интернет. Для хранения файлов программа использует несколько десятков общедоступных хостингов изображений и файлов. При этом программа автоматически генерирует миниатюры желаемого размера, масштабирует изображения, по (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Skin Trade (Radio Cut) [00:04:26]
+02. We Need You [00:02:53]
+03. Skin Trade (Stretch Mix) [00:07:43]
+04. Skin Trade (Parisian Mix; 2010 Remaster) [00:08:08](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:36:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06AE695D49E4F7828B1D5D966C9DFBC2A92CB729
+magnet:?xt=urn:btih:514B832767FF9D13844699412ECEA30E7ABDD72B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733833   (107230) от 30.06.2024
+###  Публикация: 1737178   (106561) от 16.07.2024
 
-PrivaZer 4.0.88 Free + Portable [Multi/Ru]
+Plugin Boutique - DC Snares 1.0.2 VSTi 3, AAX (x64) [En]
 
->>Архив торрентов
->>Архив Программ
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106561.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Идеальный комплект для создания малого барабана. DC Snares разработан для того, чтобы упростить ваш рабочий процесс и оказать серьезное влияние на ваше творчество.
+Независимо от того, изучаете ли вы сотни специально созданных встроенных звуков, экспериментируете ли со специальным синтезаторным движком, встроенным рандомизатором или просто накладываете свои собственные (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC77A751D8A28F0FDE9B5DB4F3C0AA422E1B9586
+magnet:?xt=urn:btih:DB42D02619E04B2F57047FBAE621987351C001D5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733672   (107231) от 30.06.2024
+###  Публикация: 1737124   (106562) от 16.07.2024
 
-VA - Acid Jazz & Funky Grooves 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz & Funky, Dance>
+Oscar Mulero - Have you ever retired a human by mistake? (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lainz - Sfrombolus (6:20)
-02. Vito Lalinga (Vi Mode Inc. Project) - Afrolume (3:57)
-03. Jestofunk - For Your Precious Love (5:38)
-04. Man Sueto - Argentina (4:31)(   Читать дальше...   )Жанр: Jazz & Funky, DanceПродолжительность: 02:33:24
+01. Disappear inside [00:02:36]
+02. A hundred baby spiders came out [00:05:53]
+03. Take the pleasures from the serpent [00:05:33]
+04. No termination date [00:08:51](   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 00:55:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAF6A5682F8758728B61003B4D1FAEB1FD57E8EF
+magnet:?xt=urn:btih:F3655FBFB8245CB0056B6A80D526E69D1E35C2D8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733730   (107232) от 30.06.2024
+###  Публикация: 1737175   (106563) от 16.07.2024
 
-Газета | Невыдуманные истории №25 (429) (июнь 2024) [PDF]
+VA - Uplifting Only Top 15: July 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Журналы
->>Другие журналы
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106563.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+01. Masaru Hinaiji - The Theme Of The Light (Kohta Imafuku Intro Remix) [5:08]
+02. Tycoos & Mike Zaloxx & Shar - Running Out (Extended Mix) [5:34]
+03. CO1N & Darkingz - Winter Sea (Darkingz Extended Mix) [8:49]
+04. Nik Andre & Yuri Melnikov - Opera (Extended Mix) [6:13](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:41:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1E8D1E37EEA95BECAE74CF1779359A7A44612E5
+magnet:?xt=urn:btih:2ED232EBF3A1FBE8EE8AD30105AC80D4CDEEBEF7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733722   (107233) от 30.06.2024
+###  Публикация: 1737072   (106564) от 16.07.2024
 
-Rory Block - Positively 4th Street (A Tribute To Bob Dylan) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country Blues>
+John Summit - Comfort In Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Breaks, Drum & Bass>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Summit - Comfort In Chaos (4:27)
+02. John Summit, Paige Cavell - Tears (3:56)
+03. Of The Trees, John Summit - Stay With Me (4:22)
+04. Hayla, John Summit - Shiver (3:54)(   Читать дальше...   )Жанр: Electronic, Breaks, Drum & Bass, Progressive House, Melodic House & TechnoПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1A92F5D1EEC601757D2DF3F10F8DD220A8310C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737139   (106565) от 16.07.2024
+
+Bobaflex - Anything That Moves (2015) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn Them All (Intro)
+02. Start A War
+03. Lose Control
+04. Dry Your Eyes(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E011921BCF6068245F8CFA91A7D640D062C7AE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737070   (106566) от 16.07.2024
+
+Dy Karamoon - It's Never the Same (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106566.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Aurora "Rory" Block - американская блюзовая певица и гитаристка, представительница акустического кантри-блюза. Обладательница пяти наград Blues Music Awards.01. Everything Is Broken
-02. Ring Them Bells
-03. Like A Rolling Stone
-04. Not Dark Yet(   Читать дальше...   )Жанр: Blues, Country BluesПродолжительность: 01:01:51
+01. It's Never the Same (3:33)
+02. Because I Know She Loves Me (4:00)
+03. Deep in My Heart (3:54)
+04. I Don't Need a Badge to Stand Up Tall (2:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DFA0C1883D307D7C24496E715191795FA15A3B0
+magnet:?xt=urn:btih:A21B01AF2C75931B6259764404794B9F02D5DC4F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733700   (107234) от 30.06.2024
+###  Публикация: 1695354   (106567) от 16.07.2024
 
-VA - Serene Blissful Relaxation Luxury Travel Tunes for Relaxation and Enjoyment (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+Американская звезда / American Star (2024) WEB-DLRip [H.264/1080p] [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последнее задание убийцы Уилсона приводит его на остров Фуэртевентура. Ему предстоит убить человека, которого он никогда не видел.  Когда Уилсон теряет бдительность, неизбежное возвращение к своей профессии нарушает мирную паузу. Когда его цель задерживается, он не покидает остров как следует по протоколу. Киллер погружается в жизнь острова и его мир меняется. История (   Читать дальше...   )Производство: США / EMU FilmsЖанр: триллерРежиссер: Гонсало Лопес-ГальегоАктеры: Фанни Ардан, Нора Арнезедер, Oscar Coleman, Gaurav Dewasi, Андрес Гертрудикс, Томас Кречман, Иэн Макшейн, Адам НагаитисПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:47:30Реклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737049   (106568) от 16.07.2024
+
+Budda Power Blues - Walking Shoes & Thinking Hat (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don’t Know but I’ve Been Told (feat. Doug Macleod) (5:27)
+02. Bluesman Till I Die (4:07)
+03. Communication Is Key (5:10)
+04. Twenty Years (2:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C2E0FFC0B8D2AFDCFF6D283A546D85B35E1002
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737028   (106569) от 16.07.2024
+
+Renato Sellani Trio - Grand Piano: The Music Of Michel Legrand (2010) Philology [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106569.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Konstantin Klashtorni - 7 X 7 (4:13)
-02. Love Suggestions - It’s Our Time (5:46)
-03. Kool&Klean - The Way You Look Tonight (5:06)
-04. Chillaxing Jazz Kollektion - Evening Sun (5:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:04:32
+01. His Eyes Her Eyes [3:02]
+02. How Do You Keep the Music Going [4:33]
+03. I'll Wait For You [4:10]
+04. Once Upon a Summertime [4:42](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:58:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA85229C06D5899B9E38F5E870BCD7120216076C
+magnet:?xt=urn:btih:6A2C797A4B65C4A759CC52ACB2B4C3D14A5DF86C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733657   (107235) от 30.06.2024
+###  Публикация: 1737316   (106570) от 16.07.2024
 
-Футбол. Чемпионат Европы 2024. 1/8 Финала. Швейцария - Италия (29.06.2024) HDTVRip [H.264/720p-LQ]
+Thunderlord - Destroyer (2024) [MP3|320 Kbps] <Heavy Metal>
 
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106570.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Чемпионат Европы 2024. 1/8 Финала. Швейцария - Италия (29.06.2024)
-СУДЬЯ Марциняк Шимон (Плоцк, Польша)
-Судья на линии 1: Листкевич Томаш (Польша)
-Судья на линии 2: Купсик Адам (Польша)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:55:35
+01 - Destroyer (04:51)
+ 02 - Cimmerian Sword (05:08)
+ 03 - Motherland (05:09)
+ 04 - Black Spirit of the Forest (05:47)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFECA69807C259FAB75B58F5C6B215D215843DA4
+magnet:?xt=urn:btih:6CDCEB0B308522BF1676F079F7593C396087C76C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733676   (107236) от 30.06.2024
+###  Публикация: 1737064   (106571) от 16.07.2024
 
-VA - Ibiza Meets Beauty Chill, Vol. 10 (Balearic Lounge & Chill House Grooves) (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+Dimitris Loizos - Back to the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bernon - Runaways (4:15)
-02. Jean Mare - Melodic House (4:31)
-03. Bernon - A Midnight Love (In This Life Dance Vocal Mix) (4:06)
-04. Sergio - Sunrise (3:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:10:47
+01. Why I Sing The Blues (3:44)
+02. When Words Are Not Enough (Studio Version) (3:10)
+03. Who You Are (4:32)
+04. Blues For You (4:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92E60993F3CEB7747FF889B7418C65C06BBB749F
+magnet:?xt=urn:btih:0B9D4205721D144FE30F45F753973BB123AF8A4A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733784   (107237) от 30.06.2024
+###  Публикация: 1736909   (106572) от 14.07.2024
 
-Чудо техники с Сергеем Малозёмовым (30.06.2024) WEBRip [H.264/720p]
+J Use - Whispers in the Moonlight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106572.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Солнечные объятия! Что за опасность таит наше светило, есть ли доза безопасного загара, какую одежду нужно носить, чтобы защититься от вредного ультрафиолетового излучения, и может ли случиться аллергия на солнце?
- Как необычные игрушки для животных помогают четвероногим пережить скуку и грусть в отсутствие хозяев? Стоит ли их покупать или лучше сэкономить?
- Вентилятор (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:34
+01. Whispers in the Moonlight (3:31)
+02. Moonlit Serenade (3:13)
+03. Silent Love (4:00)
+04. Friend Zone Serenade (2:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8771EB4F2A3266EB20C4BB5AB0983C486C76217
+magnet:?xt=urn:btih:4CE32AC29F5EC4D8FD075B08E5BE7F801F738F07
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733785   (107238) от 30.06.2024
+###  Публикация: 1736896   (106573) от 14.07.2024
 
-Газета | Народный совет №24 (4 июня 2024) [PDF]
+Enri Zavalloni - Organ Express (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 
->>Журналы
->>Другие журналы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106573.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+01. Organ Express (4:55)
+02. Harlem Hot Wheels (2:57)
+03. Shotguns Barbecue (3:04)
+04. Dribbling Boogaloo (3:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:28:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8F192AB9AB8AEBFEC9BD8BEEA3E5BC696BDE88F
+magnet:?xt=urn:btih:4D3D275112728B2FC30CEB45271CAEAB638A77B2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733731   (107239) от 30.06.2024
+###  Публикация: 1736914   (106574) от 14.07.2024
 
-Billie Piper - Day & Night (2020) Mix, 2024, Virgin Records [FLAC|Lossless|WEB-DL|tracks] <House, Synth-pop>
+Ken Peplowski - At Mezzrow (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Electronic
->>Synthpop, New Wave (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106574.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Day & Night (StarGate Mix) [00:03:18]
-02. Tinted Eyes [00:03:57]
-03. Day & Night (Almighty Club Mix) [00:08:06]
-04. Day & Night (Sleaze Sisters Anthem Mix) [00:06:42](   Читать дальше...   )Жанр: House, Synth-popПродолжительность: 01:03:45
+01. Vignette (7:21)
+02. Prisoner Of Love (4:40)
+03. Beautiful Love (9:27)
+04. All The Things You Are (6:23)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:00:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D6E2764D9B75B5FDE5E63A59855FB1C03414044
+magnet:?xt=urn:btih:74E2B63E9616101B2E7249EC6BEFEB9E28146152
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733693   (107240) от 30.06.2024
+###  Публикация: 1736911   (106575) от 14.07.2024
 
-VA - Relaxing Escape to Paradise Vacation Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+Joe Tatton Trio - Galáctico (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106575.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chillaxing Jazz Kollektion - Summer Wind (5:08)
-02. eJazz Artistry - Angel (4:41)
-03. Kool&Klean - Beautiful Surprise (4:25)
-04. Chillaxonic - Reflections of Passion (3:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:06:10
+01. Double Take (3:25)
+02. Hey! (4:46)
+03. El Gato (4:29)
+04. Guinnee Drop (3:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54AB60425725E19C56FAAD0BD40AF3480715014E
+magnet:?xt=urn:btih:0BF5D433AC8BEDA823EE75166AAFA25410F0EF70
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733727   (107241) от 30.06.2024
+###  Публикация: 1736900   (106576) от 14.07.2024
 
-Газета | Невыдуманные истории №24 (428) (июнь 2024) [PDF]
+AdrianoMaria - Night And Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, House>
 
->>Журналы
->>Другие журналы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106576.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+01. Illusion (4:04)
+02. Blanca (3:30)
+03. Harlem (3:51)
+04. No Way (3:37)(   Читать дальше...   )Жанр: Jazz, HouseПродолжительность: 00:31:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1796BBEA56BA2E2A7772517819F2CCDB9E63766A
+magnet:?xt=urn:btih:8F2413EB5C45E486FC2AB5DA91791AED7743123C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733675   (107242) от 30.06.2024
+###  Публикация: 1736971   (106577) от 14.07.2024
 
-VA - Chillhop Summer Vibes (Chillhop Music for Relaxing Days) (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pyma - Landscape (2:10)
-02. Soulstance - Highlines (6:14)
-03. P. A. Jeron - Mood For Love (2:17)
-04. Paolo Sessa - Toja (Instrumental) (3:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C072588FE6BF769513A90D3337A94D43E7B2C4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733673   (107243) от 30.06.2024
-
-VA - Blissful Luxury Travel Lounge Tunes for Relaxation and Enjoyment (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Evening Sun (5:25)
-02. Kool&Klean - I Smile (5:09)
-03. Chillaxonic - Morningstar (3:37)
-04. Kool&Klean - The Way You Look Tonight (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B700E15A81B995925A9BB386864DEB26960A3F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733699   (107244) от 30.06.2024
-
-VA - Relaxing Soothing Sounds Enjoying a Quiet Moment While Vacation (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - River Flows in You (4:37)
-02. Kool&Klean - Kiss the Rain (4:52)
-03. Konstantin Klashtorni - Stylish Walk (4:44)
-04. Chillaxonic - Soulful Awakenings (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E876554CF43F5A11C832E9C412BCAA40012080
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733854   (107245) от 30.06.2024
-
-Рекрут 64-го года / En rekrut fra 64 (1910) WEBRip [H.264/720p]
+Смертельный полет / Dodsflugten (1911) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106577.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Не знаю даже, что там за война была в 1864 году и что там немцы с датчанами не поделили, но фильм как раз о ней. Или, точнее, локальная история о молодом кандидате в офицеры, участвовавшим в этой войне.Производство: Дания / KinografenЖанр: драма, военный, немое киноРежиссер: Алекс Кристианс, Урбан ГадАктеры: Густав Гелиос, Альфред Линд, Ютта Ланд, Тора Мейнке, Hans Neergaard, Vilhelm Poss-Nielsen, Эксел Стрём, Карло ВитПеревод: немой с интертитрами (В. Сачков)Субтитры: датские (интертитры), русскиеПродолжительность: 00:34:31
+Захватывающая криминальная история. Граф Лео Зачокин, найдя у своей невесты Сони таинственное письмо, приревновал ее и решил проследить за ней. Каково же было его удивление, когда выяснилось, что дела тут вовсе не амурные. Соня была членом шайки нигилистов! Это тогдашние революционеры-радикалы. В результате слежки, граф попал в лапы нигилистов и над ним и Соней нависла (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, драма, криминал, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Карл Альструп, Rigmor Jerichau, Отто Лагони, Карл Лауритцен, Ааге Лоренцен, Лауриц Олсен, Карен Ланд, Franz Skondrup, Эйнар ЦангенбергПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские.Продолжительность: 00:22:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E32163F0096BCE11B9D898492A9C54989080129
+magnet:?xt=urn:btih:6A43F73594AD3C183FB7AA0AFF9F0AA1F7EEC9EB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733690   (107246) от 30.06.2024
+###  Публикация: 1736913   (106578) от 14.07.2024
 
-VA - Pleasant Relaxing Escape to Paradise Lounge Vacation Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+Jonas Johansen, Lennart Ginman, Thor Madsen - Adventure (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Windows (5:17)
+02. Travels (5:00)
+03. Waiters (4:59)
+04. Drinks (5:49)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE99224C5A34499DADF53C7A4026CF62082F368
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736837   (106579) от 14.07.2024
+
+Stan Getz - Four Classic Albums (1955 - 1961) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Cool, Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106579.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kool&Klean - I Wanna Know (4:50)
-02. Chillaxing Jazz Kollektion - Summer Wind (5:08)
-03. Chillaxonic - Quintessence (4:26)
-04. Love Suggestions - What Makes You Beautiful (4:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:06:10
+01. Four [7:37]
+02. Suddenly It's Spring [7:00]
+03. Night in Tunisia [6:13]
+04. Summertime [6:08](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 02:34:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64BD128D360DBAC6DA845323C1D849089072C44C
+magnet:?xt=urn:btih:78F708FADF20988632A8312C9888E7456A9680FE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733697   (107247) от 30.06.2024
+###  Публикация: 1736908   (106580) от 14.07.2024
 
-VA - Relaxing Soothing Lounge Chill Sounds Enjoying a Quiet Moment While Vacation (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+Sylvan - Back To Live (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Neo-Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Between (Live) (11:32)
+02. Encoded at Heart (Live) (6:54)
+03. Trust in Yourself (Live) (5:53)
+04. Given, Used, Forgotten (Live) (13:07)(   Читать дальше...   )Жанр: Neo-ProgПродолжительность: 01:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA6F908489390A9B61C729B57A1EA5BBEAE70DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736903   (106581) от 14.07.2024
+
+Sylvan - Back To Live (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Between (Live) (11:32)
+02. Encoded at Heart (Live) (6:54)
+03. Trust in Yourself (Live) (5:53)
+04. Given, Used, Forgotten (Live) (13:07)(   Читать дальше...   )Жанр: Neo-ProgПродолжительность: 01:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5DD66C175262F117363592DE236240DAA6F276
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736839   (106582) от 14.07.2024
+
+Herbie Mann's Californians - Great Ideas Of Western Mann (1957) 2001, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106582.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kool&Klean - River Flows in You (4:37)
-02. Konstantin Klashtorni - Let's Chill (5:29)
-03. Chillaxing Jazz Kollektion - Every Good Thing (4:57)
-04. Chillaxonic - Oasis (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:10:01
+01. The Theme [6:43]
+02. Lady Bird [8:59]
+03. Get Out of Town [5:33]
+04. Is It True What They Say About Dixie? [5:33](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:48:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E092B1C1C25D412BA99B5A7DD6D7733A93045FC5
+magnet:?xt=urn:btih:F5A782A8D10774044E1B2B3D006FD2EF535699E4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733660   (107248) от 30.06.2024
+###  Публикация: 1736906   (106583) от 14.07.2024
 
-Следствие вели... (23.06.2024) WEBRip [H.264/1080p]
+Hami Cho - My Season (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106583.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Огненное лето». 1985 год, Тамбовская область. В старинном городке Моршанск ранним утром внимание патрульного привлек дым недалеко от местной фабрики. После работы пожарных на пепелище были обнаружены человеческие останки, Как потом выяснится, преступник облил женское тело бензином и поджег. Позже на другом кострище найдут еще одну погибшую… Неужели в городе завелся (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:07
+01. Intro (4:21)
+02. Wild Flower (5:26)
+03. It's Okay (8:05)
+04. Clouds Are Gone (5:56)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:40:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8CC05113276AB6F7A93D8955FA14C44202CFF566
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733868   (107249) от 30.06.2024
-
-Бриджертоны / Bridgerton (2024) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] (сезон 3, серии 1-8 из 8) NewStudio, Videofilm, HDRezka, TVShows
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение хита Netflix о том, как в альтернативном Лондоне начала XIX века дети из семьи Бриджертон и их окружение ищут себе достойную пару. В третьем сезоне поисками мужа займется Пенелопа Фезерингтон. Девушка заручается поддержкой Колина Бриджертона и обретает уверенность в себе, а он задумывается о том, что их дружба может стать идеальным фундаментом счастливых (   Читать дальше...   )Производство: США / ShondaLandЖанр: драма, мелодрамаРежиссер: Том Верика, Триша Брок, Шери ФоксонАктеры: Джули Эндрюс, Фиби Дайневор, Реге Пейдж, Джонатан Бэйли, Никола Кохлан, Клаудия Джесси, Аджоа Андох, Сабрина Бартлетт, Рут Геммелль, Люк НьютонПеревод: Дублированный (Videofilm International Ltd.), Многоголосый профессиональный (NewStudio, HDRezka, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1855F0831F3B89431724C5BE10D505AA6183149
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733641   (107250) от 30.06.2024
-
-Ф. Г. Углов | Человек среди людей. Записки врача (2008) [MP3, Иван Дроздов]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Записки врача — такой скромный подзаголовок у этой книги. Академик Ф. Г. Углов делится в ней раздумьями о взаимоотношениях людей в обществе, о высоких понятиях чести, долга и любви. Ну и, конечно же, о преимуществах трезвого образа жизни.
-Книга 3 раза переиздавалась в России, а также в ряде Союзных республик. Была полностью прочитана по Всесоюзному радио.Жанр: Научно-популярная литератураИздательство: Нигде не купишьПродолжительность: 13:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0CF25DCFCC6F4DB4C51118429A70B133831E779
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733871   (107251) от 30.06.2024
-
-VA - 100 Hits - The 70s (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - Dreams (2018 Remaster)
-02. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!)
-03. Blue Swede - Hooked on a Feeling
-04. Rod Stewart - Da Ya Think I'm Sexy(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 06:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CEC6CC862588AB56C6F6CEC29B74D210543F040
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733626   (107252) от 30.06.2024
-
-Реми Майснер. Рабочий класс и его выбор (2024) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш коллектив изрядно ошалел из-за откровений праворадикальной профессуры в научном журнале «Миграционное право». Чтобы отдохнуть и немного развеяться, мы решили почитать сочинения левых интеллектуалов. И выбор наш пал на газету ֿ«Народная правда». Сие есть настоящая марксистская газета, она ведёт беспощадную борьбу с филистерами, конформистами, национал-предателями, (   Читать дальше...   )Производство: Россия, Авторский блог Remi MeisnerЖанр: юмор, публицистика, экономикаЯзык озвучки: РусскийПродолжительность: 03:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4F1D52A9894590CDD292CB42FAAB30D719205D
+magnet:?xt=urn:btih:D8B090387D7038F16E11BE7565A6231934BBE25C
 ```
 
 

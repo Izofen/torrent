@@ -1,3 +1,30 @@
+###  Публикация: 1751919   (104024) от 28.09.2024
+
+VA - compilation musical kaleidoscope part 4 (2024) [MP3|320 Kbps] <electro swing, electro pop, nu Jazz>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alanna Lyes & Atom Smith & Riff Kitten & Elliot Deutsch - Back Around
+02. Odd Chap & Little Violet - Crazy Out There
+03. Alanna Lyes & Atom Smith & Riff Kitten & Elliot Deutsch - Mine
+04. Atom Smith & Alanna Lyes & Elliot Deutsch - Bad Girls(   Читать дальше...   )Жанр: electro swing, electro pop, nu JazzПродолжительность: 01:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E58D19F4F0F123BFFF41A4144A67CE16AB4D191
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823006   (104375) от 09.10.2025
 
 VA - Compilation Part 198 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
@@ -668,33 +695,6 @@ VA - Compilation part 91 Electronic (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9972FFDEEDD251B3925E1EF1EFDA4CE58C1AFB26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731725   (107637) от 22.06.2024
-
-VA - Compilation part 89 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kasimoff - Alone
-02. Davbo - Emma
-03. Kasimoff - Florida
-04. Menda - Hear Me(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0CA9C267C3B75475B490D987BA761F5EE7D9FC
 ```
 
 

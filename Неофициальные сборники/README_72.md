@@ -1,3 +1,36 @@
+###  Публикация: 592718   (134992) от 24.12.2012
+
+VA - The Club music 2 (2012) [MP3|256 кб/с]<Club,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neil Davidge - Arrival (Norin & Rad Remix)
+02. Europe - The Final Countdown (DJ Shevtsov & Slash Junior Remix)
+03. Klonez - Funked
+04. DJ Pitkin - club opera
+05. Иван Дорн - That Girl ( Johnny Funk Mash-Up)
+06. Lolita Hunters feat. Robkay - Heut` Nacht (Radio Edit)
+07. Tocadisco, Koen Groeneveld, Ahmet Sendil - Oldschool (Ahmet Sendil Mix)
+08. Kerli - The Lucky Ones (Hector Fonseco Remix)
+09. Offspring & Fernando Lopez - Self The Plumber (Coffee B Mash-UP 2012)
+10. Kojak - Come(   Читать дальше...   )Жанр: Club,DanceПродолжительность: 08:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A37E06D727E163124E063130C6AA6C4BD8E08C73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679669   (135159) от 26.11.2023
 
 VA - Record Super Chart 25.11.2023 [MP3|320 Kbps] <Pop, Dance>
@@ -764,33 +797,6 @@ VA - Новогоднее Настроение: Русский Популярн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37E01CE621C1A360A03AA67E1C893D635B9ED0A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970758   (137651) от 31.12.2015
-
-VA - Black and White (Compiled by Lazyra) (2015) [MP3|320 кб/с] <Trance , Uplifting Trance , TechLifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Bowdidge - Final Rising (Original Mix) (6:58)
-02. James Kelly - 400 (Extrema 400 Official Anthem) (5:49)
-03. John O'Callaghan - Meridian Bay (Original Mix) (6:52)
-04. WeAreAliens - Star Driver (Original Mix) (6:49)(   Читать дальше...   )Жанр: Trance , Uplifting Trance , Techlifting TranceПродолжительность: 01:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19F49AEA338D3396A83EEAE9F39DAA019BEE75C
 ```
 
 

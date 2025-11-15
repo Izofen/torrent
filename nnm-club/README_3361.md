@@ -1,680 +1,673 @@
-###  Публикация: 1731314   (107747) от 20.06.2024
+###  Публикация: 1734613   (107078) от 04.07.2024
 
-VA - DJ Hits Vol. 81 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
+Народ | Сказки народов мира. Японские сказки. Счастливые несчастья (2008) [MP3, Любовь Поволоцкая]
 
->>Pop
->>Зарубежная поп-музыка
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107078.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Beloved - Easy To Pressure
-02. Coolio - It's All The Way Live (Now)
-03. C.O.D. - Funk Me
-04. New Edition - Hit Me Off(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:11:10
+Серия: Сказки народов мира. Лучшее – детям.
+Красивые и мудрые сказки далекой Японии, поэтичные, оригинальные и всегда – разнообразные. Издавна они передавались из уст в уста как бесценное наследие предков, как важнейшая реликвия.
+Смешные и грустные, лукавые и назидательные, они были душой народа и источником его вдохновения. Японские сказки учат нас тому же, что (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: Аудиокнига (АСТ)Продолжительность: 03:29:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:357EF5CAC84F89BC18FB99B9137528DAB9F715AA
+magnet:?xt=urn:btih:958291F1176DCDBEF432973201B5A71BB05D73B8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731307   (107748) от 20.06.2024
+###  Публикация: 1734684   (107079) от 04.07.2024
 
-VA - DJ Hits Vol. 78 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freshmaker - Cry For Love
-02. Dreamer - The Adventures Of David Balfore
-03. Caballero - Love Is A Shield (Spinx Mix)
-04. General Base - Thank U (For Your Love)(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9544AAE3DA5D848215D1E16996842F3E0A2FA5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731296   (107749) от 20.06.2024
-
-Vulgar Devils - Witches Wheel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Awaken The Night
-02 - Bringing Hell
-03 - Lost Souls Of Fire
-04 - Black Talons Of Evil(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30CCC76901F326C6FF69D6AE19AE5290730B7DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731127   (107750) от 20.06.2024
-
-Psychic Graveyard - Wilting (2024) [FLAC|Lossless|WEB-DL|tracks] <synth punk, industrial rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Smile is a Hoax [00:02:43]
-02. Eyes Are Turning [00:02:08]
-03. Stuffed With Secrets [00:03:13]
-04. Sword Through My Neck [00:03:53](   Читать дальше...   )Жанр: synth punk, industrial rockПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A479739D9330867B55C55415743786F295D31BCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731128   (107751) от 20.06.2024
-
-Stonekind - Hollow Ground (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Swamp Bluesy>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storyteller [00:03:55]
-02. Glass of hours [00:03:17]
-03. Hollow ground [00:00:59]
-04. Masters of man [00:08:18](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, Swamp BluesyПродолжительность: 00:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B82FDB0B3DF23F91C7203E7F5DACD4E6E38C6F49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731178   (107752) от 20.06.2024
-
-Sunburst - Manifesto (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107752.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - The Flood (07:56)
-2 - Hollow Lies (05:44)
-3 - Samaritan (05:54)
-4 - Perpetual Descent (05:26)(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBD27895303E1CA3C8C6B779B97F9284CD7F9EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731414   (107753) от 20.06.2024
-
-Portrait - The Host (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoc Est Corpus Meum (Intro) (1:18)
-02. The Blood Covenant (4:14)
-03. The Sacrament (5:27)
-04. Oneiric Visions (5:53)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9377B7701767DD788600C450398D948187318ABE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731125   (107754) от 20.06.2024
-
-DinUmbra - Finality (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dying World [00:05:17]
-02. The Hunt [00:05:54]
-03. Into The Vast [00:05:55]
-04. Drowned In Sand [00:06:08](   Читать дальше...   )Жанр: Gothic Doom, Death MetalПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B92808AF1994A87F0629C51CD5A18811D3415A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731382   (107755) от 20.06.2024
-
-Brian Auger & The Trinity, Savannah Grace - Live At Rockpalast (Live) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+Shade Of Sorrow - Upon The Fields Of Grief (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107079.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ellis Island (Live) [00:03:44]
-02. Save Me (Live) [00:05:20]
-03. Season Of The Witch (Live) [00:07:14]
-04. Fool Killer (Live) [00:03:17](   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:20
+01. No Return [00:05:01]
+02. Blackheart [00:04:50]
+03. Sorrowforger [00:04:21]
+04. Gravedigger [00:05:08](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:662BA3DD9871916126073A24929FB6E76EB81163
+magnet:?xt=urn:btih:DE79125177BCDD69E75912EF6A0494204B399864
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731376   (107756) от 20.06.2024
+###  Публикация: 1734683   (107080) от 04.07.2024
 
-Обручальное кольцо / Trolovelsesringen (1910) WEBRip [H.264/720p]
+Marsha Ambrosius - Casablanco (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke [00:03:39]
+02. Tunisian Nights [00:04:09]
+03. One Night Stand [00:04:16]
+04. Cloudy With A Chance Of ...Real [00:04:51](   Читать дальше...   )Жанр: R&BПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2B0F8477E8E5E8015E9CCC69A6D02829AD5B55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734150   (107081) от 04.07.2024
+
+Nothing More - Carnal (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alternative Metal / Progressive>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. | Carnal |
+02. House On Sand (feat. Eric Vanlerberghe of I Prevail)
+03. If It Doesn’t Hurt
+04. Angel Song (feat. David Draiman)(   Читать дальше...   )Жанр: Alternative Metal / ProgressiveПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42BE7F49F4B7C4252039107E49B1268113D89C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734196   (107082) от 04.07.2024
+
+Roberto Ottaviano, Danilo Gallo & Ferdinando Farao - Lacy in the Sky With Diamonds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Esteem (6:11)
+02. Deadline (5:56)
+03. Napping (5:38)
+04. And the Sky Weeps (3:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09FD7BD6BDFF9D406E4A25087229036B5476BC29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734011   (107083) от 04.07.2024
+
+Inner City - We All Move Together (2020) Remixes, 2024, Armada Music Albums [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <House, Garage House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We All Move Together (Kevin Saunderson x Latroit Extended Remix) [00:04:21]
+02. SoundwaveZ (Mark Broom Extended Remix) [00:04:52]
+03. Stop & Stare (Cinthie Extended Remix) [00:05:53]
+04. Your Love On Me (SYREETA Extended Remix) [00:04:32](   Читать дальше...   )Жанр: House, Garage HouseПродолжительность: 01:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC47334B4E5E89F87E7661FB59F6C44E6FCF46C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734173   (107084) от 04.07.2024
+
+amaarae — roses are red, tears are blue - A Fountain Baby Extended Play (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Love [00:00:43]
+02. Angels in Tibet [00:02:22]
+03. Co-Star [00:02:46]
+04. Princess Going Digital [00:03:09](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483298A8898907BF614B799754890FA8FA51F92A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734192   (107085) от 04.07.2024
+
+Mike Boguski - Here's To Tomorrow / Goodbye To Yeste (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here's To Tomorrow (4:32)
+02. Goodbye To Yesterday (4:33)
+03. December (7:59)
+04. Message From Mars (4:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1EC7A1E149A44DAE0927BDAFF3FD015159DD537
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734687   (107086) от 04.07.2024
+
+Mt. Joy - Live at The Salt Shed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sheep - Live at The Salt Shed, December 2023 [00:04:06]
+02. I'm Your Wreck - Live at The Salt Shed, December 2023 [00:05:34]
+03. Bigfoot - Live at The Salt Shed, December 2023 [00:04:52]
+04. Let Loose - Live at The Salt Shed, December 2023 [00:06:58](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 01:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89555167F8A322274BB09E2D6459A414444D355C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734685   (107087) от 04.07.2024
+
+Ботинки полковника / Les Bottines du colonel (1910) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Др-р-раматическая история, просто на разрыв. Любовная история двух рыбаков и рыбачки, не тех рыбаков, что с удочками, а прям настоящих, возле моря живут. А они ребята крепкие и крутые. И обручальные кольца, которые меняют хозяев...Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: нет сведенийАктеры: Лауриц Олсен, Poul Welander, Эйнар Цангенберг, Edmund ØsterbyПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:10:44
+Совсем коротенькая романтическая комедия. Кавалер влюблен в барышню живущую по соседству. Но у нее очень строгий папаша, ясно дело - полковник. Кавалер его изрядно побаивается и ухаживания держит в секрете. И надо же было такому случиться, что любовная записка, предназначавшаяся барышне, волей случая попала в ... ботинок папаши-полковника! Теперь во что бы то ни (   Читать дальше...   )Производство: Франция / Société Française des Films ÉclairЖанр: короткометражный, комедия, немое киноРежиссер: нет сведенийАктеры: Grécoire, Tramont, Mademoiselle Maia, Monsieur BussyПеревод: немой с интертитрамиСубтитры: французские (интертитры), русскиеПродолжительность: 00:08:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B48C4D680AE78126F00A6677C60A2827002CD97
+magnet:?xt=urn:btih:19B2B26DFE7B31F529DA16BD873DE88681E60104
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731377   (107757) от 20.06.2024
+###  Публикация: 1734162   (107088) от 04.07.2024
 
-Detroit Hills - Us (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post Rock>
+jxdn - When The Music Stops (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock / Pop Punk>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Not Alone [00:03:19]
-02. A Star To Guide [00:04:41]
-03. Breathe [00:04:25]
-04. Sapphire [00:03:58](   Читать дальше...   )Жанр: Post RockПродолжительность: 00:40:08
+01. LOST ANGEL [00:01:11]
+02. CANDLES [00:03:32]
+03. STRAY [00:02:33]
+04. SAD OCTOBER [00:02:33](   Читать дальше...   )Жанр: Pop Rock / Pop PunkПродолжительность: 00:45:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A2C6E06566ECFB3290D5D1249AD69BB313F5ADC
+magnet:?xt=urn:btih:548A8C06D45768718F2C4C8AE6A12CCDE3DBFED9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731282   (107758) от 20.06.2024
+###  Публикация: 1734195   (107089) от 04.07.2024
 
-Teodasia - Metamorphosis (2016) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Stronger Than You
-03. Release Yourself
-04. Rise(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA73D789C3A609A0AC818B22ADE3036240A818EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731374   (107759) от 20.06.2024
-
-My Diligence - The Matter, Form and Power (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <heavy psych, posthardcore, powerfull rock, stoner rock>
+Rachel Eckroth - Humanoid (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Matter, Form and Power [00:04:32]
-02. On The Wire [00:05:32]
-03. Sail To The Red Light [00:03:56]
-04. Celestial Kingdom [00:07:42](   Читать дальше...   )Жанр: heavy psych, posthardcore, powerfull rock, stoner rockПродолжительность: 00:40:53
+01. Humanoid (8:54)
+02. Mind (8:48)
+03. Lawns (7:43)
+04. Under a Fig Tree (8:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:08:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94BAA52B1C3550B92D0764AB33BB3730401E5B1B
+magnet:?xt=urn:btih:6BB53120A60E393CCF147A7373DECA062B50B226
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731341   (107760) от 20.06.2024
+###  Публикация: 1734564   (107090) от 04.07.2024
 
-VA - Chillout Summer Anthems 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Converted Specifications - Gentle Flow (4:26)
-02. Asking Altotas - Treasurable Seductiveness (4:30)
-03. Lovers in Motion - Whatever It Takes (4:10)
-04. Élan Vital - Ticking It Off (4:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5C6972CFD532E83EBEFCB1387760375374C444
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731303   (107761) от 20.06.2024
-
-Татьяна Степанова | По следам громких дел. Храм Темного предка (2024) [MP3, Наталия Урбанская]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сама Судьба преподнесла Екатерине Петровской и Гектору Борщову незабываемый свадебный подарок – расследование дела пропавшей экспедиции… В 1931 году профессор Велиантов и его друзья обнаружили грандиозную находку в горах Тянь-Шаня. Понимая всю важность открытия для мировой науки и опасность, грозящую экспедиции в тех диких тогда местах, профессор отправляет разным (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 13:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387C765BB0C993EF6F9819A716AAFB2E7D4EAC0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731410   (107762) от 20.06.2024
-
-KineMaster - Video Editor & Maker v7.4.15.33304.GP Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скачайте KineMaster и испытайте лучшие возможности редактирования видео! Это легко благодаря мощным инструментам редактирования, эксклюзивным функциям и библиотеке ресурсов, которые можно использовать, чтобы оживить свои видео!Тип издания: PremiumРелиз состоялся: 20.06.2024Разработчик: KineMaster, Video Editor Experts GroupПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4AAE2AA282E15052CD3D88109FCDBA771F5D446
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731211   (107763) от 20.06.2024
-
-VA - Новый хит- 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Владимир Ждамиров - Сумасшедшая любовь (4:20)
-02. Владимир Песня - Последняя любовь (2:34)
-03. Игорь Ашуров - Душа зовёт... (4:07)
-04. Азамат Исенгазин - Ничьи (3:48)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 00:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C1A2980830A951ED82F8FD8173CF75BA7738DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731299   (107764) от 20.06.2024
-
-Пётр Григорьев | На пути к совершенству (2024) [MP3, Михаил Шетько]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107764.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Антоновске, небольшом городке, стали происходить загадочные убийства. Полиция бессильна, и местные жители стали объединяться в дружины, чтобы остановить злодеяния...Жанр: детектив, триллерИздательство: Аудиокнига своими рукамиПродолжительность: 04:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D9FF636DA2BEB8960410D4517C9AF80BE2E180
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731213   (107765) от 20.06.2024
-
-VA - Новый Хит Весна (2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Игорь Ашуров - Сложная такая (3:52)
-02. Ростова Катя - Разбил ты сердце мне (4:25)
-03. Алина Шелег - Перепишу любовь (3:17)
-04. Владимир Песня - Прощай (2:32)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 00:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF1C06E9DD89C42A2170319CBD3FD86D4C652B2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731358   (107766) от 20.06.2024
-
-Футбол. Чемпионат Европы 2024. Групповой турнир. 2-й тур. Группа A. Германия - Венгрия (19.06.2024) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Чемпионат Европы 2024. Групповой турнир. 2-й тур. Группа A. Германия - Венгрия (19.06.2024)
-СУДЬЯ Маккели Данни (Нидерланды)
-Судья на линии 1: Стеегстра Хессел (Нидерланды)
-Судья на линии 2: де Врис Ян (Нидерланды)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9206CAC32DE6EB146D3590396ECB166973FF4BA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731424   (107767) от 20.06.2024
-
-Firefox Browser 127.0.1 Portable by PortableApps [Ru]
+R-Wipe & Clean 20.0.2463 RePack (& Portable) by elchupacabra [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107090.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+R-Wipe & Clean - программа для невосстановимого удаления данных с жесткого диска с широкими возможностями. Среди возможностей: очистка файла подкачки и файлов .dat (в т.ч. используемых системой), удаление записей в MFT и многое другое, что требуется для уничтожения следов деятельности за компьютером. Кроме очистки свободного места на диске (включая удаление кластеров, (   Читать дальше...   )Язык интерфейса: Русский и Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71F70A81F19BAF133ECB1656AB26376DFC6CA15C
+magnet:?xt=urn:btih:F0E3FB59C0C4A4D7FA0AEFCD4307C7EA502E40C3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731357   (107768) от 20.06.2024
+###  Публикация: 1734586   (107091) от 04.07.2024
 
-Футбол. Чемпионат Европы 2024. Групповой турнир. 2-й тур. Группа В. Хорватия - Албания (19.06.2024) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Чемпионат Европы 2024. Групповой турнир. 2-й тур. Группа В. Хорватия - Албания (19.06.2024)
-СУДЬЯ Летексье Франсуа (Франция)
-Судья на линии 1: Мюнье Сириль (Франция)
-Судья на линии 2: Рамуни Меди (Франция)(   Читать дальше...   )Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2E374D1EF37D5A6EDCD1C7748DF0B02465283D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731413   (107769) от 20.06.2024
-
-PhotoRoom v5.0.5 b1455 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 20.06.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9993548624604CCF02B5E361B4D1ABD0D7FC80AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731261   (107770) от 20.06.2024
-
-Мелани Митчелл | Идиот или гений (2022) [MP3, Марина Титова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какой путь развития прошел искусственный интеллект, на каком уровне он находится в наше время и что ждет всех нас в ближайшем будущем.
-Искусственный интеллект прочно вошел в нашу жизнь, обосновавшись на невероятно обширном поле: от космических станций до домашних компьютеров. Именно с его развитием связаны наши основные футурологические надежды и страхи. Именно он, (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига АСТПродолжительность: 10:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA2055E5DADA4A679CC62B873C7588A71B67CAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731369   (107771) от 20.06.2024
-
-VA - DJ Hits Vol. 87 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Machine - U Make Me Come A Life.(Simply Mix)
-02. Dana E - I Only Wanna Be With You.(Cube Version)
-03. Maxima - You Set My World On Fire.(Radio Mix)
-04. Joyce Sims - Who's Crying Now(Radio Version)(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC1B7326F86C61508C3D2AC1933A1DE279BC159
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731231   (107772) от 20.06.2024
-
-Vintage Culture - Promised Land (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Disco, Euro Disco>
+Sensual Lounge Music Universe - Erotic Summer Moments (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Promised Land [00:04:13]
-02. Nothing Ever Changes [00:03:46]
-03. Hero [00:03:52]
-04. Chemicals [00:03:37](   Читать дальше...   )Жанр: Pop, Disco, Euro DiscoПродолжительность: 00:58:18
+01. Stimulate (3:59)
+02. Erotic Lounge Obsession (4:53)
+03. Pulse of Desire (3:46)
+04. You and I (4:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE60622CD04348101AC8EE7D69334BDF9AD5286B
+magnet:?xt=urn:btih:37C9CF1CFC3F460C3032E675091DE5F9CB05F242
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734585   (107092) от 04.07.2024
+
+Fort Firewall 3.13.3 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDAE22547D8DB800301FBD86F2DA75DD5E53505
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734638   (107093) от 04.07.2024
+
+Болеро. Душа Парижа / Bolero (2024) WEB-DL [H.264/1080p] [звук с TS]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый хореограф Ида Рубинштейн просит Мориса Равеля написать музыку для своего следующего балета. Она жаждет чего-то нового, чувственного. Но Равель не может найти себя. Ему предстоит вновь окунуться в пучину страсти, вдохнуть энергию пульсирующего Парижа, чтобы создать своё величайшее произведение - «Болеро».Производство: Франция, Бельгия / Ciné@, Cinéfrance Studios, F Comme FilmЖанр: драма, биография, музыкаРежиссер: Анн ФонтенАктеры: Рафаэль Персонас, Дориа Тиль, Жанна Балибар, Эммануэль Дево, Винсент Перес, Софи Гильмен, Александр Таро, Флоренс Бен Садун, Мелоди Адда, Катя ЧенкоПеревод: Дублированный (Невафильм) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:00:50
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734709   (107094) от 04.07.2024
+
+Auslogics Disk Defrag Pro 11.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жёсткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C36C8FEBEF0B64A20D5D24ADCD5060C474ABCDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734617   (107095) от 04.07.2024
+
+Friends - Trans Am Dancing (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Handsome Man (4:52)
+02. L'amour C'est bon (3:22)
+03. This Song (3:47)
+04. Trans Am Dancing (4:16)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07FA1E376F37AD64C8EE99E0DEEE94E9E15D24B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734568   (107096) от 04.07.2024
+
+Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix) (2022) [FLAC|Lossless|tracks] <Techno, Tech Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix edit) (3:32)
+02. Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix) (8:09)Жанр: Techno, Tech TranceПродолжительность: 00:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6376AA6C0D30BD0B743265FA9381CB69FCA97119
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734578   (107097) от 04.07.2024
+
+VA - DJ Hits Vol. 140 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Bobo - Pray (Airplay Mix)
+02. Mr. President - I Give You My Heart (Radio Edit)
+03. Heath Hunter - Revolution In Paradise (Boom Box Mix)
+04. E-Rotic - Gimme Good Sex (Radio Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C9E0629C3EA5B0BBB305C7DACDEE3F397062FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734590   (107098) от 04.07.2024
+
+Спринтер / Seupeurinteo (2022) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107098.jpg" />
+</div>
+
+
+###  Подробнее
+
+История трёх бегунов. Первый чемпион не оставляет мечты побить свой рекорд, чтобы уйти на пике карьеры. Другой спортсмен бьётся за первую золотую медаль, его обуревают страсти, которые могут помешать одержать победу. Третий — школьный спринтер, который очень надеется пробиться в национальную сборную. Одно соревнование, три спортсмена и три разные судьбы.Производство: Корея ЮжнаяЖанр: драма, спортРежиссер: Чхве Сын-ёнАктеры: Пак Сон-иль, Кон Мин-джон, Сон Док-хо, Чон Щин-хванПеревод: Дублированный (Moygolos)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDD811BEE0D967682857D2C6F53A2F138257248F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734637   (107099) от 04.07.2024
+
+Болеро. Душа Парижа / Bolero (2024) WEB-DLRip [H.264] [звук с TS]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый хореограф Ида Рубинштейн просит Мориса Равеля написать музыку для своего следующего балета. Она жаждет чего-то нового, чувственного. Но Равель не может найти себя. Ему предстоит вновь окунуться в пучину страсти, вдохнуть энергию пульсирующего Парижа, чтобы создать своё величайшее произведение - «Болеро».Производство: Франция, Бельгия / Ciné@, Cinéfrance Studios, F Comme FilmЖанр: драма, биография, музыкаРежиссер: Анн ФонтенАктеры: Рафаэль Персонас, Дориа Тиль, Жанна Балибар, Эммануэль Дево, Винсент Перес, Софи Гильмен, Александр Таро, Флоренс Бен Садун, Мелоди Адда, Катя ЧенкоПеревод: Дублированный (Невафильм) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:00:50
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734566   (107100) от 04.07.2024
+
+Charlotte de Witte - Power Of Thought EP (2023) [FLAC|Lossless|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlotte De Witte - Power Of Thought (6:11)
+02. Charlotte De Witte - Pria (7:00)
+03. Charlotte De Witte - Abada (2:30)Жанр: TechnoПродолжительность: 00:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4AF6AC38147F5D7D2B9CE6427821A5523EE8901
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734200   (107101) от 04.07.2024
+
+Tommy Crane - Dance Music For All Occasions (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Early 2000's (4:17)
+02. Italian Weekend (4:58)
+03. DMFAO (2:16)
+04. Let's Try This Again (8:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D9BE49EB0828251F1281377D1121D09EA9C16A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734694   (107102) от 04.07.2024
+
+Visions Of Atlantis - Pirates II Armada (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic, Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Those Who Choose To Fight [00:02:14]
+02. The Land Of The Free [00:04:33]
+03. Monsters [00:03:35]
+04. Tonight I’m Alive [00:04:08](   Читать дальше...   )Жанр: Melodic, Symphonic Power MetalПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C96B2303C839822CA453D28A9A38950234E882
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734567   (107103) от 04.07.2024
+
+Charlotte de Witte - Overdrive EP (2023) [FLAC|Lossless|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlotte de Witte - Overdrive (6:48)
+02. Charlotte de Witte - High Street (6:11)Жанр: TechnoПродолжительность: 00:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF52CFBA75B47B2631DC12D463C2F8D3ED8DF0B
 ```
 
 

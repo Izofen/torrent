@@ -1,638 +1,701 @@
-###  Публикация: 1524997   (130362) от 18.01.2022
+###  Публикация: 1525414   (129162) от 21.01.2022
 
-Диктатура Сердца - Записки Над Бездной (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Punk Rock, Heavy Metal>
+VA - NRW: Techno Cruise Music (2022) [MP3|320 Kbps] <Techno, Electronic, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта музыка для тех. кто максимально отрешиться от проблем и уйти в себя, или познать что-то новое и расширить границы зоны комфорта. Для многих людей лучшим способом провести это время становится путешествие и не важно большое или маленькое, но обязательно под хорошую музыку.001. DJ D Redd - Sloppy Top
+002. Plasma2097 - Wayne Train
+003. Goncalo M - Operation Friction
+004. Makaja Gonzales - Silver Bullet(   Читать дальше...   )Жанр: Techno, Electronic, MinimalПродолжительность: 09:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065B4C3CD76B5A9C40BB99D449552BDB4BC0C803
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525626   (129164) от 21.01.2022
+
+King Gizzard & The Lizard Wizard - Butterfly 3001 (2022) Remix [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129164.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Пролог
-02. Поэт
-03. Западло
-04. Память(   Читать дальше...   )Жанр: Hard Rock, Punk Rock, Heavy MetalПродолжительность: 00:48:37
+01 - Black Hot Soup (DJ Shadow “My Own Reality” Re-Write)  (03:36)
+02 - Shanghai (The Scientist Dub)  (04:00)
+03 - Shanghai (Deaton Chris Anthony Remix)  (03:32)
+04 - Dreams (Yu Su Instrumental Mix)  (05:14)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:54:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B8D5C6102AF2C3B3E015B7A41019EDB3CA68A4D
+magnet:?xt=urn:btih:4AF834F58A9C629F6D1988811957F386A17D8229
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524580   (130364) от 18.01.2022
+###  Публикация: 488846   (129166) от 27.04.2012
 
-Александр Соколов | Летопись крушенiй и пожаровъ судовъ русскаго флота отъ начала его по 1854 годъ (1855) [PDF]
+Журнал | АиФ. Спецвыпуск. Дача №6 [2012] [PDF]
 
->>Научная и техническая литература
->>Военная литература
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129166.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Александр Петрович Соколов (1816 - 1858) - историограф русского флота; по окончании курса Морского кадетского корпуса, служил во флоте и морском ведомстве. Соколов известен своим крупным трудом "Летопись крушенiй и пожаровъ судовъ русскаго флота отъ начала его по 1854 годъ". Эта книга и предлагается в раздаче. Справочник содержит подробную информацию о (   Читать дальше...   )Жанр: Справочники, историяФормат: PDF
+Этот номер спецвыпуска посвящен самой трогательной для любого дачника теме - весенним цветам. Какие растения первыми встречают нас в саду? Как за ними ухаживать? Как спланировать цветник, который будет радовать с весны до осени? Предлагаем вашему вниманию мнения ведущих специалистов в данной области.2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F33F32FF03619F750F8EDD3D47431CEF940A126C
+magnet:?xt=urn:btih:C7E54FBC332FEDD5CDD1BB6B1CB5E38145E72ED2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491257   (130365) от 03.05.2012
+###  Публикация: 1525572   (129167) от 21.01.2022
 
-[Crack] Sniper Elite V2 [Ru] 2012
+Orville Peck - Show Pony (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
 
->>Win Игры
->>NoCD/NoDVD/Crack для Игр
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129167.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Позволяет поиграть в игру, под названием Sniper Elite V2Тип издания: CRACKЖанр: Action (Shooter) / RPG / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+01. Summertime (02:57)
+ 02. No Glory in the West(04:14)
+ 03. Drive Me, Crazy (05:18)
+ 04. Kids(03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:25:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3F8A05F8A909D616FABBCB96CBD0C72045DE5FE
+magnet:?xt=urn:btih:755D4E4F3BFEFA065CD0ADC5F1BE79CCC364A301
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524946   (130366) от 18.01.2022
+###  Публикация: 1525682   (129169) от 21.01.2022
 
-Opera 82.0.4227.58 Portable by JolyAnderson [Multi/Ru]
+Pedro the Lion - Havasu (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Wanna Move (4:03)
+ 02. Too Much (3:29)
+ 03. First Drumset (5:18)
+ 04. Teenage Sequencer (4:17)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BA19B003A8339AEA604837718E7C386BD265BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525676   (129170) от 21.01.2022
+
+Paul Oakenfold - Shine On (2022) [AAC|~310 Kbps] <EDM, House, Drum & Bass>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zanzebaar (1:47)
+02. Paul Oakenfold, Baby E - Shine On (2:33)
+03. Paul Oakenfold, Lizzy Land - Waterfall (Orchestral Mix) (2:42)
+04. White Lights (3:19)(   Читать дальше...   )Жанр: EDM, House, Drum & BassПродолжительность: 00:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6242D6C4261B26EF291A2FBFA44AA0EC444902CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487394   (129171) от 27.04.2012
+
+VA - Drive from Mad M!nd (2012) [MP3|320 кб/с]<Dutch House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alx, Jazzi Jay, Muzzyg - Letz Go! (Die Hoerer Remix)
+02. Avesta - Arena (Original Mix)
+03. Aylesbury - Surrender (Gimbal & Sinan Remix)
+04. Betatraxx feat. Krystal - Shuffling & Looking Dumb (Original Mix)
+05. Eva - Body On Mine (Mixin' Marc & Tony Svejda Peak Hour Dub)
+06. Kraymer - The Concept (Jay Robinson Remix)
+07. Laidback Lue - Do The Robot (Original Mix)
+08. Lenny Kravitz - Are You Gonna Go My Way (Christian Sims Remix)
+09. Lil Jon - Drink ft. LMFAO (Extended Clean)
+10. Mad Villains - Disk Hoez (Dirty Audio Remix)(   Читать дальше...   )2012Жанр: Dutch HouseПродолжительность: 01:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:852E0FE49DB6B164FE6283DC31690C5182F6C358
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525544   (129172) от 21.01.2022
+
+VA - The Very Best of Chill Out, Vol. 3 (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. York - Interlude (0:57)
+02. Marga Sol, Mike Vale, NDKj - Say My Name (Marga Sol's Chill Mix) (3:43)
+03. CaPa - The Way We Live (3:48)
+04. Eskadet - A Bientot (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96282DBE6FD68E9FA16C679521062E46F4E7D28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488755   (129174) от 27.04.2012
+
+Газета | 1000 секретов [Украина] №8 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129174.jpg" />
+</div>
+
+
+###  Подробнее
+
+«1000 секретов» - издание, которое станет полезным каждому. Оно содержит советы по различным темам: кулинария, цветоводство, ремонт, сад-огород, уход за животными, юридические вопросы, мода, здоровье, семейные отношения и многое другое.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7035D28BAFE60135468B43A72039B6347574F47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525540   (129175) от 21.01.2022
+
+VA - The Very Best of Chill Out, Vol. 1 (2015) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemongrass, Jane Maximova - Deep River (6:29)
+02. SilverNight - Silence (6:55)
+03. Barclay & Cream - Surrender (Alexander Metzger Beach Mix) (3:55)
+04. Jens Jakob - Antimatter 1 (10:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CC06264E351249CCA685E6E2B5DF1B4E2866D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525790   (129177) от 21.01.2022
+
+VA - Street King Presents Winter 2022 (2022) [AAC|~319 Kbps] <Deep House, Soulful House, Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cookie Monsterz, Michelle Weeks, Qubiko - Spread Love (Unreleased Qubiko Dub) (6:41)
+02. Mata Jones - Esa Y Aqui (Unreleased Original Mix) (6:38)
+03. Dennis Ferrer, K.T. Brooks, Philip Z - How Do I Let Go (Unreleased Philip Z Dub) (6:31)
+04. Dino MFU, Alxndra Good, David Morales - Not True (Unreleased David Morales Reprise) (6:21)(   Читать дальше...   )Жанр: Deep House, Soulful House, Tech HouseПродолжительность: 03:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D24260F18DDA2C518C201F68508AF6624314B36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525633   (129178) от 21.01.2022
+
+Kissin' Dynamite - Not The End Of The Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not The End Of The Road
+02. What Goes Up
+03. Only The Dead
+04. Yoko Ono(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C90E85C6BDC132710B23E162A0388A200B3DC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488307   (129184) от 27.04.2012
+
+VA - Русские Новинки Vol.45 from AGR (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yolan & Kenia - На Пороге Лета (Extended Mix)
+02. Soda - Разлука (DJ Movskii & DJ Karasev Extended Remix)
+03. Батишта feat. Ульяна Глушкова - Мама
+04. MainstreaM One - Всё Пройдёт
+05. Karizma - Я Забуду (Radio Edit)
+06. Алиса - Настроение
+07. Music Hayk - Почему Не Я
+08. Bi-O-Shock - Биоробот
+09. LiLi - Lady GaGa Отдыхает!
+10. Валерий Меладзе - Потерян И Не Найден(   Читать дальше...   )2012Жанр: PopПродолжительность: 03:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33CA0AC4D3F72011627B1E5DF0DD0E7CE2DAB97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525739   (129186) от 21.01.2022
+
+VA - Black Hole Trance Music 01-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Durand & Susana - I Matter to You (Extended Mix) [06:14]
+02. Christian Burns - Breathing Fire (Farius Extended Remix) [05:52]
+03. Giuseppe Ottaviani - The Wind in Your Face (Extended Mix) [06:44]
+04. Eco - Let You Down (Chris Schweizer Extended Remix) [06:29](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734827AEB0A65F3AA9848F1808F10E8113088C50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525426   (129188) от 21.01.2022
+
+VA - The Techno Streaming Sound (Vol.02) (2022) [MP3|320 Kbps] <Techno, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы погружаемся в Техно туннели, собираем лучшие музыкальные работы и упаковываем их в подарочную упаковку специально для Вас. Целых сто треков техно любви доступны уже сейчас во втором релизе "The Techno Streaming Sound" от Electro Voice!001. Lorenzo Chi - Underground Chicago
+002. Theo De Tank - Make Me Feel
+003. Jürgen Degener - Rhyme
+004. Heathered Pearls - Utica(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9E694EE9CC0AEC955E15BDAEF3A4374A022889
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525680   (129189) от 21.01.2022
+
+Brian Culbertson - The Trilogy, Pt. 2: Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Love Lost
+02. Don't Give Up
+03. Still Not Over You
+04. The Way We Danced(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20198D4FB5644E31FE79AA8EDDC8ECBF84B65D2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525545   (129190) от 21.01.2022
+
+Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris by Night (3:51)
+ 02. Sourire (4:26)
+ 03. Seine (3:39)
+ 04. Embrasse-Moi (4:00)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2853A1E5C9EE2FEC6CDB0B27E00C57410AAB4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525376   (129191) от 21.01.2022
+
+VA - Beatport Electro House: Sound Pack #395 (2022) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поскольку фестивали и концерты по всему миру отменены, мы переносим клубную атмосферу прямо в Вашу квартиру с помощью очередного 395-го саунд пака от Beatport!001. Demuja - Love Is Free
+002. Simone D Jay - Move Your Feet
+003. DJ Planet Express - Wanted U 2 Kno
+004. Michael Cassette - My Name Is Michael Cassette(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1B7CA3C752C36D3415506E515AEBA1AE4625C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525578   (129192) от 21.01.2022
+
+Firefox Browser 96.0.2 Portable by PortableApps [Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Opera – веб-браузер, разрабатываемый компанией Opera Software, особенностью которого является поддержка встроенного VPN-клиента, блокировщика рекламы, возможность менять внешний вид, кастомизировать вкладку быстрого доступа и многое другое.
-Вашему вниманию предоставляется Portable версия Opera.Язык интерфейса: Русский, Английский и другие
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F168FA47DBD10D2DF1458539990F2DACE0084EE
+magnet:?xt=urn:btih:6084A08CC54620246D5FF04B7C17FF0E513352BF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524994   (130368) от 18.01.2022
+###  Публикация: 1525182   (129193) от 21.01.2022
 
-RPN Calculator 4.6.7 [En]
+Kings of Convenience - Peace Or Love (2021) [FLAC|Lossless|tracks + .cue] <Indie Pop, Acoustic, Lo-Fi>
 
->>Архив торрентов
->>Архив 4Apple
+>>Other Styles
+>>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129193.jpg" />
 </div>
 
 
 ###  Подробнее
 
-При помощи этого приложения вы сможете воспользоваться всеми функциями научного калькулятора и функцией RPN. Благодаря режиму RPN вы сможете вычислять суммы с большой скоростью, что значительно сокращает набор текста.Тип издания: macOS SoftwareРелиз состоялся: 07.11.2021Разработчик: © 2021 Benjamin PisanoПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и Французский
+01. Rumours (04:10)
+ 02. Rocky Trail (03:31)
+ 03. Comb My Hair (03:06)
+ 04. Angel (03:16)(   Читать дальше...   )Жанр: Indie Pop, Acoustic, Lo-FiПродолжительность: 00:37:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92F472DABC3D2C879B81423A4E62E8F3A44D6A0B
+magnet:?xt=urn:btih:F6C4C70E8C26218327A44E573A06522BF5A28D7C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491451   (130369) от 03.05.2012
+###  Публикация: 1525687   (129194) от 21.01.2022
 
-Adobe Audition CS6 5.0 build 708 Portable by Punsh (paf) [Английский]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Audition – профессиональный инструмент для работы с аудио-файлами, предназначенный для специалистов в области обработки аудио и видеопродукции. Adobe Audition предлагает неограниченные возможности микширования, редактирования, создания мастер-копий и обработки звуковых спецэффектов. Продукт совмещает гибкость технологического процесса с предельной простотой в использовании и позволяет создавать разнообразную аудио-продукцию высочайшего качества.Название программы: Audition CS6Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524909   (130370) от 18.01.2022
-
-Полиция просит помощи  / Что сделали с вашими дочерьми? / La polizia chiede aiuto (1974) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обнаружен труп пятнадцатилетней девочки, которая, кажется, покончила с собой. Но после вскрытия оказывается, что в её влагалище, заднем проходе и желудке имеются следы спермы. Выясняется, что девушка имела интенсивные сексуальные контакты в день своей смерти. Также она была беременна. Инспектор Валентини объединяется с прибывшим окружным прокурором Витторией Стори, (   Читать дальше...   )Производство: Италия, Primex ItalianaЖанр: ужасы, боевик, криминал, детектив, триллерРежиссер: Массимо ДалламаноАктеры: Джованна Ралли, Клаудио Кассинели, Марио Адорф, Франко Фабрици, Фарли Грейнджер, Марина Берти, Паоло Турко, Коррада Гайпо, Микаэла Пиньятелли, Фердинандо МуролоПеревод: авторский (Антон Алексеев)Субтитры: английскиеПродолжительность: 01:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F502B8611B11B265D2939E78A06F5A77B7BB794
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524854   (130371) от 18.01.2022
-
-Валерий Сугробов | Из тюрьмы в тайгу (2021) [MP3, Валерий Сугробов]
+Винсент Ван Гог | Письма к друзьям (2021) [MP3, Константин Корольков]
 
 >>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жизнь заключенных в СССР «не сахар» – порядки в тюрьмах, на зоне... Эта тема была закрыта многие годы. Некоторые моменты жизни в местах довольно отдаленных описаны писателем с достоверной точностью, со слов тех, кто сам был заключенным, и кто прошел весь этот ад и ужас. Через все это прошел и герой книги – заключенный Михаил Александрович Рылеев. Человек, искренне (   Читать дальше...   )Жанр: РоманПродолжительность: 16:10:41
+Ван Гог создал более сорока автопортретов. «Трудно познать самого себя. Однако написать самого себя не легче», – говорил он. Ван Гог оказался талантливым мастером не только кисти, но и пера. Буквально каждый вечер после работы за холстом он садился за стол и писал длинные письма родным и друзьям. После его смерти письма были найдены. Без преувеличения их можно назвать (   Читать дальше...   )Жанр: Биографии и мемуары, Документальная литература, Зарубежная публицистикаПеревод: Полина В. МелковаПродолжительность: 04:44:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D41277FE4ACE17D1B15E7B3F3FAD408924DA6C1E
+magnet:?xt=urn:btih:11FD96C95829D7A0D543996BFD807ABC16F7265B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525000   (130373) от 18.01.2022
+###  Публикация: 488898   (129195) от 27.04.2012
 
-Initiater 1.0.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Initiator — это простое в использовании небольшое приложение macOS OCR (оптическое распознавание символов), которое извлекает и распознает любой нередактируемый текст на экране вашего компьютера Mac. В качестве дополнительной функции утилита может превращать графические файлы в редактируемый текст. Предусмотрен захват текста и графики.Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: © Bluetail TeamПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27BFE380EBBA7CA6BDCE511791F825C78220231
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491162   (130374) от 03.05.2012
-
-Звездный путь / Star Trek (2009) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Нерон с планеты Ромул приходит из будущего, чтобы отомстить Федерации, конкуренты Кирк и Спок должны объединиться, чтобы не дать ему разрушить все, что им дорого. Во время этого будоражащего путешествия, наполненного эффектными боями, юмором и космическими угрозами, новоиспеченные члены команды военного корабля «Энтерпрайз» смело встретятся лицом к лицу с невообразимыми (   Читать дальше...   )Жанр: Фантастика, Боевик, ПриключенияРежиссер: Джей Джей АбрамсАктеры: Крис Пайн, Закари Куинто, Леонард Нимой, Эрик Бана, Брюс Гринвуд, Карл Урбан, Зои Салдана, Саймон Пегг, Джон Чо, Антон ЕльчинПеревод: Дублированный (2 вида), Одноголосый (Ю.Сербин)Язык субтитров: Русские (полные, форсированные), АнглийскиеПродолжительность: 02:06:51
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524932   (130375) от 18.01.2022
-
-Марк Твен | 5 Best Humorous Stories / 5 лучших юмористических историй (2013) [MP3, Lisa Rae Campbell, Андрей Зарецкий]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы изучаете английский язык или свободно на нём говорите, у вас есть замечательная возможность прослушать избранные рассказы «юмориста на все времена» – Марка Твена – на языке оригинала, а затем проверить своё понимание произведения, прослушав русский перевод. Текст не адаптирован, что должно быть особенно интересно для людей, владеющих английским на высоком (   Читать дальше...   )Жанр: Английский язык, Зарубежная классика, Зарубежный юмор, Иностранные языки, Литература 19 векаЯзык озвучки: русский, английскийПродолжительность: 05:43:11 (03:07:44+02:35:27)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0721350826E2CE869370CC1C8138958697841781
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524855   (130376) от 18.01.2022
-
-Сара Хилл | Вы и ваши гормоны (2020) [MP3, Любовь Конева]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий специалист в области эволюционной психологии рассказывает, какие процессы протекают в женском организме, какую роль в них играют гормоны и как может влиять на мозг гормональная контрацепция.
-На протяжении 20 лет Сара Хилл изучала, как биологические факторы влияют на женскую психологию. Накопленные ею научные данные позволяют утверждать: мы существа биологические, (   Читать дальше...   )Жанр: Зарубежная психологияПродолжительность: 09:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD87DFD5F4E05F11DB27E1325FC2B9659752A31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524880   (130377) от 18.01.2022
-
-Audiority - Deleight 1.3.0 VST, VST3, AAX (x64) [En]
+Журнал | Дачный сезон №4 [2012] [DJVU]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129195.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Deleight - это процессор многократной задержки(дилей) стереосигналов, основанный на аппаратных процессорах 90-х годов.
-Deleight может предоставлять множество эффектов задержки, начиная от простых эхо-сигналов до многоголосных хоров, флэнджеров, удвоителей, ранних ревербераторов и т. Д. Включите режим Loop, чтобы установить Deleight как устройство петлителя, с элементами (   Читать дальше...   )Язык интерфейса: Английский
+Дачный сезон - это журнал для дачников, а также любителей сада и огорода. Тема номера: выращиваем ранний картофель.
+Также вам будут интересны советы от заядлых дачников и секреты дачных посадок.2012Формат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:832D179270944039C5C0FA371314307B5EF55459
+magnet:?xt=urn:btih:572DE86CA06F43C7A20322DD2A7B9BAD7FBF3658
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524779   (130378) от 18.01.2022
+###  Публикация: 1525418   (129196) от 21.01.2022
 
-Molly Nilsson - Extreme (2022) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop>
+VA - Remembering Summer: Chillout Session (2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Relax>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129196.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Absolute Power (03:49)
- 02. Earth Girls (04:11)
- 03. Fearless Like A Child (04:03)
- 04. Kids Today (04:05)(   Читать дальше...   )Жанр: Dream PopПродолжительность: 00:41:38
+Это те приятные мелодии, благодаря которым человек растворяется в обволакивающей его музыке и предаётся теплым объятиям спокойствия и умиротворения вспоминая приятные моменты летнего отпуска на море.001. Lafoliedamour - Lollygagging
+002. Memorio - Grace
+003. Subdream - Monsonoom
+004. Buddha Bar - Cold Phase(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, RelaxПродолжительность: 08:29:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:938E3E603B696ACF6E34F9526BE29425A0211AAD
+magnet:?xt=urn:btih:C13FC9A61CF442F32EB943A9E8C549CFCFF5CFDA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524879   (130379) от 18.01.2022
+###  Публикация: 1525688   (129198) от 21.01.2022
 
-Audiority - Echoes T7E MkII 2.1.4 VST, VST3, AAX (x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Echoes T7E - точная модель винтажного лампового магнитного эхо, созданного в Италии в ранние 60 годы.
-Этот блок эхо-эффекта основан на магнитном вращающемся барабане, в котором расположены как записывающие, так и воспроизводящие головки, расположенные вокруг регистрирующего провода-телеграфа, намотанного вокруг окружности барабана. Это решение обеспечивает лучшую (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7DA685B207706C1E0971D808D6C3442EA23CE6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524899   (130380) от 18.01.2022
-
-Roxette - Look Sharp! (30th Anniversary Edition) (2022) [AAC|~333 Kbps] <Pop, Rock>
+Sketch 82.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.01. The Look (3:57)
-1.02. Dressed For Success (4:10)
-1.03. Sleeping Single (4:38)
-1.04. Paint (3:30)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:46:35
+Сделайте набросок графического дизайна для цифрового мира. Мощные инструменты и элегантный интерфейс в одном отмеченном наградами пакете. Потому что создание красивых вещей должно быть радостью, а не обузой.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © 2022 Sketch B.V.Поддерживаемая ОС: macOS 10.15 or laterЯзык интерфейса: Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDE3CF52545F1AF2467FD309F12CAF69C36D1101
+magnet:?xt=urn:btih:7B8B9CD3851BADB9A5DA808A5F0BE7FF7266E3C1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491535   (130381) от 03.05.2012
+###  Публикация: 488805   (129200) от 27.04.2012
 
-Gardenscapes: Mansion Makeover. Collector's Edition / Дивный сад 2. Академия ремонта. Коллекционное издание (L) [Ru] 2012
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130381.jpg" />
-</div>
-
-
-###  Подробнее
-
-В старинном имении всем заправляет обаятельный Остин. Совсем недавно расторопный дворецкий с вашей помощью превратил запущенный сад в прекрасный парк — с аллеями, беседками и фонтанами. Получится ли у него навести такой же идеальный порядок и в огромном особняке?Тип издания: ЛицензияРазработчик: Playrix EntertainmentЖанр: Казуальная, Квест, Логическая, Я ищуЯзык озвучки: АнглийскийЯзык интерфейса: Русский (официальная версия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204F102C7966347EE761EB0E2C8721051C04CFFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524928   (130382) от 18.01.2022
-
-ON1 Effects 2022.1 v16.1.0.11675 [Multi/Rus]
+VA - Клубные Новинки Vol.66 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Окончательная коллекция фотоэффектов, фильтров, LUT и пресетов. ON1 Effects включает в себя сотни встроенных фотоэффектов, фильтров, LUT, границ, текстур и пресетов - все это полностью настраивается под ваш стиль. Есть бесконечные творческие возможности с эффектами ON1. Наши самые популярные включают HDR Look, B & W, Lens Blur (tilt-shift), Glow, Color Enhancer, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+01. Orjan Nilsen - Amsterdam (Original Mix)
+02. Julian Vincent feat. Shannon Hurley - Lost In Space (Mark Otten's Original Mix)
+03. Cathy Burton & Omnia - Hearts Connected (Skytech Remix)
+04. Serge Devant feat. Rachael Starr - You & Me (Extended Mix)
+05. Tiesto & Swanky Tunes feat. Ben McInerney - Make Some Noise (Original Mix)
+06. Serge Devant & Danny Inzerillo feat. Polina - When You Came Along (Extended Mix)
+07. Solarstone feat. Clare Stagg - The Spell (Pulser Mix)
+08. Snatt & Vix feat. Neev Kennedy - At The End Of The Day (Original Mix)
+09. Paul Van Dyk feat. Michelle Leonard - Lost In Berlin
+10. Доминик Джокер - Если Ты Со Мной (DJ Stylezz Remix)2012Жанр: Club, DanceПродолжительность: 04:22:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D341D5BB990912B52ECCACC7DB3F674B45D6833F
+magnet:?xt=urn:btih:FA8A4B1413DADFFB4F4D27A1FDB1F61AF71F2B1C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524934   (130384) от 18.01.2022
+###  Публикация: 1525639   (129201) от 21.01.2022
 
-ON1 NoNoise AI 2022.1 v16.1.0.11675 [Multi/Ru]
+Nocturna - Daughters Of The Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это лучшее программное обеспечение шумоподавления для фотографии. Быстро удаляйте шумы и получайте самые четкие детали на фотографиях с ON1 NoNoise AI. Приложение разумно удаляет все шумы изображения, разумно восстанавливая и улучшая детали. Оно интегрируется в ваш рабочий процесс, поддерживая распространенные фоторедакторы и форматы файлов, в том числе сохраняя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+01. Spectral Ruins
+02. New Evil
+03. Daughters Of The Night
+04. The Sorrow Path(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:36:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4498DFCF04ACD16615A1E3816DA08206A30B6B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524943   (130386) от 18.01.2022
-
-ON1 Resize 2022.1 v16.1.0.11675 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130386.jpg" />
-</div>
-
-
-###  Подробнее
-
-ON1 Resize (ранее известный как Perfect Resize Standard) - это простое приложение для изменения размера изображений, которое предоставляет набор инструментов, предназначенных для подготовки ваших фотографий к печати. Организовать и изменить размер. ON1 Изменение размера стало намного лучше. NEW ON1 Resize теперь включает в себя один из самых быстрых способов просмотра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70DA37E8CA0AA6A03A8ABFF4725130EEAD11454
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491323   (130387) от 03.05.2012
-
-Port Royale 3 Pirates Merchants [Ge] (RePack) 2012 | R.G.BoxPack
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие Port Royale 3 развернется на Карибских островах в XVII веке, во время борьбы Англии, Испании, Франции и Голландии за господство в Карибском бассейне. Игрок будет молодым капитаном, пытающийся сколотить состояние и приобрести репутацию в Новом Свете. Для достижения своих целей будет предложено два пути: авантюрист-пират или торговец. Тех кто выберет путь пирата ждут различные рейды, охота за головами, грабеж и захваты городов. А торговцу придется задействовать все свои умения, чтобы стать самым влиятельнымbestgamer.net негоциантом в Новом Свете. В дополнение к одиночной компании будут мультиплеерные режимыТип издания: RePacкЖанр: Strategy (Manage/Busin. / Real-time) / 3DЯзык озвучки: НемецкийЯзык интерфейса: Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BCFBEF4FD2971B76E9DF09C1E1CA2F3152110DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524933   (130388) от 18.01.2022
-
-ON1 HDR 2022.1 v16.1.0.11675 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130388.jpg" />
-</div>
-
-
-###  Подробнее
-
-ON1 HDR создает безупречные, естественные фотографии HDR, которые в мгновение ока сочетают детали светлых и темных участков из набора экспозиций. Вы можете управлять движением, таким как облака и вода, с помощью предварительного просмотра в реальном времени. Затем улучшайте свои HDR-фотографии с помощью мощных инструментов и пресетов, которые демонстрируют ваше творчество. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9BC06D8262684E19D1DBA705F730600F38D207F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524979   (130390) от 18.01.2022
-
-Focusplan Pro - Mind Map 1.6.12 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Focusplan - это мощное, полнофункциональное и гибкое приложение для картирования мыслей и мозгового штурма для всех. Оно помогает фиксировать, развивать и делиться своими концептуальными идеями, превращая их в потрясающую интеллектуальную карту.Тип издания: macOS SoftwareРелиз состоялся: 17.01.2022Разработчик: © 2019-2022 FocusplanПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE3FED17C27C8D85E0C81115913C3C04B7BD3BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524961   (130392) от 18.01.2022
-
-Ирина Богданова | Сказка о весёлых чудесах и их маленькой хозяйке (2022) [MP3, Марина Маслова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда в сказках случается так, что детские рисунки оживают. А если на одном из них нарисована озорная малышка с волшебной палочкой? Вот тогда с ребятами в детском саду и приключаются весёлые чудеса, которые помогают им крепко подружиться, перестать капризничать, полюбить природу и стать мамиными помощниками.
-Кроме того, большим и маленьким читателям наша чудесница (   Читать дальше...   )Жанр: СказкаПродолжительность: 05:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0691CF811A8426DD682FCA8C881C6AB56EE1C0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491565   (130394) от 03.05.2012
-
-Люди в черном 2 / Men in Black II (2002)  [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130394.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Люди в черном 2» продолжает рассказ о приключениях двух элитных полицейских — агента Кея и агента Джея среди инопланетян. Со времени их предыдущих похождений прошло четыре года.
-Все эти годы агент Кей вел размеренный образ жизни, в то время как агент Джей продолжал бесстрашно трудиться в рядах самой секретной организации в мире. Расследуя самое обычное дело, агент Джей натыкается на следы дьявольски изощренного заговора, задуманного Серлиной, злобным монстром, обитающим на Земле в образе сексуальнейшей модели.
-Когда события принимают угрожающий оборот, агенту Джею приходится обратиться за помощью к своему бывшему напарнику, который мирно трудится в Почтовом Департаменте. За короткое время агенту Джею надо убедить агента Кея помочь ему — ведь только он может помочь спасти Землю от порабощения и уничтожения.Жанр: Фантастика, Боевик, КомедияРежиссер: Барри ЗонненфельдАктеры: Томми Ли Джонс, Уилл Смит, Рип Торн, Лара Флинн Бойл, Джонни Ноксвил, Розарио Доусон, Тони Шэлуб, Патрик Варбертон, Джек Келер, Дэвид КроссПеревод: ДублированныйЯзык субтитров: АнглийскиеПродолжительность: 01:28:09
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491387   (130395) от 03.05.2012
-
-Боже, благослови Америку / God Bless America (2011) [720p] HDTVRip
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк просто выдохся: сосед-невежа, постоянный плач ребенка, глупая болтовня коллег, и в довершение всего — ещё и опухоль мозга. Достав пистолет, уставший от жизни герой находит для себя неожиданного друга и союзника по имени Рокси. Это девушка-студентка, проявляющая нетерпимость к идиотам вокруг и мыслящая в точности, как и Фрэнк. Он даёт ей уроки стрельбы, а она ему — цели, которые нужно поразить.Жанр: КомедияРежиссер: Боб ГолдтуэйтАктеры: Джоэль Мюррей, Тара Барр, Маккензи Брук Смит, Мелинда Пейдж Хэмилтон, Рич МакДональд, Андреа Харпер, Дэвид Менденхолл, Джулиана АкостаПеревод: Двуголосый закадровый, профессиональныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:44:24
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:4AEDA42112A9F6D6D84B490EFCAA55684BEC2180
 ```
 
 

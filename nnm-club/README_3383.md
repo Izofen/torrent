@@ -1,696 +1,674 @@
-###  Публикация: 1728210   (108319) от 07.06.2024
+###  Публикация: 1731583   (107650) от 21.06.2024
 
-Bane Gluvakov - Awake (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Ervin Pope - Anomaly (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107650.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. No Love Song (4:46)
-02. High on You (3:32)
-03. Keep Me out of Trouble (4:02)
-04. Flatland Romance (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:39
+01. Khaiden Defines Anomaly (1:12)
+02. Anomaly (3:26)
+03. Aiesha Johnson (3:34)
+04. Sunshine (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:21:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAB0668BB1BE71AF4455542A093F943D23CCE66B
+magnet:?xt=urn:btih:52053CC7E39C02D0FDB6A3D9E4281FA53B9EEDEA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728432   (108320) от 07.06.2024
+###  Публикация: 1731586   (107651) от 21.06.2024
 
-Reverend Hound - Deal In Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+John Klemmer - Chateau Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chateau Love Intro (2:05)
+02. Love Divine (5:46)
+03. Heartbeat (5:17)
+04. Smile (3:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD7E2811E003DA955EF9C7304AEE70C13B36673
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731580   (107652) от 21.06.2024
+
+Bill Banfield - Hybridity (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Thumb (4:54)
+02. Jesse T (7:43)
+03. Spring Forward (4:45)
+04. Losing Absolam (9:53)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533054F8995AD3C58D131B4F138238AFEF2E77F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731582   (107653) от 21.06.2024
+
+Christian Galvez - LEVE (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LEVE (8:46)
+02. PURE (8:53)
+03. MODAL CHANGES (7:39)
+04. FOR MINGUS (10:56)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633440A5B4BD56B273D33A1252E3B4A418B2EE6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731585   (107654) от 21.06.2024
+
+Jimmy Haslip, Kevin Crockett & Richard D. Ruttenberg - Cold Fusion (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swan (3:25)
+02. Charisma (3:57)
+03. Castles (0:51)
+04. Cold Fusion (4:40)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:26:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF555014011872515119A29DC7E1857B394E4DE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731535   (107655) от 21.06.2024
+
+Sonny Rollins - Silver City: A Celebration Of 25 Years On Milestone (1972 - 1995) 2CD, 1996, Milestone [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. McGhee [4:19]
+02. Someone to Watch over Me [9:40]
+03. I'm Old Fashioned [6:27]
+04. Just Once [3:26](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 02:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC51767804287B7789617416E352124CA0B92BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731394   (107656) от 21.06.2024
+
+Malignancy - Eugenics (2012) [FLAC|Lossless|image + .cue] <Brutal Technical Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107656.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. The Night
-2. Hounds Of The Sea
-3. Days Of Wrath
-4. Glory(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:51:53
+01. Untitled (Intro)
+02. Type Zero Civilization
+03. Eugenics
+04. Extinction Event(   Читать дальше...   )Жанр: Brutal Technical Death MetalПродолжительность: 00:32:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6AD8B409CFEEA965B83330E02D8734B70F9E9E35
+magnet:?xt=urn:btih:845CEAE06AACB7152E3BB1BC2142B79855160F16
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728222   (108321) от 07.06.2024
+###  Публикация: 1731669   (107657) от 21.06.2024
 
-Dave Williams - Open to Persuasion (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Membaris - Poetry of Chaos (2004) [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107657.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crushed (3:32)
-02. Full (4:18)
-03. It Was Impossible (5:45)
-04. Love on the Road (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:12
+01. Intro (02:03)
+02. Planetary Rites (Deflowering The Christian Whore) (07:00)
+03. Silence (04:28)
+04. Where No Light Exists (05:05)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:49:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96F39466186BD4C483FC6C7545F11FC3E3641D53
+magnet:?xt=urn:btih:80D36CD2F66A0A11CE8AE05C99D3E7159C9040FD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728267   (108322) от 07.06.2024
+###  Публикация: 1731539   (107658) от 21.06.2024
 
-Jack Hadley - The St. Louis Sessions, Vol. II (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Malignancy - Intrauterine Cannibalism (1999) [FLAC|Lossless|image + .cue] <Brutal Technical Death Metal>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107658.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Blues Made Me Strong Again (4:21)
-02. Afraid to Love (6:17)
-03. Always Enough Blues (6:05)
-04. Let's Say It's Over (5:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:25
+01. Rotten Seed
+02. Intrauterine Cannibalism
+03. Intestinal Sodomy
+04. Internal Corruption(   Читать дальше...   )Жанр: Brutal Technical Death MetalПродолжительность: 00:33:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C66E8E1D4A95AA856954E9CFE3DD08AC22770792
+magnet:?xt=urn:btih:58EB9897C4C26E1D44B8617CD71844492E3DD0B3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728512   (108323) от 07.06.2024
+###  Публикация: 1731574   (107659) от 21.06.2024
 
-Jack McDuff - Legends of Acid Jazz: Brother Jack (1960, 1961) 1999, Prestige [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brother Jack [4:04]
-02. Mr. Wonderful [3:57]
-03. Noon Train [5:56]
-04. Drowsy [3:42](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A953044CA44A2592EC3424C3B91BAAA7D0189145
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728523   (108324) от 07.06.2024
-
-Darko Us - Starfire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <progressive metalcore, deathcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starfire (1:14)
-02. Distant World (feat. Storm Strope (ex-The Last Ten Seconds of Life)) (4:27)
-03. Death Charge (feat. Marc Zelli of Paleface Swiss) (3:33)
-04. 5D (3:57)(   Читать дальше...   )Жанр: progressive metalcore, deathcoreПродолжительность: 01:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F17E82DAEBDD07EC6FD4CA406145485DC5A471
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728507   (108325) от 07.06.2024
-
-Sonny Stitt - 1946 – 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
+Another 247 Production and Dayrod - Blast (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107659.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Be Bop in Pastel (Bouncing with Bud) [2:58]
-02. Fools Fancy (Wail) [2:35]
-03. Bombay [2:55]
-04. Ray's Idea [2:47](   Читать дальше...   )Жанр: BopПродолжительность: 01:03:30
+01. Air Tight (3:37)
+02. Always (4:07)
+03. Brighter Day (4:10)
+04. Designed for You (3:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:30:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5DB1E451D335E407DBE883A330B2FDBBDB90168
+magnet:?xt=urn:btih:63C45AB045F56EAD9B3A814783726C4CF5138F51
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728448   (108326) от 07.06.2024
+###  Публикация: 1731649   (107660) от 21.06.2024
 
-Half Heard Voices - Moon Burial (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
+Malignancy - Ignorance Is Bliss (2001) Compilation [FLAC|Lossless|image + .cue] <Brutal Technical Death Metal>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sharp and Constant (2:06)
-02. Earning Your Evil (3:50)
-03. Familiar Ghosts (5:18)
-04. The Teeth I Remember (3:21)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:43:54
+01. Rotten Seed
+02. Ignorance Is Bliss
+03. Your Life Is Shit
+04 Post Fetal Deppression(   Читать дальше...   )Жанр: Brutal Technical Death MetalПродолжительность: 00:44:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC41167E99FE02AD389460DAD3CD3262B599311A
+magnet:?xt=urn:btih:FEE0CA33B1422957361E82EB03F5A75941E0A1C6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728502   (108327) от 07.06.2024
+###  Публикация: 1731552   (107661) от 21.06.2024
 
-Billy Taylor - 1945 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+Seven Spires - A Fortress Called Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107661.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Monk's Mood (Mad Monk) [2:39]
-02. Solace [2:35]
-03. Night and Day [2:43]
-04. Alexander's Ragtime Band [2:46](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:02:26
+01. A Fortress Called Home
+02. Songs Upon Wine-Stained Tongues
+03. Almosttown
+04. Impossible Tower(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:04:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D95F59CA3EA78F4ED6012023E6F05C549E9F053E
+magnet:?xt=urn:btih:371CBC261749DF7C7E66F779E946560D1595AE15
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728262   (108328) от 07.06.2024
+###  Публикация: 1731566   (107662) от 21.06.2024
 
-Hammerhead Blues - After The Storm (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
+Speedtest от Ookla 5.4.3 Mod by Balatan [Ru/Multi]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107662.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Black Abyss (5:07)
-02. Around the Sun (5:03)
-03. Windmill's Kiss (4:31)
-04. Shades of Blue (3:35)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:58:20
+Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 18.06.2024Разработчик: OoklaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FFA882EB120E71AA87679BC22D91EC68BEEAAEE
+magnet:?xt=urn:btih:0A3D4EF9ADA13E532E8D55B6F15327D5000A9F27
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728437   (108329) от 07.06.2024
+###  Публикация: 1731388   (107663) от 21.06.2024
 
-VA - The Deep Collective - Deep Echoes (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Organic House, Downtempo>
+3force - Unleash (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Down [00:03:32]
+02. Voyager [00:03:13]
+03. Unleash [00:03:24]
+04. Meet the Devil [00:03:57](   Читать дальше...   )Жанр: Synthwave, DarksynthПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D883A7F89CB6A98F236AA864B6557CA04807E0F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731467   (107664) от 21.06.2024
+
+Topaz Gigapixel AI 7.2.0 RePack (& Portable) by elchupacabra [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz A.I. Gigapixel — это приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются.
+Эти традиционные методы (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A37E41D093C64BBE6FB1B2FED2EF3E651682A10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731502   (107665) от 21.06.2024
+
+Эмма Райц | Фенрир (Книга 2). Коллекционер ошибок (2024) [MP3, Владимир Суменков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда есть смысл опуститься на самое дно. От него удобнее оттолкнуться, чтобы попытать счастья и вернуться на поверхность. Андрей Давыдов своё дно пока ещё нащупывает. Кажется, вот оно, но нет. Он гордо добавляет в свою коллекцию всё новые и новые ошибки, заставляя даже самых близких людей с разочарованием отворачиваться от него. Готов ли он пожертвовать гордостью, (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 08:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85FC2BF5EDD49A0C389B0F816F8532EF7D27BE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730878   (107666) от 21.06.2024
+
+Fresh & Lipps - Be My Lover 2012 (2012) [FLAC|Lossless|tracks] <Euro House, Deep House, Club House, Funky House>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Claus Pieper - Music Is My Love (8:04)
-02. Darles Flow - Going Home (6:38)
-03. Ivory Coats - Living the Dream (5:44)
-04. Gift of Africa - Ecstasy (6:12)(   Читать дальше...   )Жанр: House, Organic House, DowntempoПродолжительность: 01:29:21
+01. Fresh And Lipps - Be My Lover 2012 (radio edit) (3:34)
+02. Fresh And Lipps - Be My Lover 2012 (extended) (5:35)Жанр: Euro House, Deep House, Club House, Funky HouseПродолжительность: 00:09:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1BB732AC72B60BA2B14CE031BAB26DFAA734F6D
+magnet:?xt=urn:btih:4234F981EA3BA409D38645FFC6BEB9F3F2113084
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728522   (108330) от 07.06.2024
+###  Публикация: 1731427   (107667) от 21.06.2024
 
-Cactus - Temple Of Blues: Influences And Friends (2024) [FLAC|Lossless|tracks] <Rock, Blues>
+VA - Future Sounds Of Kraut, Vol. 2 - compiled by Fred und Luna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip-hop, Indus, Synthwave, Electro-Synthpop, Downtempo>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Барабанщик Кармайн Эппис (Carmine Appice) объявил о выходе нового альбома культовой группы 70-х Cactus. Альбом “Temple of Blues - Influences & Friends” - это продолжение диска "Tightrope" 2021 года, в котором приняли участие множество звезд, включая Джо Бонамассу, Ди Снайдера, Пэта Трэверса, Уоррена Хейнса, Вернона Рейда, Стива Стивенса, Теда Ньюджента, (   Читать дальше...   )01. Parchman Farm (feat. Joe Bonamassa & Billy Sheehan) (03:06)
-02. Bro. Bill (feat. Randy Jackson, Randy Pratt, & Bob Daisley) (04:50)
-03. Guiltless Glider (feat. Bumblefoot & Phil Soussan) (06:12)
-04. Evil (feat. Dee Snider & dUg Pinnick) (03:17)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:16:54
+01. Intro (Future Sounds Of Kraut 2) [00:02:47]
+02. Angekommen in der letzten Reihe [00:06:32]
+03. Vertical Section [00:02:12]
+04. Monotonikum (Edit) [00:04:46](   Читать дальше...   )Жанр: Trip-hop, Indus, Synthwave, Electro-Synthpop, DowntempoПродолжительность: 01:15:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A7F6615CA4DF7060D000B4253CC811A2FBECA90
+magnet:?xt=urn:btih:287DF90C9C03812ABC85EB0BFC95CB544B470BE7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728511   (108331) от 07.06.2024
+###  Публикация: 1731572   (107668) от 21.06.2024
 
-Александр Пушкин | Сборник сказок для детей (2012) [MP3, Альберт Филозов и др.]
+Семин, DESSAR, Штерк - НЕО (2024) WEBRip [H.264/1080p-LQ]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Театр одного актёра. Сказки для детей.
-Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
-Написанные в народном духе и стихотворной форме, сказки А.С.Пушкина по сей день остаются первыми произведениями детей, с которых начинается (   Читать дальше...   )Жанр: Русская литература для детей, классика, поэма, сказкаИздательство: ООО «АрМир»Продолжительность: 04:11:34
+Жанр: RapПродолжительность: 00:04:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E43525EF2ECE65B24CDC023B645552368A78FFCE
+magnet:?xt=urn:btih:CAD243919078A9965DB97853F78B6FA134308199
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728352   (108332) от 07.06.2024
+###  Публикация: 1731500   (107669) от 21.06.2024
 
-VA - DJ Hits 34 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+Марина Серова | Частный детектив Татьяна Иванова. Имя убийцы (2024) [MP3, Елена Пикунова]
 
->>Pop
->>Зарубежная поп-музыка
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Olli's Club - It's Allright (Euro Radio Edit)
-02. Mata Hari - Spy In The Name Of Love (Spy Remix)
-03. Sultans of Dance - Move On Your Body (Radio Edit)
-04. Freak Brothers - Funky Feeling (Funky Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:59:21
+Ах, как не любит частный детектив Татьяна Иванова влезать в чьи-то семейные дрязги. Да и не практикует она слежку за неверными супругами. Но если клиент так обаятелен…… Что ж, она возьмется за дело. Компромат собран быстро, только вот заказчик – обманутый муж, президент крупной компании и просто красавец-мужчина – вдруг оказался на больничной койке. Случайно? Опытная (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 04:10:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E60773A5B7C2F2CE0113069B8171AA2F346CE17
+magnet:?xt=urn:btih:A07AC08E9E1FDF9236D0D6DA621C86730D575757
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728216   (108333) от 07.06.2024
+###  Публикация: 1731567   (107670) от 21.06.2024
 
-Blue Deal - Can't Kill Me Twice (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Speedtest от Ookla 5.4.3 Mod by PieMods [Ru/Multi]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Short Time Runner (2:31)
-02. Hard Times (3:27)
-03. Got 2 Go (4:08)
-04. Favorite Mistake (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:41
+Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 18.06.2024Разработчик: OoklaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31CC75A5C3614E8193B4838DBB187DCFE5702CB1
+magnet:?xt=urn:btih:401A67297FA4F6FD492D2421560B6A25F88AEDE5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728212   (108334) от 07.06.2024
+###  Публикация: 1731632   (107671) от 21.06.2024
 
-Black Cat Bones - Troublemaker (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Кикос (1931) WEBRip [H.264/720p]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bad Enough (4:07)
-02. Jekyll And Hyde Woman (4:23)
-03. Troublemaker (3:29)
-04. Junkie (4:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:26
+По одноименной повести М.Дарбиняна.
+О судьбе простого наивного крестьянина, который попеременно оказывается во враждующих лагерях, но в конце концов выбирает Красную Армию.Производство: СССР / АрменкиноЖанр: комедия, военный, немое киноРежиссер: Патвакан БархударянАктеры: Амвросий Хачанян, Грачья Нерсисян, Авет Аветисян, Христофор Абрамян, А. Ашимова, Михаил Гарагаш, Василий Ильин, Сурен Кочарян, К. Когамов, Амаси МартиросянСубтитры: русские (интертитры)Продолжительность: 00:50:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AF9693F4A25EC4C08C4564702006AF5C61F9BE8
+magnet:?xt=urn:btih:18566050B4A0FB37B437D7C18EA4129F79A4F02E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728539   (108335) от 07.06.2024
+###  Публикация: 1731473   (107672) от 21.06.2024
 
-Cactus - Temple Of Blues: Influences And Friends (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
+Катя Москвич | Нейтронные звезды (2022) [MP3, Игорь Гмыза]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Барабанщик Кармайн Эппис (Carmine Appice) объявил о выходе нового альбома культовой группы 70-х Cactus. Альбом “Temple of Blues - Influences & Friends” - это продолжение диска "Tightrope" 2021 года, в котором приняли участие множество звезд, включая Джо Бонамассу, Ди Снайдера, Пэта Трэверса, Уоррена Хейнса, Вернона Рейда, Стива Стивенса, Теда Ньюджента, (   Читать дальше...   )01. Parchman Farm (feat. Joe Bonamassa & Billy Sheehan) (03:06)
-02. Bro. Bill (feat. Randy Jackson, Randy Pratt, & Bob Daisley) (04:50)
-03. Guiltless Glider (feat. Bumblefoot & Phil Soussan) (06:12)
-04. Evil (feat. Dee Snider & dUg Pinnick) (03:17)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:16:54
+Помогут ли самые загадочные в астрономии космические тела человечеству в межзвездных путешествиях?
+Нейтронные звезды остаются одними из самых загадочных объектов во Вселенной. В то время как черные дыры уже успели привлечь внимание специалистов и общественности, нейтронные звезды изучены и оценены в гораздо меньшей степени. В своей книге научная журналистка Катя (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: CorpusПродолжительность: 13:08:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:960B48E91032820ED5AD240D9EC9396B6A1D3720
+magnet:?xt=urn:btih:3293604AE691A10ECD96BB1765E3662C27797CD6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728364   (108336) от 07.06.2024
+###  Публикация: 1727503   (107673) от 21.06.2024
 
-VA - DJ Hits 35 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+Игра ва-банк / Двойные ставки на Юге / Double Down South (2022) WEB-DLRip [H.264/1080p] [DVO] [AD]
 
->>Pop
->>Зарубежная поп-музыка
+>>
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tokyo Ghetto Pussy - Everybody On The Floor (Pump It) (Pump It - Remix)
-02. One Love Feat. Marky Mark - That's The Way I Like It (Club Mix)
-03. Mr. President - Gonna Get Along (Without Ya Now) (Extended)
-04. Joe Samba Jr. feat. African Vibes - I Like Summer (Radio Remix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:11:49
+В старом особняке в штате Джорджия всегда людно. Владельцы его ежедневно устраивают бильярдные матчи, на которые со всей страны стекаются бездельники, надеющиеся подзаработать катанием шаров по зелёному сукну. Заправляет бильярдной жестокий, неприветливый скряга Ник, который установил здесь свои суровые правила, за нарушение которых могут и до полусмерти побить. (   Читать дальше...   )Производство: США / Benacus EntertainmentЖанр: триллер, драмаРежиссер: Том ШульманАктеры: Ким Коутс, Лили Симмонс, Игби Ригни, Том Бауэр, Джастин Марсель МакМанус, Ребекка Лайнс, Камерон Копертуэйт, Джефф Трачта, Джон Ливайн, Т.С. Анячонкея и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:05:00Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DAACD6E1016C4747A9335A21C1F649C08AFA4F3
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728266   (108337) от 07.06.2024
+###  Публикация: 1731575   (107674) от 21.06.2024
 
-Ian Hunter - Defiance Part 2: Fiction (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Classic Rock>
+VA - Sunset Party (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. People (5:01)
-02. Fiction (5:39)
-03. The 3rd Rail (3:19)
-04. This Ain't Rock And Roll (3:47)(   Читать дальше...   )Жанр: Blues, Classic RockПродолжительность: 00:41:46
+01. N.E.O.N & Dellahouse - No More (05:34)
+02. Sharapov - Bring Me Back (04:21)
+03. Cristian Ferrer - Not Alone (Sharapov Radio Edit) (03:26)
+04. Anton Ishutin - Always (05:28)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:22:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:999081AAFEEACA4A35950DAE7F860C877EC3A1DE
+magnet:?xt=urn:btih:AA584C256854C2D25A64BEA4CAD4CBE974D58458
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728407   (108338) от 07.06.2024
+###  Публикация: 1730997   (107675) от 21.06.2024
 
-The Iron Bees - РЖАВЫЙ ТРОМБОН (2024) [MP3|320 Kbps] <Ska, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108338.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Парнишка молодой
-2. вздрынч
-3. Окурок на глазах
-4. Заводская(   Читать дальше...   )Жанр: Ska, PunkПродолжительность: 00:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12EC39C4556DCDC4BC5B0BD6E2ED4EE390CD71B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728451   (108339) от 07.06.2024
-
-VA - Armin van Buuren - A State Of Trance 1176 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Markus Schulz - Global DJ Broadcast World Tour: Buenos Aires, Sao Paulo and Montreal 2024 (2024-06-13) [MP3|320 Kbps] <Progressive House, Trance, Techno>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107675.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ilan Bluestone - Echoes Of Courage
-02. Krevix & Hadriani - Your Life (Future Favorite)
-03. Matt Fax - Frost (Progressive Pick)
-04. Cubicore - Glow(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:40
+Markus Schulz (Recorded Live from Stereo in Montreal - June 1 2024)
+01. Frankyeffe - Kill Me
+02. DJ Ghost & Armani - Hit Hard Baby (WTF)
+03. Lilly Palmer - Hare Ram(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:01:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4DF62925E596520865B1D13E3D79897B057A8AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728270   (108340) от 07.06.2024
-
-Jamie Lockhart - Ship Fools (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ship of fools (5:19)
-02. Devils mistress (5:26)
-03. Getting rougher (4:34)
-04. Mary Brown (5:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443572D409FDF532C653939CED8CC4DE40D264B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728504   (108341) от 07.06.2024
-
-Louis Armstrong - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mop Mop [5:18]
-02. Blues [2:52]
-03. Esquire Bounce [1:58]
-04. Basin Street Blues [3:56](   Читать дальше...   )Жанр: Dixieland, New Orleans Jazz, SwingПродолжительность: 01:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79B3129F4B3419714352FBBD2F10F610E8C809F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728562   (108342) от 07.06.2024
-
-DarWin - Five Steps On The Sun (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Police (3:53)
-02. Inside This Zoo (5:23)
-03. Be That Man (5:18)
-04. One Step on the Sun (1:32)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69EC687915CD5476C92255D91ABA6B1E1B72869
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728416   (108343) от 07.06.2024
-
-Екатерина Гопенко | Весьма вероятные приключения Морского Конька и его невозможной команды (2024) [MP3, Екатерина Гопенко]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ровно в четыре часа я выползала на палубу, дабы лежать и страдать, пока мои товарищи вели корабль. Чтобы скрасить их ночи, я вначале рассказывала морские сказки – кельтские, скандинавские, испанские и французские. А когда известные сказки закончились, начала сочинять на ходу, вплетая нашу общую реальность в воображаемый мир. История продолжалась. Герои писались с (   Читать дальше...   )Жанр: Приключенческая художественная литератураИздательство: Аудиокнига своими рукамиПродолжительность: 02:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD9F533BB4348936F299DE860D47EBE91CADF58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728229   (108344) от 07.06.2024
-
-Guitarbo' - Old Boxer (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Crows Keep Your Grave Clean (4:16)
-02. Nobody Is Free (6:06)
-03. Streets Of My Life (5:26)
-04. Old Boxer (5:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BC1C8010376A76610F2742E9241C4732A11AA0
+magnet:?xt=urn:btih:744B2F06E4533C35FCDC433726356F297B55E759
 ```
 
 

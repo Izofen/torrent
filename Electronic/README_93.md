@@ -1,3 +1,57 @@
+###  Публикация: 1195652   (139119) от 31.12.2017
+
+VA - Gate 2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kiyoi & Eky  -  Turn Back The Rain (Mark Van Gear Remix)  8:09
+02.  Enfortro  -  We Came To Conquer (Veizo Remix)  7:18
+03.  DJ Jhonny Vergel  -  Heart's Desire (Shane Infinity Remix)  6:14
+04.  Gregorio Costantino  -  Temperantia (Original Mix)  6:45(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E24C91564471E2B44539ADA4A7FA360AAEC847F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088477   (139173) от 31.12.2016
+
+VA - Deep Dark and Sexy Vol.1: Finest Deep and Elektro House (2016) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buben - My Oxygen
+02. Poenitsch & Jakopic - Two People - Radio Edit
+03. Maksim Biserov - Shambhala Residents
+04. Christos Fourkis - Come In My Life(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6F9927924E7A7AFABC101C8464B99970346201
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088439   (139282) от 31.12.2016
 
 VA - Suanda Music Year Mix 2016 (Mixed by Roman Messer) (2016) [MP3|320 Kbps] <Trance>
@@ -641,60 +695,6 @@ VA - Focus Me: Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F67E1E5338154EACAD2B0ACAA81E8B4C8AF9B21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272778   (141380) от 29.12.2018
-
-VA - Future Sound of Egypt - Best Of (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila with Emma Hewitt - You & I (Club Mix)
-02. Giuseppe Ottaviani - Till The Sunrise (Original Mix)
-03. James Dymond - Stay (Original Mix)
-04. Roger Shah & Aisling Jarvis - Hold Your Head Up High (Aly & Fila Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:436D66DE13CD92E9E2B73ACC919D992047733D37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272916   (141445) от 29.12.2018
-
-VA - Happy New Year Party 2019 (2018) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teknova - Ievan Polkka 2K18 (Melbourne Bounce Mix) 03:22
-02. FLGTT - Por Que No 2K19 (Radio Edit) 03:26
-03. MaxRiven - Moonlight Shadow (Original Mix) 03:37
-04. Turbotronic - Move That Body (Original Mix) 04:03(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63886F6F4CD055C4CFD09A8CA9A4A39C22DA4A51
 ```
 
 

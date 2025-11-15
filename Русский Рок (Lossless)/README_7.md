@@ -485,6 +485,134 @@ magnet:?xt=urn:btih:C021000E34D91730D7BFCFB1DB9FBE23731E84DA
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465636   (96242) от 10.03.2012
+
+VA - Masterland.com - 10 Лет В Сети (2012) [FLAC|Lossless]<Heavy / Power  / Death  / Black  / Thrash  / Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алексей Страйк и группа Страйкъ  - "Твой Грех"
+02. Melancholy - "Tomorrow's Dream"
+03. Чёрный Обелиск - "1000 Лиц"
+04. Margenta (Династия Посвященных) - "Я Искала Тебя"
+05. Everlost - "Шагни За Край"
+06. Aillion - "Зверь"
+07. Hell:On  - "Bottom Line"
+08. Icon in Me feat. Tara Teresa – "Tired & Broken"
+09. Форсаж - "Mastersland Of Freedom"
+10. Unrgace - "Drill A Hole In My Skull"(   Читать дальше...   )Жанр: Heavy  / Power  / Death  / Black  / Thrash  / Gothic MetalПродолжительность: 01:03:46
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466031   (96377) от 11.03.2012
+
+[T.3.R] - Романтика 21 века (2012) [FLAC|Lossless]<Goth, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96377.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Рождение нации (04:33)
+2. Лица (04:27)
+3. Эпитафия (04:00)
+4. Морфий (03:44)
+5. Апатия (04:10)
+6. Без тебя (04:51)
+7. Романтика (03:30)
+8. Давай? (03:34)
+9. Zuruck: 1,2 (04:33)
+10. Пустые тела (03:05)(   Читать дальше...   )Жанр: Goth, IndustrialПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474463   (97877) от 28.03.2012
+
+Nightside Glance - 2 альбома (2009 - 2011) [FLAC|Lossless]<Sympho Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightside Glance — белорусская sympho/modern/black metal группа, основанная в 2005 году и сразу зарекомендовавшая себя как яркий живой коллектив, с запоминающимся имиджем и мощной подачей материала. Музыкальная составляющая группы представляет собой жесткий, мелодичный саунд с элементами электронной музыки — метал, тяжелым локомотивом движущийся сквозь настоящее в будущее. За время своей деятельности Nightside Glance дали множество концертов на площадках Беларуси и России, где делили сцену с такими группами как: Vesania (PL), Thy Disease (PL), Christ Agony (PL), Luna Ad Noctum (PL), Vicious Crusade (BY), Rasta (BY), Mental Demise (UA) и др. На сегодняшний день Nightside Glance – одни из самых ярких представителей белорусской метал-сцены со своим сценическим имиджем и концертным шоу.01. Breaking Point 05:52
+02. Changing Lives 03:45
+03. Children (Robert Miles cover) 06:28
+04. Edge of Time (live) 07:35
+05. In Raven Claws (live) 06:18
+06. Masquerade of Piety (Vicious Crusade cover) 06:45Жанр: Sympho Black MetalПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480154   (99107) от 09.04.2012
+
+Электрические Партизаны - Р.В.И. (2011) [FLAC|Lossless]<Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вольная Ингрия (4:55)
+02. Ожог (2:42)
+03. NATO (2:30)
+04. Национальный Вопрос (3:47)
+05. Маргиналъ (2:07)
+06. На Своей Земле (Omal' Maal') (1:50)
+07. Жить Без Власти (4:22)
+08. Губернатор и Город (3:20)
+09. Песня-31 (2:55)
+10. British Petroleum (2:47)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768247   (100646) от 29.12.2024
 
 Алатор - Три Короля (2018) [FLAC|Lossless|tracks] <Power Metal, Rock>
@@ -642,114 +770,6 @@ magnet:?xt=urn:btih:CBD01FFC9B4D77621065CC9FF434DBB6E8C6FC58
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA543906E6EFE401E580068FB37D306992061E2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766806   (101152) от 22.12.2024
-
-Høstsang (Hostsang) - I-II (2022, 2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Линия Маннергейма [00:05:43]
-02. Беломорье [00:04:53]
-03. Сандармох [00:04:48]
-04. Воттоваара [00:04:48]Жанр: Alternative Black MetalПродолжительность: 2 CD, 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D8FD12EC502161A65C82712AF8E687B18819F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767487   (101163) от 22.12.2024
-
-Эпоха - Молот Ведьм (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Введение (03:14)
-02. Именем святой инквизиции (03:15)
-03. Обвинение и обоснование (01:08)
-04. Ведьм сжечь (03:57)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C922FAC2675A92ADB3C41C4D0CEE7A1FE92869E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766818   (101188) от 22.12.2024
-
-Mystericon - Иди И Смотри (2024) [FLAC|Lossless|tracks] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101188.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Эскапизм (00:05:00)
-✧ 02 - В Моих Руках (00:05:07)
-✧ 03 - Осенняя Печаль (00:05:03)
-✧ 04 - Неуловимое (00:05:26)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:145553012E10FFD72BC5E8AFE7956B109EE308BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766547   (101232) от 20.12.2024
-
-Эльтерс - Хроника Последнего Путешествия (2015) [FLAC|Lossless|tracks + .cue] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Затянутся льдом твои раны (4:32)
-02. Пламя битвы (4:52)
-03. Некромант (5:26)
-04. Хроника последнего путешествия (instrumental) (4:08)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C107BB85093DA4EEB5A44313B4B0B6450F2C313E
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1590508   (188754) от 14.11.2022
+
+VA - New Pop Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Dance, Hip Hop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ava Max - Million Dollar Baby
+02. Lizzo - About Damn Time
+03. Ed Sheeran - 2step (feat. Lil Baby)
+04. Alex Warren - Headlights(   Читать дальше...   )Жанр: Synthpop, Disco, Dance, Hip HopПродолжительность: 01:42:39 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5263B42AA4DFBE986CE2BCAB6A84514F501920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590574   (188757) от 14.11.2022
 
 VA - 60 minutes. Old School Dance Music vol.13 (mixed by Dj V) (2022) [MP3|320 Kbps] <Progressive Trance, Vocal Trance, Uplifting Trance>
@@ -666,33 +693,6 @@ VA - Compilation  Assorted rock, blues rock part  32 (2023) [MP3|320 Kbps] <Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D9C988A7B8D82ED4BCF7E2DCB4093705E24E4E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657834   (191822) от 06.09.2023
-
-VA - Compilation rock, blues rock,  part 33 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bleu Jackson - Women, Whiskey, Guns and Knives
-02. Bleu Jackson - Some Never Learn
-03. Bleu Jackson - Breakdown
-04. Jay Owens - Wishing Well(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A59D8D8A2D0E29027021788B24ED2E75D40C2D
 ```
 
 

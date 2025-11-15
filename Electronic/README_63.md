@@ -1,3 +1,57 @@
+###  Публикация: 1734358   (107123) от 03.07.2024
+
+VA - Trance Selected Vol. 1 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Kazal - Artemis' Love (Extended Mix) [6:54]
+02. Super Luminal - Dark Robe Lane (Extended Mix) [7:33]
+03. Steve Sunrise - Agua (Original Mix) [4:46]
+04. Static State (UK) - Transcended (Extended Mix) [7:03](   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2231E130BCF9B3DDCE48E58C40D2CB24DEF81FB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733848   (107205) от 01.07.2024
+
+VA - Live @ Pinkpop Festival Netherlands (2024) [MP3|320 Kbps] <Progressive House, Melodic House, Techno, Drum & Bass>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pendulum @ North Stage, Pinkpop, Netherlands 2024-06-22
+01. Pendulum - Napalm
+02. Pendulum - The Island, Pt. I (Dawn)
+03. Pendulum - The Island, Pt. II (Dusk)(   Читать дальше...   )Жанр: Progressive House, Melodic House, Techno, Drum & BassПродолжительность: 02:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F175951CB0B8EACF6669F11221A75B632A67977
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733604   (107215) от 30.06.2024
 
 Dwson - Jewels (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -640,58 +694,6 @@ Kryder - We Rave You Presents Hot & Current #21 (2024-06-06) [MP3|320 Kbps] <Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5156D2473D3BD6184B95A0AB9E8E1E9D1ACB4292
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731388   (107663) от 21.06.2024
-
-3force - Unleash (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Down [00:03:32]
-02. Voyager [00:03:13]
-03. Unleash [00:03:24]
-04. Meet the Devil [00:03:57](   Читать дальше...   )Жанр: Synthwave, DarksynthПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D883A7F89CB6A98F236AA864B6557CA04807E0F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730878   (107666) от 21.06.2024
-
-Fresh & Lipps - Be My Lover 2012 (2012) [FLAC|Lossless|tracks] <Euro House, Deep House, Club House, Funky House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fresh And Lipps - Be My Lover 2012 (radio edit) (3:34)
-02. Fresh And Lipps - Be My Lover 2012 (extended) (5:35)Жанр: Euro House, Deep House, Club House, Funky HouseПродолжительность: 00:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4234F981EA3BA409D38645FFC6BEB9F3F2113084
 ```
 
 

@@ -1,668 +1,685 @@
-###  Публикация: 1747565   (104705) от 06.09.2024
+###  Публикация: 1752138   (104035) от 28.09.2024
 
-Mr. Big - The BIG Finish Live (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addicted To That Rush (6:30)
-02. Take Cover (5:10)
-03. Undertow (4:53)
-04. Daddy, Brother, Lover, Little Boy (The Electric Drill Song) (3:57)(   Читать дальше...   )Жанр: RockПродолжительность: 02:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7695ACB54F7582CC606FEB525A1374F51F1BFD64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747670   (104706) от 06.09.2024
-
-Vivaldi 6.9.3447.41 include standalone [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:218F765727B28F359569B53D43DE95317D0C38AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747579   (104707) от 06.09.2024
-
-Sandboxie plus 1.14.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sandboxie plus - это продолжение Sandboxie с открытым исходным кодом - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DFDA353E5300417F9F33E1E12FB77B6AA39A71A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747592   (104708) от 06.09.2024
-
-VA - Autumn Chill 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+VA - Dance Classics - The Remixes Volume 2 (1989) [FLAC|Lossless|tracks + .cue] <House, Hip Hop, Disco>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104035.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Benson Boone - Beautiful Things (Acoustic) (3:21)
-02. Zach Bryan - Pink Skies (3:14)
-03. Teddy Swims - Lose Control (Strings Version) (3:28)
-04. Dasha - Austin (Boots Stop Workin') (Stripped) (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:03
+01. The Real Thing – You To Me Are Everything (Decade Remix 76-86) (6:04)
+02. Bill Withers – Lovely Day (Sunshine Mix) (6:33)
+03. Barry White – Never Never Gonna Give You Up (Remix) (7:18)
+04. Freeez – I.O.U. (House Mix) (5:59)(   Читать дальше...   )Жанр: House, Hip Hop, DiscoПродолжительность: 01:11:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF75D28994A3F665F9EBE6647BF452C6B5E8D9A5
+magnet:?xt=urn:btih:E608385EC132492CCB811DF2ABFBF6EFBB3F3693
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747591   (104709) от 06.09.2024
+###  Публикация: 1752078   (104036) от 28.09.2024
 
-Журнал | Дачный спец №8 (август 2024) [PDF]
+Наследство, или Едрёнавошьгутентаг / Dedictvi aneb Kurvahosigutntag (1992) BDRip [H.264] [VO]
 
->>Журналы
->>Домоводство (журналы)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104036.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Дачный спец» — журнал для всех, чья жизнь так или иначе связана с работой и отдыхом на земле. Независимо от уровня знаний в дачных делах, любой человек найдет в журнале именно то, что ему нужно: мнения и обзоры от известных в своей области специалистов, советы опытных дачников и садоводов, планировочные решения и мастер-классы от профессиональных дизайнеров, проверенные (   Читать дальше...   )Жанр: СадоводствоИздательство: ООО "Издательская группа "КАРДОС"Формат: PDFКачество: Обработанный скан
+Действие происходит в Чехии в период, когда наследникам стали возвращать их собственность... В провинции живёт глуповатый, но добрый Богуш. Неожиданно из города приезжает доктор Улрих и объявляет, что Богушу возвращается собственность покойного отца — кирпичный завод и дорогая недвижимость в Праге...Производство: Чехия / Space FilmsЖанр: комедияРежиссер: Вера ХитиловаАктеры: Болек Поливка, Мирослав Донутил, Анна Пантучкова, Йозеф Кронер, Дагмар Вешкрнова, Шарка Войткова, Павел Затлоукал, Бржетислав Рихлик, Павел Брихта, Ян СедалПеревод: профессиональный одноголосый, любительский одноголосыйЯзык озвучки: русский, чешскийСубтитры: английские, чешскиеПродолжительность: 01:58:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:914119ADDFBE06D2F7D09A8A05828B75EBAE41F3
+magnet:?xt=urn:btih:C5A157BEC9BEA8AAEFBB45B433BF9FD136A23C72
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747641   (104710) от 06.09.2024
+###  Публикация: 1752047   (104037) от 28.09.2024
 
-Общпит - Штурм ледяной крепости (2024) [MP3|320 Kbps] <Hip-Hop>
+Безель / Бизэль / Beezel (2024) WEBRip [H.264/1080p] [DVO] [AD]
 
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Волга [00:02:53]
-02 - Штурм ледяной крепости [00:03:03]
-03 - Копотный сказ [00:03:14]
-04 - Не вернулись с игры [00:02:46](   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:41:56
+В фильме собрано несколько историй о том, как живётся людям в доме, где якобы обитает древняя сила. Соседи обходят его стороной, а местные детишки, разрываясь от страха и любопытства, приходят чтобы хоть одним глазком взглянуть на всем известный дом, где в подвале, по слухам, живёт вечно голодная ведьма. Такую репутацию дом получил из-за того, что ещё в 1966 году (   Читать дальше...   )Производство: США / Social House FilmsЖанр: ужасыРежиссер: Аарон ФрадкинАктеры: Николас Робин, ЛеДжон Вудс, Bob Gallagher, Victoria Fratz, Caroline QuigleyПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:21:44Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE4A2C8BB492FD6608F06C83D2F9C969727CDCAB
+magnet:?xt=urn:btih:394A6FA200DBA17E3964BDD9B366B65692ADA11F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747620   (104711) от 06.09.2024
+###  Публикация: 1752056   (104038) от 28.09.2024
 
-The Dead Daisies - Light 'Em Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Балестра / Balestra (2024) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональная фехтовальщица соглашается испытать экспериментальное устройство, позволяющее ей тренироваться в осознанных снах, в которых она встречает таинственного незнакомца, способного разрушить ее брак, психику и путь к олимпийскому золоту.Производство: Канада / Item 7, Oddfellows EntertainmentЖанр: триллер, спортРежиссер: Николь ДорсиАктеры: Джеймс Бэдж Дейл, Мэнни Хасинто, Каш Джамбо, Хезер Дорксен, Кристин Парк, Люк Билык, Стивен Лобо, Ханна Дьюк, Аннетт Райлли, Шэрон КрэндоллПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:25:36Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D384CE133FAE7A32F49FB2ED143B2AB92AD7DF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751870   (104039) от 27.09.2024
+
+LeadBreaker - Overdrive (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104039.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Overdrive
+2. Bitchtit Highway
+3. Hammer Of Vengeance
+4. The Machine(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65731FCB181122D2EE7C347D5252D93921C725B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751836   (104040) от 27.09.2024
+
+Armored Saint - Studio Albums (4 releases) (2000-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armored Saint — американская хэви-метал-группа, наиболее известная вокальными стилями певца Джона Буша, который в течение нескольких лет работал также с группой Anthrax.2000 - Revelation
+2010 - La Raza
+2015 - Win Hands Down
+2020 - Punching The SkyЖанр: Heavy MetalПродолжительность: 04:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E482D559D5DA2FFC0EA4EFEE5BA407F8087C021
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751923   (104041) от 27.09.2024
+
+Whisky of Blood - Diablesse Of Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rock 'N' Roll>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104041.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Light 'Em Up (3:40)
-02. Times Are Changing (3:13)
-03. I Wanna Be Your Bitch (3:16)
-04. I'm Gonna Ride (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:39
+01. Nothing More (4:03)
+02. Baby Revolution (4:33)
+03. Crazy Zone (4:36)
+04. Diablesse Of Love (3:46)(   Читать дальше...   )Жанр: Hard Rock, Rock 'N' RollПродолжительность: 00:44:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBAFC4F8E9FD5D5E5FB40ED6A7A87F8935E3385E
+magnet:?xt=urn:btih:9288296C1AAA1F31F87F1550D1AB24B4211D0D7E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747783   (104712) от 06.09.2024
+###  Публикация: 1751926   (104042) от 27.09.2024
 
-God Is An Astronaut - Embers (2024) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Space Rock, Ambient>
+Whisky of Blood - Diablesse Of Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Rock 'N' Roll>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104042.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Apparition (5:28)
-02. Falling Leaves (7:58)
-03. Odyssey (7:39)
-04. Heart of Roots (5:39)(   Читать дальше...   )Жанр: Post Rock, Space Rock, AmbientПродолжительность: 00:57:43
+01. Nothing More (4:03)
+02. Baby Revolution (4:33)
+03. Crazy Zone (4:36)
+04. Diablesse Of Love (3:46)(   Читать дальше...   )Жанр: Hard Rock, Rock 'N' RollПродолжительность: 00:44:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5B52F7A0BF0AAE6ECC0B83C88DDCDE98944E073
+magnet:?xt=urn:btih:D444BDEA9EF7BD5D79EC7E7E52998B6D382381F8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747577   (104713) от 06.09.2024
+###  Публикация: 1751805   (104043) от 27.09.2024
 
-Sandboxie 5.69.7 [Multi/Ru]
+Хоккей. КХЛ 2024-2025. Сибирь (Новосибирск) - Автомобилист (Екатеринбург) (26.09.2024) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Программ
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104043.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Хоккей. КХЛ 2024-2025. Сибирь (Новосибирск) - Автомобилист (Екатеринбург) (26.09.2024)
+СУДЬИ Овчинников Павел (Орск, Россия) Шувалов Вячеслав (Москва, Россия)
+СТАДИОН «Сибирь-Арена» (Новосибирск) Зрителей: 10388Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:16:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD27EAECF72A2DBF418B021CB31FEE2CB977F4D6
+magnet:?xt=urn:btih:0A094901F49DF9D14B7AEE2EC747F7DAE79AFAFA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747681   (104714) от 06.09.2024
+###  Публикация: 1751802   (104044) от 27.09.2024
 
-David Hasselhoff - 2 Albums (1989-1990) [MP3|320 Kbps] <Pop>
+Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Торпедо (Нижний Новгород) (26.09.2024) WEBRip [H.264/720p]
 
->>Pop
->>Зарубежная поп-музыка
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104044.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Is Everybody Happy
-02. Lonely Is The Night
-03. Je T'Aime Means I Love You
-04. Sheitered Heart(   Читать дальше...   )Жанр: PopПродолжительность: 01:45:29
+Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Торпедо (Нижний Новгород) (26.09.2024)
+СУДЬИ Васильев Алексей (Санкт-Петербург, Россия) Гашилов Виктор (Пермь, Россия)
+СТАДИОН «Фетисов-Арена» (Владивосток) Зрителей: 5537Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:16:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83216A82BDAD7389C9606FC096BEA3D4CE25C7BD
+magnet:?xt=urn:btih:BDB1323F558FF3A0B8A0F5B44209209B4B0763AF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747598   (104715) от 06.09.2024
+###  Публикация: 1751801   (104045) от 27.09.2024
 
-VA - Armin van Buuren - A State Of Trance 1189 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Хоккей. КХЛ 2024-2025. Амур (Хабаровск) - Витязь (Балашиха) (26.09.2024) WEBRip [H.264/720p]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104045.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dinka – Back For Good
-02. Cosmic Gate & Arnej – Trifecta
-03. Matt Fax – Axis
-04. Cubicore & Linnea Schossow – Heart Of Love(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:39
+Хоккей. КХЛ 2024-2025. Амур (Хабаровск) - Витязь (Балашиха) (26.09.2024)
+СУДЬИ Ромасько Евгений (Тверь, Россия) Юдаков Сергей (Россия)
+СТАДИОН «Платинум Арена» (Хабаровск) Зрителей: 7100Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:18:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6E31EAB2EB5835F44000047033EFE05F5E3602D
+magnet:?xt=urn:btih:85C6078EA2F87249A483F7EDE642052069DAFECC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747769   (104716) от 06.09.2024
+###  Публикация: 1751621   (104046) от 26.09.2024
 
-Wolfheart - Draconian Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+Хоккей. КХЛ 2024-2025. Трактор (Челябинск) - Савават Юлаев (Уфа) (25.09.2024) WEBRip [H.264/720p]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Ancient Cold
-2. Evenfall
-3. Burning Sky
-4. Death Leads The Way(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:39:33
+Хоккей. КХЛ 2024-2025. Трактор (Челябинск) - Савават Юлаев (Уфа) (25.09.2024)
+СУДЬИ Беляев Сергей (Воскресенск, Россия) Светилов Алексей (Москва, Россия)
+СТАДИОН «Арена Трактор» (Челябинск) Зрителей: 7500Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:29:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39D2335B71720F849C25136750CF92113F9B4075
+magnet:?xt=urn:btih:DB35868924E8613E18FBEAE9E93BEF39C5A9B04B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747679   (104717) от 06.09.2024
+###  Публикация: 1751727   (104047) от 26.09.2024
 
-Saga - The Works (1991) 2CD [MP3|320 Kbps] <Progressive Rock>
+Richie Kotzen - Nomad (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gotta Love It
-02. How Long
-03. What Do I Know?
-04. Only Time Will Tell(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:08:49
+01. Cheap Shots (3:24)
+02. These Doors (4:23)
+03. Insomnia (4:47)
+04. Nomad (6:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DC1D13E84836C18B822E71975967084C4B6C482
+magnet:?xt=urn:btih:9ACBE8FDC581FD08B0A61EBEDD0E0D14C8420323
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747662   (104718) от 06.09.2024
+###  Публикация: 1751635   (104048) от 26.09.2024
 
-Blitzkrieg - Blitzkrieg (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, NWOBHM>
+The Cold Stares - The Southern (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock, Alt Rock>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104048.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You Won't Take Me Alive (4:23)
-02. The Spider (4:11)
-03. Dragon's Eye (5:13)
-04. If I Told You (4:57)(   Читать дальше...   )Жанр: Heavy Metal, NWOBHMПродолжительность: 00:48:37
+01. Horse To Water (3:59)
+02. Coming Home (3:09)
+03. Looking for a Fight (3:24)
+04. Blow Wind Blow (3:29)(   Читать дальше...   )Жанр: Southern Rock, Blues Rock, Alt RockПродолжительность: 00:41:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4810EEE926D9AB3A48E3025E5ABB71B30A00F72D
+magnet:?xt=urn:btih:340A107248C9765979F54DC86E94D0998EDAE6CF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747685   (104719) от 06.09.2024
+###  Публикация: 1751742   (104049) от 26.09.2024
 
-Infrared - Manifestation (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cataclysm
-02. Temple Of Sin
-03. Nikko
-04. Demon's Blood(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6B570A82623EE1C9F74EEEE48F4B4CFB7C6F33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747790   (104720) от 06.09.2024
-
-Alcest - Les Chants de l'Aurore (2024) [FLAC|Lossless|Web-DL|tracks] <Blackgaze, Post Black Metal, Shoegaze>
+Virgin Steele - Guardians Of The Flame (1983) Reissue, Remastered, 2024, Steamhammer, The Anniversary Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104049.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Komorebi (6:39)
-02. L'Envol (8:02)
-03. Améthyste (8:30)
-04. Flamme Jumelle (5:18)(   Читать дальше...   )Жанр: Blackgaze, Post Black Metal, ShoegazeПродолжительность: 00:43:41
+01. Don't Say Goodbye (Tonight) (4:56)
+02. Burn The Sun (4:30)
+03. Life Of Crime (4:45)
+04. The Redeemer (7:26)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:13:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EED5255B4732DB27AFDF2652514C9B58AFB43E91
+magnet:?xt=urn:btih:9BC87FF4B18F8D04E2E7258DAECC800F4A6B49D5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747740   (104721) от 06.09.2024
+###  Публикация: 1751523   (104050) от 26.09.2024
 
-Доктор для Лулу / Lulu's Doctor (1912) WEBRip [H.264/720p]
+Arma - Brazilian Genocide (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мелодраматическая история о том, как любящая пара рассталась из-за того, что девушка решила уехать, чтобы заботиться о своей осиротевшей племяннице. И это печально, ведь она любила своего молодого человека, доктора. Но кто знает, может судьба даст им еще один шанс? И может быть этим шансом и будет малышка, из-за которой они и расстались...Производство: США / Vitagraph Company of AmericaЖанр: короткометражный, мелодрама, немое киноРежиссер: Ван Дайк БрукАктеры: Морис Костильо, Клара Кимболл, Янг Ван, Дайк Брук, Долорес Костелло, Хелен КостеллоПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:13:09
+01. Believe in Nothing [00:04:23]
+02. Those Who Died [00:04:27]
+03. Brazilian Genocide [00:04:23]
+04. Things That Cannot Be [00:03:25](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:36:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7DCB63B9E73B560E5703CA8F41879BD18D8FB2B
+magnet:?xt=urn:btih:358AA21296772A9734371C1875E54FD9CEBE9105
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747600   (104722) от 06.09.2024
+###  Публикация: 1751628   (104051) от 26.09.2024
 
-Журнал | Квант №7 (июль 2024) [PDF]
+Shrinking Mode - Choices of Passion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Журналы
->>Научно-популярные журналы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104051.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Квант» — научно-популярный физико-математический журнал, рассчитанный на массового читателя. Материалы, накопленные в журнале за годы его существования, практически бесценны. Идею создания издания такой тематики высказал П.Л. Капица в 1964 году. Издается с 1970-го года.Жанр: Научно-популярный журналИздательство: Российская академия наук (РАН)Формат: PDFКачество: Обработанный скан
+01. Coffee High (2:43)
+02. Mix of Passion (2:19)
+03. Don't Drink Coffee Too Much (2:29)
+04. Midnight Sugar (2:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20917A241250EACC09ADB3BDCA650A4566C97458
+magnet:?xt=urn:btih:943825E82BFD5906788608338581F43AEAF239C7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747643   (104723) от 06.09.2024
+###  Публикация: 1751632   (104052) от 26.09.2024
 
-Subtitle Edit 4.0.8 + Portable [Multi/Ru]
+Sylvain Rifflet - We Want Stars (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104052.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Subtitle Edit - редактор субтитров. При помощи этой программы вы сможете синхронизировать субтитры с видео, а также создавать новые субтитры. Subtitle Edit позволяет импортировать субтитры (в т.ч. - OCR), объединять и разбивать их на несколько фрагментов, настраивать их кодировку и частоту кадров, переводить их с одного языка на другой и многое другое. Пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. First Dance (2:34)
+02. The Mojo (3:18)
+03. Mǎmǎhūhū (4:36)
+04. Bach and Boom (5:18)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CA00D0F446F680066786333C6DE38959FB56506
+magnet:?xt=urn:btih:62EB8E61812BCC135E36243FDEF38D5A9002E1B4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747762   (104724) от 06.09.2024
+###  Публикация: 1751517   (104053) от 26.09.2024
 
-Wise Care 365 Pro 7.0.2.682 (акция GiveAway) [Multi/Ru]
+Kate Pierson - Radios & Rainbows (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Evil Love [00:03:48]
+02. Take Me Back to the Party [00:03:58]
+03. Every Day is Halloween [00:04:28]
+04. The Beauty of it All [00:04:21](   Читать дальше...   )Жанр: RockПродолжительность: 00:47:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8A7C53DC257AFC7DE6A0C1E1C77F92B6F397A11
+magnet:?xt=urn:btih:89414A8339A6390475B311B8DEA754A3F514B5B7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747606   (104725) от 06.09.2024
+###  Публикация: 1751603   (104054) от 26.09.2024
 
-VA - Relax Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+Cannonball Adderley - Paris Jazz Concert: Salle Pleyel, Olympia (1960, 1961,1969) 2CD, 2002, LaserLight [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
->>Классика
->>Классика (сборники) (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sergey Bryukhno - Beyond (1:35)
-02. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-03. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
-04. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:43:53
+01. Rufus Still Skinned (Rumpelstiltskin) [13:06]
+02. Black Orpheus [9:33]
+03. Work Song [9:12]
+04. Experience in E [13:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:23:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCB07C1EE9C8C5E28D39778573FCE5DE8670F5FF
+magnet:?xt=urn:btih:AFCBD8603DB0EA616E2C660440A9739F197642A5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747708   (104726) от 06.09.2024
+###  Публикация: 1751631   (104055) от 26.09.2024
 
-Atlantis Word Processor 4.4.1.0 Repack (& Portable) by elchupacabra [Ru/En]
+Sugaray Rayford - Human Decency (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104055.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа для работы с текстом, которая вполне сопоставима с распространёнными текстовыми редакторами из состава офисных пакетов. Atlantis Word Processor способен удовлетворить широкий спектр потребностей: создание и чтение документов многих востребованных форматов (в том числе DOC и DOCX), широкие возможности по форматированию текста, расширенный буфер обмена, архивация (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01. Failing Upwards (4:27)
+02. Human Decency (3:50)
+03. Sam Morrow - Stuck Between (3:20)
+04. Strawberry Hill (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08351992E0F91A6B919B2B67F05E1DC63DD7D9BE
+magnet:?xt=urn:btih:69DABCB71A70A36BF67014AAB52340D9C3ABCD8D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747757   (104727) от 06.09.2024
+###  Публикация: 1751711   (104056) от 26.09.2024
 
-MediaHuman YouTube to MP3 Converter 3.9.9.96 (0509) RePack (& Portable) by elchupacabra [Multi/Ru]
+The Black Dahlia Murder - Servitude (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вы любите слушать музыку на YouTube или Vimeo, но хотите делать это без интернета. Или нужно скачать саундтрек нового фильма с YouTube. А может быть, сохранить аудиокнигу и слушать ее потом в машине? Тогда наш конвертер YouTube в MP3 является отличным выбором для вас.Язык интерфейса: Русский, Английский и другие
+01. Evening Ephemeral (3:55)
+02. Panic Hysteric (3:07)
+03. Aftermath (3:02)
+04. Cursed Creator (3:35)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:32:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C73AE242FAB8C5E760A517C61E5D8D35E76105CD
+magnet:?xt=urn:btih:533B360B860B923D5BA4E071F437AA7BBDC1DF44
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747587   (104728) от 06.09.2024
+###  Публикация: 1751721   (104057) от 26.09.2024
 
-Ксения Москалева | Краткое изложение книги "Радикальное Прощение" (2024) [MP3, Геннадий Форощук]
+Serious Black - Rise of Akhenaton (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
 
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Победите душевную боль и исцелите жизнь вместе с бестселлером в удобном формате саммари!
-Как погрузиться в книгу, не читая ее полностью? Для этого существует саммари – краткое изложение основных идей книги. Оно содержит все ключевые мысли, которые автор хотел донести до читателя, и в то же время сохраняет атмосферу и дух оригинального текста. Мы пересказали книгу (   Читать дальше...   )Жанр: Саморазвитие, личностный ростИздательство: Аудиокнига АСТПродолжительность: 02:48:48
+01. Open Your Eyes (4:12)
+02. We Are the Storm (3:47)
+03. Silent Angel (4:22)
+04. Take Your Life (3:28)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6261E75E1F178C7D27720CD970DCC3D8107689D7
+magnet:?xt=urn:btih:090CC3F1841FAD2DD3593A4476332911076DE1EE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747612   (104729) от 06.09.2024
+###  Публикация: 1751634   (104058) от 26.09.2024
 
-Твин Пикс - Избранное (2024) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, New Wave>
+Sonny Stitt - & The Top Brass (1962) 1998, Atlantic [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Электрик
-2. Надежда на Солнце
-3. С высоты
-4. Девочка-смерть(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 01:05:57
+01. Souls Valley [4:31]
+02. Coquette [3:19]
+03. On a Misty Night [4:04]
+04. Stittsie [5:57](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:35:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D3E855FCD21B447070DEF7685F90744E9DA90CA
+magnet:?xt=urn:btih:ADD70DD985D5AC9C73B88459DC29E593FFB8ACDB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747645   (104730) от 06.09.2024
+###  Публикация: 1751622   (104059) от 26.09.2024
 
-Siiickbrain - My Masochistic Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Dark Electro, Alt. Pop>
+Хоккей. КХЛ 2024-2025. Металлург (Магнитогорск) - Спартак (Москва) (25.09.2024) WEBRip [H.264/1080p]
 
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Three Eyes [00:01:43]
-02. Psychopath [00:03:00]
-03. Parasite [00:01:56]
-04. Liar [00:02:16](   Читать дальше...   )Жанр: Industrial Rock / Dark Electro / Alt. PopПродолжительность: 00:28:22
+Хоккей. КХЛ 2024-2025. Металлург (Магнитогорск) - Спартак (Москва) (25.09.2024)
+СУДЬИ Белов Алексей (Ярославль, Россия) Оскирко Юрий (Ярославль, Россия)
+СТАДИОН «Арена Металлург» (Магнитогорск) Зрителей: 6543Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:07:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7845A4DDB2CE05E734F8973AE94BC8A6608C3237
+magnet:?xt=urn:btih:C6E9CCB33B969BF687ED2FFD579152D27DAB47D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751626   (104060) от 26.09.2024
+
+Хоккей. КХЛ 2024-2025. Локомотив (Ярославль) - Авангард (Омск) (25.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Локомотив (Ярославль) - Авангард (Омск) (25.09.2024)
+СУДЬИ Дударов Александр (Москва, Россия) Сидоренко Максим (Белоруссия)
+СТАДИОН «УКСК Арена-2000-Локомотив» (Ярославль) Зрителей: 7437Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07575F2A16512331E9CAE6D5EBBEB35213C5BC54
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1270512   (157233) от 19.12.2018
+
+VA - Red Oxitocin: Sound Neuroleptics (2018) [MP3|320 Kbps] <Deep House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157233.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Altan V - River
+002. Danny Serrano - Dance With You
+003. Teacoma - Monotone Movements
+004. Nilo Damasceno - Introduce (Original Mix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 10:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C315AD7A014BEE28CBAD0AA17F4DB385EFB95BA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270471   (157241) от 19.12.2018
 
 VA - Новогодний хоровод Vol.1 (2018) [MP3|256-320 Kbps] <Dance, Acoustic, Electronic, Pop>
@@ -668,33 +695,6 @@ VA - Techno Electro Sound: EDM Liveset (2019) [MP3|320 Kbps] <Techno, EDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EAE6566DC554D2053AB5ED825AEB1B3BA911E0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194253   (157952) от 24.12.2017
-
-VA - Sunstate Trance (2017) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157952.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Genix - 6 AM Saint
-002. Laura May - Acid Orchestra
-003. Monoverse - Aftermath (Extended Mix)
-004. Rafael Osmo - Airtight(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 08:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C9CEEF736B0F7A69745F25EE6DBE180F2C75A0
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1639097   (197265) от 11.06.2023
+
+Analog '82 - Sunsets and Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Rain (4:22)
+02. Super VHS (4:00)
+03. Metropolis (4:12)
+04. Reconnect (3:27)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB1225F06451D3A5D056A69FCFD9257F2BBE770
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632463   (198673) от 10.05.2023
+
+Sandra - Stop For A Minute (Maxi-Singles Collection) (2023) [FLAC|Lossless|image + .cue] <Synthpop, Eurodisco, Europop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop For A Minute (Extended Version)
+02. Maria Magdalena (Extended Version)
+03. In The Heart Of The Night (Extended Version)
+04. Little Girl (Extended Version)(   Читать дальше...   )Жанр: Synthpop, Eurodisco, EuropopПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F1AE221EBA9278903B060C91CA768EB9DB7FEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632495   (198705) от 10.05.2023
 
 VA - Car Music 2023: Best Road Trip Songs [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -638,60 +692,6 @@ VA - Calming Experience: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92D36E8867AF13CEFA848CBB44E32EF19ECE7310
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602324   (204405) от 06.01.2023
-
-Didier Marouani & Space - 12 albums, 21 CD (1977-2002) [FLAC|Lossless|image + .cue | tracks + .cue] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых легендарных французских групп электронной музыки Space создана ее лидером французом из Княжества Монако Дидье Маруани, Роланом Романелли и Янником Топом. Название группы полностью отражает глубину их музыки, которую сложно перепутать со звучанием другого коллектива и напрямую отображает атмосферу их творчества. Фирменный звук с использованием синтезаторов (   Читать дальше...   )--------------------------
-
-01. Voices Of Jupiter (4:17)
-02. Just Blue (4:28)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Space Rock |Продолжительность: 18:16:18 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E2FE3E6284A529B75E9DCE5733E0DDD0D27A10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655235   (204481) от 25.08.2023
-
-VA - Vocal Anthems Ibiza (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - Falling (Extended Mix) [6:09]
-02. ThoBa & Kate Miles - Your Love (Alex M.O.R.P.H. Extended Remix) [6:36]
-03. Feel - Hallelujah (Extended Mix) [5:32]
-04. SMR LVE & Sue McLaren - Until Then (Extended Mix) [7:49](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D775AFDF2255AA782F5676C6738E938D22ABF6E
 ```
 
 

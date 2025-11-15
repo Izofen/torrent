@@ -1,3 +1,57 @@
+###  Публикация: 1681932   (132061) от 05.12.2023
+
+Dance With The Dead - Driven to Madness (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <SynthWave, New RetroWave, DarkWave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. March of the Dead
+02. Firebird
+03. Hex
+04. Sledge(   Читать дальше...   )Жанр: SynthWave, New RetroWave, DarkWaveПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B231F6DC85BB5B46F3889C5C572997F086288B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681340   (132071) от 05.12.2023
+
+VA - Hypnotised  A Journey Through British Trance Music 1993-2002 (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pete Lazonby - Sacred Cycles [11:08]
+02. Tilt - Invisible (Original Vocal 12'') [8:04]
+03. Solarstone - Seven Cities (Original Atlantis Mix) [8:10]
+04. 29 Palms - Touch The Sky (Vocal Mix) [8:35](   Читать дальше...   )Жанр: Hard TranceПродолжительность: 03:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9529F98E9FE475064372E3A2ECB391DFE4FFB89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681644   (132085) от 05.12.2023
 
 VA - In Search Of Sunrise 19 (Mixed by Markus Schulz, Ilan Bluestone & Daniel Wanrooy) (2023) [MP3|320 Kbps] <Trance>
@@ -647,60 +701,6 @@ Markus Schulz & Ilan Bluestone & Daniel Wanrooy - Global DJ Broadcast In Search 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14C10F57E2338EFED550C6C61CC1101D461572F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 408513   (133228) от 27.12.2012
-
-VA - Jazzy Market (2010) [MP3|320 kbps] <Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damcase - Sunset Blvd (Tsiridis Post Accademy Mix) (06:41)
-02. Drehwerk - Mecca Calling (08:55)
-03. Echonomist - The All Together (06:48)
-04. Eddie Zarook - Bang Bang (06:41)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389280BB12E6D844D4BF56EC4F89874A8F62D11A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680934   (133415) от 01.12.2023
-
-VA - Pop Ambient 2024 (2023) [MP3|320 Kbps] <Electronic, Ambient, Pop>
-
->>Electronic
->>Ambient, Experimental, Modern Classical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133415.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. T.Raumschmiere - Eterna 2
-2. Mikkel Metal - Octarine
-3. Yui Onodera - Cromo 7
-4. Blank Gloss - Weedless Hook(   Читать дальше...   )Жанр: Electronic, Ambient, PopПродолжительность: 01:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34662F9F840525552100CF8013BE9F068F45F023
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1345238   (167526) от 14.12.2019
+
+VA - Progressive Miami (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer feat. Christina Novelli - Fireflies (Alexander Popov Extended Remix) 5:09
+02. Front & Denis Sender - Purple Bird (Original Mix) 3:06
+03. ThoBa feat. Kate Miles - Your Love (Extended Mix) 5:30
+04. Dennis Graft - Minsk (Extended Mix) 5:27(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 02:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96351B0F3C5F06971577AAD0D8BF1F5C1B6B5657
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345456   (167532) от 14.12.2019
+
+VA - Sensual Winter Chill Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167532.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Lemongrass - Lazy Eve (Original Mix) (4:06)
+2.Taburet - Thoughts (Original Mix) (4:48)
+3.Lazy Hammock - Natural High (Original Mix) (5:21)
+4.Jens Buchert - Causality (Original Mix) (5:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B78EA088FDBE4BC943FF9B9D394A25647BBA38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597092   (167564) от 13.12.2022
 
 Ben Böhmer - Live At The Roundhouse London (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
@@ -633,60 +687,6 @@ Cyber Space - Magic Never Ends (2020) [OGG Vorbis|480 Kbps] <Electronic, Italo-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B1E0CD1DDF69BAC308E24657D5C20C4D619A3EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596733   (169202) от 11.12.2022
-
-VA - This is Ablazing 2022 (Mixed & Selected by Rene Ablaze) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Ablaze & Kenny Palmer - Insomniacs (Extended Mix) (6:22)
-02. UDM - Airwave (Extended Mix) (6:35)
-03. DJ Shog - Make The Sun Rise (Woody van Eyden Extended Remix) (7:33)
-04. Arctic Ocean - Feel The Wave (Extended Mix) (6:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82621C42335C292412561514DA609A6D9C8902EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596724   (169203) от 11.12.2022
-
-VA - Best of We Are Trance 2022 Mixed by DJ GOOSE [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bram VanK & Northern Project - Twitch (Dinamic Extended Edit) (5:23)
-02. InfeXus - Illusion (Extended Mix) (6:43)
-03. Numedian - Babylon (Extended Mix) (7:45)
-04. Slow Emotion - Summer's Answer (Extended Mix) (6:55)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA8D1B96714424529B466969D88E7D444C0052D
 ```
 
 

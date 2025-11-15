@@ -1,3 +1,111 @@
+###  Публикация: 1766806   (101152) от 22.12.2024
+
+Høstsang (Hostsang) - I-II (2022, 2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Линия Маннергейма [00:05:43]
+02. Беломорье [00:04:53]
+03. Сандармох [00:04:48]
+04. Воттоваара [00:04:48]Жанр: Alternative Black MetalПродолжительность: 2 CD, 00:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D8FD12EC502161A65C82712AF8E687B18819F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767487   (101163) от 22.12.2024
+
+Эпоха - Молот Ведьм (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Введение (03:14)
+02. Именем святой инквизиции (03:15)
+03. Обвинение и обоснование (01:08)
+04. Ведьм сжечь (03:57)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C922FAC2675A92ADB3C41C4D0CEE7A1FE92869E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766818   (101188) от 22.12.2024
+
+Mystericon - Иди И Смотри (2024) [FLAC|Lossless|tracks] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101188.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Эскапизм (00:05:00)
+✧ 02 - В Моих Руках (00:05:07)
+✧ 03 - Осенняя Печаль (00:05:03)
+✧ 04 - Неуловимое (00:05:26)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:145553012E10FFD72BC5E8AFE7956B109EE308BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766547   (101232) от 20.12.2024
+
+Эльтерс - Хроника Последнего Путешествия (2015) [FLAC|Lossless|tracks + .cue] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Затянутся льдом твои раны (4:32)
+02. Пламя битвы (4:52)
+03. Некромант (5:26)
+04. Хроника последнего путешествия (instrumental) (4:08)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C107BB85093DA4EEB5A44313B4B0B6450F2C313E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766007   (101296) от 15.12.2024
 
 Четыре Апреля - Бездна (2021) [FLAC|Lossless|tracks] <Rock>
@@ -587,114 +695,6 @@ magnet:?xt=urn:btih:77DCCC215C954FD2E85F0E3A093C2B5304FF8010
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC930FBCEFF6B4E2D2072F9BF4AD2C7EDEB3D5FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750804   (104165) от 21.09.2024
-
-Чёрный Список - Глава первая (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Птица-печаль (04:27)
-02. Лица (03:37)
-03. Про Любовь (03:38)
-04. Взаперти (03:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9690CF86C94703DAD65F691F93181C7F7577BAC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750801   (104170) от 21.09.2024
-
-Чёрный Список - Глава вторая (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тьма (04:28)
-02. Кровь (03:47)
-03. Пустота (03:33)
-04. Страх (04:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C147CA44A96B31C4BBFF02A15FB602A4963DB31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749205   (104337) от 14.09.2024
-
-Судный День - Чёрное пророчество (2008) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Адские врата (Пролог) (1:11)
-02. Ария демонов (3:38)
-03. Один из нас (4:24)
-04. Предсмертная исповедь (6:38)(   Читать дальше...   )Жанр: Heavy Metal, Gothic MetalПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92AB3CBD7EB5F7F3376E4070CC28FF59411F6FBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747612   (104729) от 06.09.2024
-
-Твин Пикс - Избранное (2024) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104729.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Электрик
-2. Надежда на Солнце
-3. С высоты
-4. Девочка-смерть(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3E855FCD21B447070DEF7685F90744E9DA90CA
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1730529   (107879) от 16.06.2024
+
+Toxikk Deception - Harsh Reality (2024) [MP3|204-260 kbps VBR (V0)] <EBM, Dark Electro, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Agents Of Fear [00:05:34]
+02 - Hollow [00:06:47]
+03 - Phantoms [00:05:00]
+04 - Soil [00:05:42](   Читать дальше...   )Жанр: EBM, Dark Electro, IndustrialПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD5F5171F6B6562AAC49D50A7C5D889ED0C973C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730112   (107940) от 14.06.2024
+
+VA - Armin van Buuren - A State Of Trance 1177 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SMR LVE & Christina Novelli - Serenity
+02. The WLT pres. AlterDNA - Synthesis
+03. P.O.U. & Scott Forshaw - Castles In The Sky
+04. Jeef B - Iconic (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC69470C3714A0B564E785B9FA6F3E23829EFC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730129   (107942) от 14.06.2024
 
 VA - Black Hole House Music 06-24 (2024) [MP3|320 Kbps] <House, Progressive House>
@@ -637,60 +691,6 @@ Laserdance - Laserdance Orchestra Vol. 1 (1994) Reissue, 2024, ZYX Italo [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DF67B864CA7369C71C1124E46ABF77C9960C95C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727427   (108514) от 02.06.2024
-
-Erasure - Cowboy (1997) Expanded Edition, 2024, BMG [MP3|320 Kbps] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain (2024 Remaster) (04:11)
-02. Worlds On Fire (2024 Remaster) (03:37)
-03. Reach Out (2024 Remaster) (03:47)
-04. In My Arms (2024 Remaster) (03:36)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F13AD30916FB6C4F1937DAA9B94578B059F755
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727549   (108521) от 02.06.2024
-
-VA - Erotic Chillout & Lounge Perfect Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sura Quintet - Similitudes (4:27)
-02. Jagel - Inspiring Delight (4:27)
-03. Exquisite Frame - Palingenesis (4:27)
-04. Sigrun II - Skipping Rocks (4:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CE35DD14FA08A9FEB240D13A7B4DC7E6E8C54D
 ```
 
 

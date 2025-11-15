@@ -1,3 +1,30 @@
+###  Публикация: 1592787   (180961) от 26.11.2022
+
+J. S. Bach, Frank Peter Zimmermann - Sonatas & Partitas Vol.1 (2021) [FLAC|Lossless|image + .cue] <Classical, violin>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonata No. 2 BWV 1003 In A Minor (21:17)
+01. Grave
+02. Fuga
+03. Andante(   Читать дальше...   )Жанр: Classical, violinПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30BA3BEF78651FFC44393AD7A44A1F8754331143
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664196   (185935) от 25.09.2023
 
 Raphael Feuillatre - Visages Baroques (2023) [FLAC|Lossless|image + .cue] <Classical, guitar>
@@ -350,6 +377,87 @@ magnet:?xt=urn:btih:414916EF4A1158204257D2153CBC2BB5919989B3
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966089   (218423) от 18.12.2015
+
+Rimsky-Korsakov, Mussorgsky - Works for Piano Trio (The Bekova Sisters) (1999) [FLAC|image+cue] <Classical, Romantic Period, Chamber Music, Recitals, Suite, Trio>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trio, for violn, cello & piano in C minor (completed by Maximilian Steinberg)
+01. Allegro (15:03)
+02. Allegro (04:46)
+03. Adagio (10:20)(   Читать дальше...   )Жанр: Classical, Romantic Period, Chamber Music, Recitals, Suite, TrioПродолжительность: 01:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDA99B031C035ABCBA2A74E17156D7DDAD99F61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514133   (219363) от 02.12.2021
+
+VA - Morining Classic, Classical Music Anthology for Waking up Refreshed (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. harryfaoki - Vivaldi: Violin Concerto No.1 La Primavera 1st Movement (03:14)
+02. Kohrogi - Mozart: Overture from Le Nozze Di Figaro (04:16)
+03. Ryoko Okouchi - Elgar: Chanson De Matin Op.15-2 (02:29)
+04. Aoi Yamamoto - Bizet: L'Arlesienne 2nd Suite No.3 Menuet (Extract) (01:53)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5817A4480692CCE94B900D674BE98D9A6CBB9273
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966202   (220600) от 17.12.2015
+
+Ezietto – Memories (2015) [MP3|320 кб/с] <Instrumental, Neo-Classical, Electronic, New Age>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stars & Warriors (original mix)
+02. Celtic Flavour (original mix)
+03. Trinity (original mix)
+04. Faraway Land (original mix)(   Читать дальше...   )Жанр: Instrumental, Neo-Classical, Electronic, New AgeПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5149B47338D697FD28915193187DCDA184A2F600
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651723   (221060) от 07.08.2023
 
 Ezio Bosso - The 12th Room (2017) [FLAC|Lossless|tracks + .cue] <Classical, Neoclassical, Piano Solo>
@@ -372,6 +480,114 @@ CD1 - The 12th Room:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52CD4D0EF7304B80DFF6EA9696EC2D71F665BBA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342836   (221100) от 04.12.2019
+
+VA - Classical Piano - Peaceful music to fall asleep (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221100.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Florian Christl - Vivaldi Variation (Arr. for Piano from Concerto for Strings in G Minor, RV 156) (1:54)
+2.Michael Forster & Anna Stevens - Forces of Attraction (1:58)
+3.Olga Scheps - Avril 14th (1:42)
+4.See Siang Wong - Comptine d'un autre été, l'après-midi (From "Amélie") (2:25)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18F4D03BC19248CBAD13235FE31D446EEF30603
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 151445   (221825) от 30.11.2021
+
+Edvard Grieg - Peer Gynt Suite, Jean Sibelius - Valse Triste (1982-1984) [MP3|320 kb/s]<Classical>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grieg Peer Gynt Suite no. 1 op. 46
+01 (1) Morning Mood (Allegretto pastorale)
+02 (2) Aase's Death (Andante doloroso)
+03 (3) Anitra's Dance (Tempo di Mazurka)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CD52076BDB6FF01346277D8709ABC18B2CC282
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425149   (222251) от 20.11.2020
+
+Ильин - Еще ложь (2020) [MP3|320]
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ст. 1. Обязательство соблюдать права человека
+02. Ст. 3. Запрещение пыток
+03. Ст. 5. Право на свободу и личную неприкосновенность
+04. Ст. 8. Право на уважение частной и семейной жизни(   Читать дальше...   )Жанр: Neoclassical, contemporary, pianoПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57BB72114C95C2653A726FD6A911C769AB0E0FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425079   (222436) от 20.11.2020
+
+Joep Beving - Henosis (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Contemporary, Neo-Classical, Modern>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unus mundus (4:18)
+02. Into The Dark Blue (3:38)
+03. Whales (2:11)
+04. Sirius (1:35)(   Читать дальше...   )Жанр: Contemporary, Neo-Classical, ModernПродолжительность: 02:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30C369E1632BAD15C344F5AE7685891554CA1D5
 ```
 
 
@@ -402,304 +618,80 @@ magnet:?xt=urn:btih:96BB2FD507BFEEAA7DF8E89F3AF4670A2C442EB7
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648081   (227533) от 30.07.2023
+###  Публикация: 991943   (225025) от 01.12.2019
 
-Seattle Opera - Der Ring des Nibelungen (2014) [FLAC|24/96|tracks|WEB-DL] <Classical, Opera>
+Heinali - Sway, sway (2013) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Modern Classical>
 
 >>Классика
->>Классика (Hi-Res)
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225025.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disk 1
-1-1 Prelude
-1-2 Weia! Waga! Woge Du Welle
-1-3 Garstig Glatter Glitschriger Glimmer(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 14:25:00
+01. Sway, sway (04:54)
+02. Little by Little (04:04)Жанр: Modern ClassicalПродолжительность: 00:08:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:252E4E80A8F934581EB883F168F2D8FD6F919FCD
+magnet:?xt=urn:btih:4073FD229DAD8C53B74E154D040914C0D5CE79A8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268068   (229104) от 09.12.2018
+###  Публикация: 1341994   (225207) от 01.12.2019
 
-The Neon Philharmonic Orchestra - Switched On Classics (1997?) 4CD, Box Set [MP3|320 Kbps] <Pop, Classical>
+Rick Wakeman - Christmas Portraits (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL]<Classical, Piano, Instrumental>
 
 >>Классика
->>В обработке/Classical Crossover/Neoclassical
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225207.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rondo Alla Turka Sonata In A Major (Mozart) (4:05)
-02. Gypsy Melody Opus 55 No 4 (Dvorak) (3:11)
-03. The Anger Over Lost Pennies (Beethoven) (2:48)
-04. Piano Concerto No 21 In C Minor (Mozart) (4:00)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 03:57:33
+1 - The First Noel [3:26]
+ 2 - In The Bleak Midwinter [3:36]
+ 3 - Deck The Halls  / Away In A Manger [3:29]
+ 4 - The Holly & The Ivy / Mary's Boy Child [3:25](   Читать дальше...   )Жанр: Classical, Piano, InstrumentalПродолжительность: 00:51:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CEF6A02C9D26B22FB24673B16166A418E75DE79
+magnet:?xt=urn:btih:D78648C6F69A0D70C4392FF31D64FD91588E90A8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 586579   (229158) от 08.12.2012
+###  Публикация: 1341651   (225346) от 01.12.2019
 
-Johann Strauss-Best of Strauss: Berliner Philharmoniker & Herbert von Karajan 1983-1991 (1996) [FLAC|Lossless]<Classic>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229158.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Artist’s Life	06:46
-2.	Vienna Blood	08:49
-3.	On The Beautiful Blue Danube	08:02
-4.	Morning Papers	07:59
-5.	Thunder And Lighting Polka	02:47
-6.	March From “Der Zigeunerbaron”	02:46
-7.	Fata-Morgaiia Polka	03:34
-8.	Pizzicato Polka.	02:24
-9.	Rarietzkv March	03:12
-JOHANN STRAUSS, JR.(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A0573951CBFCEDE23D041CADEEFA5DDE1BA7ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635140   (232842) от 24.05.2023
-
-BBC Scottish Symphony Orchestra, Alpesh Chauhan - Tchaikovsky: The Tempest, Francesca da Rimini, The Voyevoda (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical, Symphonies>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Voyevoda, Op. 78 (12:38)
-02. I. Andante con moto (3:44)
-03. II. Allegro moderato (1:48)
-04. III. Allegro vivace (3:05)(   Читать дальше...   )Жанр: Classical, SymphoniesПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8462BF6928EE371CEC2AC1736E88866ED7D5ADDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635023   (233035) от 23.05.2023
-
-Pekka Kuusisto, Joonas Ahonen - Symmetria Pario: Creation (2023) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clarice Assad
-[1] Symmetries
-Mehmet Sanlikol
-[2] Seven Sufi Vignettes(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030B52488F8AAFE973C7B4724F73681CD7E9C435
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640342   (234559) от 17.09.2022
-
-Niccolo Paganini - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caprices in A-minor, Op.1 #24 - 4:52
-02. Caprices in A-minor, Op.1 #7 - 3:42
-03. Caprices in B-minor, Op.1 #2 - 2:47
-04. Sonata in E-minor, Op.3 #6 ALLEGRO - 3:44(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D691D176B40D0A98B49515607849BE238C29A221
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631633   (235947) от 08.05.2023
-
-VA - Gymnopedie Chilled Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Dickinson - Trois gymnopédies l. Lent et douloureux (3:13)
-02. Peter Dickinson - Trois gymnopédies ll. Lent et triste (2:36)
-03. Peter Dickinson - Trois gymnopédies lll. Lent et grave (2:26)
-04. Kathryn Stott - Suite Bergamasque, L. 75 III. Clair de lune (5:14)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3AF92433D3310608E35B1F8C4BC38512AEA4BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636285   (239189) от 29.05.2023
-
-Eydis Evensen - The Light (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna's Theme (1:56)
-02. The Light II (3:49)
-03. 17.03.22 (3:15)
-04. Tranquillant (2:53)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637AEBA3244CA98E91B70F15EC9E9063B61C746C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627534   (239670) от 19.04.2023
-
-VA - Vocal Miracles (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+Rick Wakeman - Christmas Portraits (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andrew Lloyd Webber - The Phantom Of The Opera (Edit) (4:17)
-02. Andrea Bocelli - Time To Say Goodbye (Live At Central Park, New York 2011) (4:13)
-03. Dulce Pontes - Cancao Do Mar (5:16)
-04. Katherine Jenkins - I'll Never Love Again (From A Star Is Born) (4:22)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:18:30
+1. The First Noel (03:25)
+2. In The Bleak Midwinter (03:35)
+3. Deck The Halls / Away In A Manger (03:29)
+4. The Holly & The Ivy / Mary's Boy Child (03:24)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFC5442C5E0C869569EA40543E84EFFA69C7E11F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626433   (239973) от 16.04.2023
-
-VA - The Best of Classical Music - The Greatest Piano Sonatas (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:28)
-02. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight II. Allegretto (2:10)
-03. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight III. Presto agitato (8:07)
-04. Misha Fomin - Piano Sonata No. 8 in C Minor, Op. (   Читать дальше...   )Жанр: ClassicalПродолжительность: 07:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC5D08628EE2E1AECF23A028A39C96A87805970
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634942   (240097) от 23.05.2023
-
-Sufjan Stevens • Timo Andres • Conor Hanick - Reflections (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Modern Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ekstasis (3:05)
-02. Revanche (5:20)
-03. Euphoros (3:15)
-04. Mnemosyne (3:28)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1990C1BAFCA5B0B28B908199C6645B5BFDE5B707
+magnet:?xt=urn:btih:3589665E9A55670893D179D386DF713FF1282B4D
 ```
 
 

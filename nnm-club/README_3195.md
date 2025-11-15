@@ -1,672 +1,695 @@
-###  Публикация: 1758200   (103410) от 01.11.2024
+###  Публикация: 1764035   (102761) от 05.12.2024
 
-VA - Armin van Buuren - A State Of Trance 1197 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Norman – Phantom Manor (Daniel Wanrooy Remix)
-02. Vintage Culture & Fideles ft. Be No Rain – Fallen Leaf (Massano Remix)
-03. Yoel Lewis – Meteor
-04. MRPHLNDR – Tron (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05322831652000E8EB833D15E4EEAF8CA2DBC067
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758259   (103411) от 01.11.2024
-
-Евгений Замятин | На куличках (2020) [MP3, Пётр Таганов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика.
-Евгений Иванович Замятин (1884–1937) – русский писатель, публицист и литературный критик.
-«Есть у всякого человека такое, в чем он весь, сразу, чем из тысячи его отличишь. И так же у Андрея Иваныча – лоб: ширь и размах степной. А рядом нос – русская курнофеечка, белобрысые усики, пехотные погоны. Творил его Господь Бог, размахнулся: лоб. А потом (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: МедиаКнигаПродолжительность: 03:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B665E8CC4BEAF8C56A8EA224F40D548EF198F868
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758287   (103412) от 01.11.2024
-
-От графа до бармена / Fra fyrste til knejpevaert (1913) WEBRip [H.264/720p] [DK / RU sub]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карты, деньги, любовь и гордость. Если коротко. Печальная история о том, как благородный граф из-за своей порочной страсти к игре потерял все - деньги, семью, положение и достоинство.
-Не играйте в карты с ворами, пацаны!Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Хольгер-МадсенАктеры: Алф Блютехер, Рита Саккетто, Cajus Bruun, Аугуста Блад, Marie Niedermann, Лау Лауритцен, Йоханнес Мейер, Занни Петерсен, Johanne Krum-Hunderup, Йоханнес РингПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF0F62D5F6714C4F1682E2A6F80F9B336CBDB72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758301   (103413) от 01.11.2024
-
-Rosalie Cunningham - To Shoot Another Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psychedelic Rock, Progressive Rock, Vintage Rock>
+Pestilent Hex - Sorceries of Sanguine & Shadow (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Black Metal, Melodic Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. To Shoot Another Day (5:02)
-02. Timothy Martin's Conditioning School (2:43)
-03. Heavy Pencil (6:30)
-04. Good To Be Damned (4:52)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive Rock, Vintage RockПродолжительность: 00:53:18
+01 - Nocturne [1:54]
+02 - Sciomancy and Sortilege [7:31]
+03 - Through Mirrors Beyond [6:25]
+04 - Of Hexcraft and Laws Three-fold [6:57](   Читать дальше...   )Жанр: Symphonic Black Metal, Melodic Black MetalПродолжительность: 00:45:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E54E1FDF1A6ECBD7727E5AE7B224053407A94937
+magnet:?xt=urn:btih:3CD87B08C88DCB07BB8DFD9BFA4FC0CA1E7E61C2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758292   (103414) от 01.11.2024
+###  Публикация: 1764123   (102762) от 05.12.2024
 
-Aaron Rimbui - Imani (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imani (7:38)
-02. Kothbiro (7:58)
-03. Stamina (6:32)
-04. Nakutamani (7:01)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C092DF4E04FC7790249DD93376B0F320178BBA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758235   (103415) от 01.11.2024
-
-Charles Tolliver - New Tolliver (1977) 2009, BMG [FLAC|Lossless|tracks + .cue] <Post-Bop>
+Mel Torme & The Marty Paich Dek-Tette - In Concert Tokyo (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Earl's World [12:46]
-02. Impact [5:38]
-03. Compassion [11:00]
-04. Truth [9:48]Жанр: Post-BopПродолжительность: 00:39:13
+01. It Don't Mean a Thing (If It Ain't Got That Swing) (Instrumental) [3:30]
+02. Sweet Georgia Brown [3:56]
+03. Just in Time [3:12]
+04. When the Sun Comes Out [4:11](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:51:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01C866DAE135F76D2BA9AFC789466378502473ED
+magnet:?xt=urn:btih:7E76C4A15E3EE16FE8D82239B6F5616F3E11389A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758123   (103416) от 01.11.2024
+###  Публикация: 1764103   (102763) от 05.12.2024
 
-Под зубьями пилы / Under Savklingens Taender (1913) WEBRip [H.264/720p] [EN / RU sub]
+VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pierpaolo Cricenti & Kekko DMC - Love Don't Let Me Go (Aux In Re-Edit Mix) (07:39)
+02. KARMIN SHIFF, JULIANA PASINI & Kryz Santana - Ole Ola (I'm From Brazil) (New York Brazil Mix) (03:09)
+03. B.A. Lance - Summer (A Tribute To Calvin Harris) (Radio Mix) (03:38)
+04. Mikee Introna - Get It All (03:37)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11E30A29AC34C36B222BA0A8669C35B2210B73D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764056   (102764) от 05.12.2024
+
+Август Стриндберг | Пляска смерти (2005) [MP3, Михаил Янушкевич, Александра Николаева, Владимир Яворский]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102764.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Ад - это другие," - изрек когда-то Жан-Поль Сартр. "Ад - это мы сами", - следовало бы провозгласить после знакомства с пьесой Стриндберга "Пляска смерти", созданной им в 1901 году. Механизм рождения ненависти, его безжалостная цикличность, способность безвозвратно втягивать человека-жертву в свой круговорот исследуются драматургом на (   Читать дальше...   )Жанр: Аудиоспектакль, драмаИздательство: Нигде не купишьПродолжительность: 01:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E56C8AF4A8CC38127534D8DB85EF125F46BB3F85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764187   (102765) от 05.12.2024
+
+The Effect - The Effect (2024) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toxic Envy (4:02)
+02. Unwanted (3:22)
+03. Tind (3:50)
+04. World Between Us (4:11)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4116AC9E1120B632BFDB24CB7DA62E4B85F614
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764059   (102766) от 05.12.2024
+
+Greg Koch - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Lose What You Never Had (feat. Jimmy Hall + Memphis Horns) (4:32)
+02. Can't Be Satisfied (feat Larry McCray) (3:54)
+03. The Stumble (3:53)
+04. Stormy Monday (9:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C2AF6379CAFF0F6910653ED50546DFBBC1A3D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764083   (102767) от 05.12.2024
+
+Smooth Jazz All Stars - Smooth Jazz Renditions of Lady Gaga (Instrumental) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloody Mary (Instrumental) (3:31)
+02. Hold My Hand (Instrumental) (3:33)
+03. Always Remember Us This Way (Instrumental) (3:29)
+04. Shallow (Instrumental) (4:16)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CC14D1F5DBBFF04662491492B757A227EBEDE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763872   (102768) от 05.12.2024
+
+Maleficium Arungquilta - Транс для сестры (2013) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102768.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Лицемер
+3. Нибиру
+4. Снег(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD91B7FCF9B05B8788495D10CE3037F8010CCFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763955   (102769) от 05.12.2024
+
+Maleficium Arungquilta - Касание сквозь стекло (2011) [FLAC|Lossless|image + .cue] <Dark Metal, Gothic Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102769.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ангелы Не Дышат
+2. Мразь
+3. Я Стала Морем
+4. Шелковый Рассвет(   Читать дальше...   )Жанр: Dark Metal, Gothic Metal, Symphonic MetalПродолжительность: 00:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABEE15684E37F3813DEDB651D02FEF24BAB9CB78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764120   (102770) от 05.12.2024
+
+VA - Gaming Music 2024: EDM For Players (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MaxRiven - Loveparade (02:24)
+02. Lorenz Koin - Adrenaline (02:05)
+03. JLUIS & Teknova - Fast Love (02:26)
+04. Gash & Cee-Mon - Feels Like Home (02:00)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C5D865190480C534E30F6649D6A4DA02E34E2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763992   (102771) от 05.12.2024
+
+На необитаемом острове / Auf einsamer Insel (1913) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ростовщик Бартлет живет только деньгами, думает только о деньгах и самое главное в его жизни это деньги. А вот его сын добросердечный альтруист. И что, ростовщик должен оставить в наследство все нажитое ему? Никогда! Собрав все свои последние старческие силы, он все деньги прячет в саду, а завещание-распоряжение неподалеку, в дупло старого бука.Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Карл Альструп, Лауриц Олсен, Оскар Стриболт, Ольга Свендсен, Занни Петерсен, Фредерик Бух, Паула Рафф, Ингеборг Дженсен, Kristian Møllback, Franz SkondrupПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:35:26
+Драма в рыбацком поселке. Ну, все эти известные дела - красотка любит хорошего, но бедного. Ее любит богатый, но нехороший. Этот нехороший задумывает против хорошего недоброе... Все знакомо.Производство: Германия / Eiko FilmЖанр: короткометражный, драма, немое киноРежиссер: Йозеф ДельмонтАктеры: Фред Зауэр, Миа Кордес, Йозеф ДельмонтПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:30:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7544F604591F18B905F97B314D1CA2C734E73BFF
+magnet:?xt=urn:btih:1ED7D6FC82A4F6FEA7883CE8C3454CCCF91AA504
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758276   (103417) от 01.11.2024
+###  Публикация: 1764098   (102772) от 05.12.2024
 
-НХЛ 2024-2025. Монреаль Канадиенс - Вашингтон Кэпиталз (31.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103417.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 ноября 2024, пятница. 02:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 15 789 зрителей (85% при вместимости 18 573)
-Главный судья: Джейк Бренк (Детройт Лейк, США); Главный судья: Майк Салливан (США); Линейный: Марк Шевчук (Канада); Линейный: Либор Суханек (Стод, Чехия)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F7623F7E6E5C7D5884893644ACFD29331FB61A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758277   (103418) от 01.11.2024
-
-НХЛ 2024-2025. Анахайм Дакс - Питтсбург Пингвинз (31.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103418.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 ноября 2024, пятница. 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 14 945 зрителей (80% при вместимости 18 673)
-Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Бо Халкидис (Лондон, Канада); Линейный: Джесси Маркис (Буктуч, Канада); Линейный: Бен О'Куинн (Вудсток, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B37AFB943BB9CB7771CCC2FEA39957F11B8220
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758281   (103419) от 01.11.2024
-
-Журнал | Армейский сборник №11 (ноябрь 2024) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103419.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Армейский сборник» — ежемесячный иллюстрированный военно-технический и практико-методический журнал. На его страницах – объективная информация о строительстве Вооруженных Сил России, боевой и специальной подготовке войск, а также об их тыловом и техническом обеспечении. Объект журналистского внимания – виды Вооруженных Сил и рода войск, охватывающие сферы земля, (   Читать дальше...   )Жанр: Научный, практико-методический журналИздательство: ФГБУ "РИЦ "Красная звезда" МО РФФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B670FAE4668476733AC3D447562A4C0C1CD6F97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758274   (103420) от 01.11.2024
-
-Замкнутый круг / Full Circle (1977) BDRip [H.264] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на романе «Джулия» американского писателя Питера Страуба... Находясь в глубокой депрессии после смерти 8-летней дочери, Джулия Лофтин уходит от мужа и селится в старинном доме, в котором происходят необъяснимые вещи. Ей чудится, будто призрак дочери постоянно преследует её, словно предупреждая о грозящей опасности...Производство: Канада, Великобритания / Canadian Film Development Corporation (CFDC), Famous PlayersЖанр: ужасы, драма, детективРежиссер: Ричард ЛонкрэйнАктеры: Миа Фэрроу, Кейр Дуллеа, Том Конти, Джилл Беннетт (I), Робин Гэммел, Кэтлин Несбитт, Анна Уинг, Эдвард Хардуик, Мэри Моррис, Полин ДжеймисонПеревод: любительский двухголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B15D6D511353A529A99C0CB6A8E2260896B1D24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758256   (103421) от 01.11.2024
-
-Brad Smith - Broken Bones And Bullet Holes (2024) [MP3|320 Kbps] <Hard Rock>
+Radioactive - Reset (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Broken Bones and Bullet Holes (04:42)
- 02 - Late is the Hour (05:18)
- 03 - Troubles Enough (03:52)
- 04 - Lift Me Up (03:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:16
+01. Sentimental (4:33)
+02. Shame On You, Shame On Me (5:02)
+03. Gaia (5:03)
+04. When The Lights Go Down (4:08)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:49:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DD500F18072E64BF0DF769DAFC7C01F16746472
+magnet:?xt=urn:btih:BAAC8749F6EAB7716B2E8640E0A68593CD7E2878
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758194   (103422) от 01.11.2024
+###  Публикация: 1764124   (102773) от 05.12.2024
 
-скоты - синий альбом (2024) [MP3|320 Kbps] <Rock>
+Fans Of The Dark - Video (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. водка
-2. скуф
-3. пиздеж
-4. в одного(   Читать дальше...   )Жанр: RockПродолжительность: 00:33:48
+01. Meet Me On The Corner (3:51)
+02. Let's Go Rent A Video (4:31)
+03. The Neon Phantom (3:51)
+04. Christine (5:52)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A34733E9B4FB35F9D107FCCC2831F22525ED4AA6
+magnet:?xt=urn:btih:21C8257F2CB83B4D40A781A28A9DC3EE889587A9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758196   (103423) от 01.11.2024
+###  Публикация: 1764142   (102774) от 05.12.2024
 
-джинсы тарковского - юникорн в яблоках (2024) [MP3|320 Kbps] <Rock>
+Intronaut - Studio Albums (7 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Post-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Intronaut — американская прогрессив-метал-группа из города Лос-Анджелес, штат Калифорния.
+Их стиль можно охарактеризовать как прогрессив-метал с элементами психоделии, дэт-метала, джаза, индийских, африканских и афро-латинских ритмов.2006 - Null (EP)
+2006 - Void
+2008 - Prehistoricisms
+2010 - Valley Of Smoke(   Читать дальше...   )Жанр: Progressive/Post-MetalПродолжительность: 05:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24516BABB9C0A37BD1719C80AFEAA642EC8848D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764094   (102775) от 05.12.2024
+
+VA - Future Sounds. EDM 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Emotion - My Focus Is You (03:52)
+02. TEKTRONIC - Romdom (03:00)
+03. MaxRiven - Loveparade (02:24)
+04. JLUIS - Paradise (03:06)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12FD422BACFD464E63E7621D2D427A62D78BD24F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764118   (102776) от 05.12.2024
+
+Page 99 - 99.3 FM (2024) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Westcoast, Yacht Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. девочка с татуировкой коня
-2. продиджи
-3. маркетплейс
-4. юникорн в яблоках(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:38
+01. Did You Mean That (3:57)
+02. Healing Waters (4:53)
+03. Fool (3:56)
+04. In My Imagination (3:31)(   Читать дальше...   )Жанр: AOR, Westcoast, Yacht RockПродолжительность: 00:43:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63AC35FDC45CBBF0B804725A6F0B4B73DF8131BC
+magnet:?xt=urn:btih:6634A8A2A13622A4B2A099C7AE64CFE1841FF427
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758267   (103424) от 01.11.2024
+###  Публикация: 1764076   (102777) от 05.12.2024
 
-Неуравновешенный / Unstable (2024) WEBRip [H.264/1080p] (сезон 2, серии 1-8 из 8) ViruseProject [AD]
+The Weekend Blues Band - Misunderstood (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Зарубежные сериалы
->>Сериалы с рекламой
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чтобы сблизиться со своим отцом, молодой человек устраивается к нему на работу — в биологический исследовательский центр. Правда, эксцентричный отец все равно больше поглощен собой и своей карьерой.Производство: США / Garfield Grove Productions, Loweprofile, Netflix StudiosЖанр: комедияРежиссер: Марк Баклэнд, Клер Скэнлон, Джей Чандрашекхар и др.Актеры: Роб Лоу, Джон Оуэн Лоу, Шан Клиффорд, Aaron Branch, Rachel Marsh, Emma Ferreira, Фред Армисен, Ламорн Моррис, Айрис Апатоу, Tom Allen и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:20:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+01. Cosmic Lounge Blues (3:40)
+02. Guilty of Love (3:48)
+03. Misunderstood (4:01)
+04. Too Nice to Rock (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:606640C06E03FBEA69F37EFB586837382DC4C8B6
+magnet:?xt=urn:btih:676ED28EDB957093FA4049B87B78B6557111E92E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758245   (103425) от 01.11.2024
+###  Публикация: 1763857   (102778) от 03.12.2024
 
-Delusions Of Godhood - Salvation's Withdrawal (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+Michael Lington - Everything Must Change (2002) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Jazz, Smooth Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Bitter End
-02. Salvation's Withdrawal
-03. Sunward Rise
-04. On The Edge Of The River Styx(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:39
+01. Off the Hook (3:57)
+02. In the Shade (4:26)
+03. Through the Fire (4:44)
+04. The Moment (4:03)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:43:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D1810157B2BF815CE9125F674C04A7C8DB8E9C4
+magnet:?xt=urn:btih:E342F1DEA326AB0DBB188589B1057EB08E843322
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758275   (103426) от 01.11.2024
+###  Публикация: 1763824   (102779) от 03.12.2024
 
-Avi Rosenfeld & Juan Bach - Bz Dz Purple Snake (2024) [MP3|320 Kbps] <Rock>
+VA - Fusion Funk Excursions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock, Funk>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102779.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Just Eighteen 04:47
-02. Save Me From The Eagles Nest 04:12
-03. Beat Of Life 04:30
-04. Two Of A Thousand 05:14(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:47
+01. AdrianoMaria - Trio Elètrico (7:51)
+02. AdrianoMaria - Isn't She Lovely (6:29)
+03. Afronauti - Ghost Friends (4:26)
+04. Apollo Beat - Luna 22 (2:50)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz Rock, FunkПродолжительность: 01:51:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94739EDD30A2FDCAF7E160446884E58E4BBB9B92
+magnet:?xt=urn:btih:F52AF3CB6A0A75D716ADCE41055A077E2745299E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758094   (103427) от 01.11.2024
+###  Публикация: 1763822   (102780) от 03.12.2024
 
-Various Artists - ANA - Metal for Charity Project (2017) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103427.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ana - Ana 07:28
-2. Ana - Holy Diver 04:39
-3. Darkest Sins - Domineer 04:12
-4. Marius Danielsen - Lost in a Dream 04:57(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51FF40270256DC8EA9B8C6D510E96E8673CE25D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758218   (103428) от 01.11.2024
-
-Сливки - Заморочки  (2007) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Летняя Москва (саундтрек у к/ф Жара)
-03. Заморочки
-04. Хватит(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E45724493F57B6FA4D657D1D125124144211389
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758264   (103429) от 01.11.2024
-
-Евгений Замятин | Русь (2013) [MP3, Дмитрий Савин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Проза Серебряного Века.
-В сборник включены лучшие произведения Евгения Замятина (1884–1937) – сочный, зримый, кустодиевски живописный рассказ «Русь», произведения о русском Севере («Север», «Африка», «Ёла»). На этом же диске – потрясающая, «надрывная» любовная драма «Наводнение», рассказ о первой, осуждаемой взрослыми юношеской любви «Апрель», притча (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 09:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E1ED97FB038323BAECEF9F8A87DA1EBC516873
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758261   (103430) от 01.11.2024
-
-Евгений Замятин | Один (2021) [MP3, Пётр Таганов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика.
-Студия «МедиаКнига» представляет аудиокнигу Евгений Иванович Замятина (1884–1937) великого русского писателя, публициста и литературного критика, киносценариста.
-
- Евгений Замятин на NoNaMe ClubЖанр: Русская литература, классика, рассказИздательство: МедиаКнигаПродолжительность: 12:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8472EC24986BA3321194C370550AA34C9B28D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758217   (103431) от 01.11.2024
-
-Владимир Ефимов - Взрослые песни  (2009) [FLAC|Lossless|tracks + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вечер во Внуково
-02. Незнакомка
-03. Херcон
-04. Я вернулся(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF42ABC65A5965C76C38354D643196B8F101DA07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758086   (103432) от 01.11.2024
-
-Великая иллюзия / La grande illusion (1937) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая мировая война. Самолёт французских лётчиков Морешаля и Больде сбит немецким асом фон Рауффенштайном, но оба пилота остались живы и попали в лагерь для военнопленных. Там же находятся несколько британских офицеров, с которыми новички объединяются в работе над тоннелем для побега. После победы французов на Западном фронте Морешаля, Болдье и остальных французских (   Читать дальше...   )Производство: Франция / Realisation d'art cinematographiqueЖанр: драма, военныйРежиссер: Жан РенуарАктеры: Жан Габен, Дита Парло, Пьер Френе, Эрих фон Штрогейм, Жюльен Каретт, Жорж Пекле, Вернер Флориан, Жан Дасте, Сильвен Иткин, Гастон МодоПеревод: Профессиональный многоголосый (Петербург 5-й канал, Film Prestige, DVD Магия, Светла)Язык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8865E10F91B2AC2A7EECC490D4CFA5B9EB26401
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758298   (103433) от 01.11.2024
-
-Skillet - Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <christian rock, hard rock>
+Sierra - A Story Of Anger - The Remixes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Wave, Darksynth, EBM>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102780.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Showtime (3:33)
-02. Unpopular (3:06)
-03. All That Matters (3:28)
-04. Not Afraid (3:14)(   Читать дальше...   )Жанр: christian rock, hard rockПродолжительность: 00:35:07
+01 - Stronger (Gunship Remix) [4:48]
+02 - Never Right (HORSKH Remix) [2:44]
+03 - In my Veins (Matteo Tura Remix) [4:24]
+04 - By Fire (Toutant Remix) [2:49](   Читать дальше...   )Жанр: Dark Wave, Darksynth, EBMПродолжительность: 00:26:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7245C911916AB87097B19F0D964A90EB1F23C4B7
+magnet:?xt=urn:btih:0EDD10E6D86CAC40F5BCFABE78BF3C5E3ABEC608
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757922   (103434) от 30.10.2024
+###  Публикация: 1763803   (102781) от 03.12.2024
 
-НХЛ 2024-2025. Нью-Йорк Рейнджерс - Вашингтон Кэпиталз (29.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Jimmy Raney & Sonny Clark - Together! (1954) 1994, Xanadu Records [FLAC|Lossless|tracks + .cue] <Bop, Guitar Jazz, Piano Jazz>
 
->>Спорт и активный отдых
->>Хоккей
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102781.jpg" />
 </div>
 
 
 ###  Подробнее
 
-30 октября 2024, среда. 02:30 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 17 390 зрителей (94% при вместимости 18 573)
-Главный судья: Питер Макдугалл (Реджайна, Канада); Главный судья: Крис Руни (Бостон, США)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:34
+01. Once in a While [4:33]
+02. Pennies from Heaven [3:18]
+03. Yesterdays [3:04]
+04. There Will Never Be Another You [4:30](   Читать дальше...   )Жанр: Bop, Guitar Jazz, Piano JazzПродолжительность: 00:39:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F994D6D08BD9D89B5FB97FE4CEFAA4D6D10EB7E
+magnet:?xt=urn:btih:973DD203C8D565F616B6F947B2761775482FCCD1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757924   (103435) от 30.10.2024
+###  Публикация: 1763517   (102782) от 01.12.2024
 
-НХЛ 2024-2025. Миннесота Уайлд - Питтсбург Пингвинз (29.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Uni Debess - Red (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Спорт и активный отдых
->>Хоккей
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-30 октября 2024, среда. 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 195 зрителей (97% при вместимости 18 673)
-Главный судья: Фурман Саут (Сьюикли, США); Главный судья: Кайл Реман (Стеттлер, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:39:59
+01. Cold Night Blues (3:29)
+02. Donk Donk (4:18)
+03. Concrete Walls (4:34)
+04. Little Doline (2:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5798EB5E0ABEF3A89A11ACC004044AED62A6CA4
+magnet:?xt=urn:btih:6E28F173AE463D48BB8D27C304B62C7CA09A243C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763507   (102783) от 01.12.2024
+
+The Coffee Sergeants - Racing Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Windows Open Wide (4:13)
+02. I Wish You Were A Mountain (3:24)
+03. Green Hours (5:47)
+04. House Where She Used To Live (5:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF381CE5EB18D373B3704A32F2289264B67B07B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763495   (102784) от 01.12.2024
+
+Strix Revival - Heartfelt Harmonic Journeys (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Love (3:32)
+02. The Journey of Forgiveness (2:52)
+03. Roots and Heritage (3:10)
+04. Burden of Responsibilities (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B269EC9BE5B1640FB7DD692C048A5FD9C22C58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763464   (102785) от 01.12.2024
+
+Allsiders - No Further Questions (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wish I Could Quit (3:28)
+02. Upon the Fire (5:37)
+03. Bad Desire (3:59)
+04. Can't Control My Mind (4:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C4DAD9337A2AA01D977A64C8629C8E5570C6D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763299   (102786) от 01.12.2024
+
+Amarok - Blasphemous Edictum (2008) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102786.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bluźnierczy manifest
+02. Twierdza wyzwolonych myśli
+03. Wieczne bluźnierstwo
+04. Duch wilka(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7813D5D9BF86B2BAB26AEA74A7A119196468E96
 ```
 
 

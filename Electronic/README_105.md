@@ -1,3 +1,54 @@
+###  Публикация: 1676100   (159253) от 11.11.2023
+
+VA - Easy Listening Chill Affairs, Vol. 2 (2023) [MP3|320 Kbps] <Electronic, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venus In Motion - He Don't Know (4:58)
+02. Meri,Luca Guerrieri - Show Me Love (2:40)
+03. Nexus 5 - Voices In The Dark (5:16)
+04. Project Blue Sun - Secret Moments (5:49)(   Читать дальше...   )Жанр: Electronic, Lounge, Chillout, DowntempoПродолжительность: 02:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0C8E878A20F4776282E4487053AC99FBB5E632
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599647   (159566) от 24.12.2022
+
+Electric Universe - Sacred Geometry (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy Trance, Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Psy Trance, Goa TranceПродолжительность: 01:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0270E6F4A328E3EBF2AA2A10CD837794E9FA8AA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599638   (159590) от 24.12.2022
 
 Ovnimoon - Carjecatma (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy Trance, Goa Trance, Progressive>
@@ -636,60 +687,6 @@ VA - Autumn Vibes Kolibri Selection (2023) [MP3|320 Kbps] <Downtempo, Chillout, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:097F8128B9AF5FF1E1BC9127C40B7C2088DF2BD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674160   (160845) от 06.11.2023
-
-VA - Solarstone Presents Pure Trance 10 (Mixed By Solarstone) (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stoneface & Terminal - Lose My Need (Robert Nickson Chillout Intro Mix) (Mixed) [1:49]
-02. Solarstone & Aquarius - Arpeggiator Shards (Mixed) [6:13]
-03. Pablo Gargano - The Breeze (Mixed) [4:47]
-04. Macker - Arrakis (Mixed) [7:08](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 07:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6956C98BDB4DF98739D23D760C863D43EC4FCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518212   (160956) от 18.12.2021
-
-VA - Angel Voices Vol.2 (Enigmatic Chill & Mystic Tracks To Relax) (2021) FLAC [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Ensemble of Mystic Hours (5:00)
-02. Guardians of Secret - Eternal (Epic Voices Mix) (4:05)
-03. Buddhatronic - Back to the Beginning (4:17)
-04. Artenovum - Beyond The Sky (4:28)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E065A020A6A97C7E88734ECE875BCAD4C2B34CDB
 ```
 
 

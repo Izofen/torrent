@@ -1,3 +1,354 @@
+###  Публикация: 1634264   (233310) от 21.05.2023
+
+Tas Cru - Compilation (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heal My Soul
+02. A Month Of Somedays
+03. Memphis Song
+04. Feel I'm Falling(   Читать дальше...   )Жанр: RockПродолжительность: 01:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204D2290527F70710DDD609AE5106FB4838D0B6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633972   (233323) от 21.05.2023
+
+Rory Gallagher - I'm Not Awake Yet (2023) 2CD Compilation  [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shin Kicker [03:58]
+02. For The Last Time [06:35]
+03. I Fall Apart [05:12]
+04. They Don't Make Them Like You Anymore [04:05](   Читать дальше...   )Жанр: RockПродолжительность: 02:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE06296D448A1E974758B6B9D0B10FAE9F366DC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643628   (234374) от 03.07.2023
+
+VA - female rock, blues rock part  27 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dudley Taft - Relentless
+02. Bluetouch - 40 Miles of Bad Road
+03. Claudia Bettinaglio - Clap Hands
+04. Roxy Perry - Back in Bluesville(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C34B88C38C7DD5474149ECB19A0AC89347DE6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643309   (234404) от 03.07.2023
+
+VA - Assorted rock, blues rock compilation part  26 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Brookfield - Workin' on You Baby
+02. Dudley Taft - Still Burning
+03. Mike Brookfield - Blue Skies
+04. Dudley Taft - Deep Deep Blue(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF07594C69569DEAADF2C9109211371F2F6C2FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633073   (234645) от 13.05.2023
+
+VA - Beat It Guitar Solos (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jane's Addiction  - Three Days (10:49)
+02. Jeff Beck - Cause We've Ended As Lovers (04:35)
+03. Dream Theater - Under A Glass Moon (07:03)
+04. Smashing Pumpkins  - Cherub Rock (04:57)(   Читать дальше...   )Жанр: RockПродолжительность: 09:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BEFE45C671C4B05DECA979DF87E0828E4C3C1AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632976   (234772) от 13.05.2023
+
+Danielle Nicole - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crawl
+02. I'm Going Home
+03. Hot Spell
+04. Take It All(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB2F936D8DAF0EC3D4AF64DB63459246F34DE1DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632974   (234803) от 13.05.2023
+
+Teresa James & The Rhythm Tramps - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Time Low
+02. I Know I Ain't Been So Perfect
+03. I Know What Love Can Do
+04. Here In Babylon(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0B6185DBD6CC2B4F3F46108560E24D71E8B5F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632425   (234920) от 12.05.2023
+
+VA - For Those About to Rock (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Led Zeppelin - Black Dog (Remaster) [04:55]
+02. Megadeth - Symphony Of Destruction [04:07]
+03. Slayer - South Of Heaven [04:59]
+04. Black Sabbath - Paranoid (2012 - Remaster) [02:48](   Читать дальше...   )Жанр: RockПродолжительность: 06:20:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9141A16FEEB275A075334C97608E1733070A79DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632541   (234935) от 12.05.2023
+
+VA - 90's Indie (2023) [MP3|320 Kbps] <Alternative, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blur - Coffee and TV (Radio Edit)
+02. Red Hot Chili Peppers - Under the Bridge
+03. Coldplay - High Speed
+04. New Order - Regret(   Читать дальше...   )Жанр: Alternative, Indie, RockПродолжительность: 02:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47EC0431DC1ED2B9A3EADB07338258E16786AE30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631924   (235903) от 08.05.2023
+
+VA - Free And Romantic Country (2023) [MP3|320 Kbps] <Country, Folk, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235903.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blake Shelton - Barmageddon [02:51]
+002. Glen Campbell - Rhinestone Cowboy [03:16]
+003. Kacey Musgraves - Justified [03:01]
+004. Elliah Heifetz - First Generation American [02:47](   Читать дальше...   )Жанр: Country, Folk, RockПродолжительность: 07:23:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15D8CD11016D79597C6999456DBC1267F4A4E1A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640230   (237018) от 19.06.2023
+
+VA - Blues Rock Compilation Part 23 (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Larry Miller - One Fine Day
+02. 5 Shades of Blue - First Love
+03. John Verity - I Put a Spell on You
+04. The Blues Mystery - Movin' On(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 02:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A927037A228932B319D3913CF838290EEE58D46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640295   (237076) от 19.06.2023
+
+Tony Tucker - Compilation (2023) [MP3|320 Kbps] <Rock, Ballads, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Fingers
+02. Here Come 'ole Cottonmouth
+03. Fade
+04. Down the Road of Blues(   Читать дальше...   )Жанр: Rock, Ballads, BluesПродолжительность: 02:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE9AA697170F8F07E295B5AADB87730C08B4CCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640256   (237128) от 19.06.2023
+
+Larry Miller - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Fine Day
+02. Soldier of the Line
+03. The Girl That Got Away
+04. Women and the Blues(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1129C2FED0B4DDE35E00591383B3B82A729CC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629042   (237715) от 27.04.2023
 
 Deep Purple - Live Archive 1972 Vol. 1 (1972) 7CD  [MP3|320 Kbps] <Rock, Hard Rock>
@@ -128,6 +479,33 @@ VA - Flower Power - Children of Flowers Best Of (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C60F2DECF11CF0D401C0E4D4C77F54749B531B79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543449   (242491) от 11.04.2022
+
+VA - Fest Rebel Rock Radio, Vol.02 (2022) [MP3|320 Kbps] <Rock, Alternative, Indie>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпическая мощь и красота - основные характеристики альбома и всего творчества групп представленных на его треках. Дух новаторства в музыке, когда даже в рамках давно использованного вдоль и поперек стиля, музыкантам удается найти свой путь. Их композиторское богатство основывается на фэнтезийной лирике, что привносит в музыку и стилистику песен определенное настроение (   Читать дальше...   )001. El Pistolero - Fear The Reaper
+002. Naked Giants - Better Not Waste My Time
+003. Holy Ship - Schrödingers Cat
+004. Royal Blood - Boilermaker(   Читать дальше...   )Жанр: Rock, Alternative, IndieПродолжительность: 08:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409FD184B8EA64C48A5616D7517F55BCC8E3BEBF
 ```
 
 
@@ -323,105 +701,6 @@ VA - Best Russian Echoes of Screamo.vol. 14 (2025) Compilation [MP3|320 Kbps] <A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDFC5E56497C547F2C4DEA79309EF35486EDEC38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494276   (250653) от 09.05.2012
-
-Ночные снайперы - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250653.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 31-я весна
-2. Рубеж
-3. Блины по-снайперски
-4. Кошка московская
-5. Бонни & Клайд
-6. Стань моей птицей
-7. Морячок
-8. Гонщик
-9. День рождения
-10. Цунами(   Читать дальше...   )2012Жанр: RockПродолжительность: 02:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F057434F057F677D8107B69F24090CEB80D64192
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494974   (251013) от 10.05.2012
-
-Сергей Галанин - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251013.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Юрий Гагарин
-2. Ангел
-3. Твоя душа
-4. Давай
-5. Я хочу пить с тобой
-6. Интерзона
-7. Собачий вальс
-8. Чертополох
-9. Я далеко
-10. Альтернативная любовь(   Читать дальше...   )2012Жанр: RockПродолжительность: 01:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555654EC7AB70C759C0068163217B79FB602F218
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494991   (251061) от 10.05.2012
-
-Гарик Сукачев - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251061.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дорожная
- 2. Звезда микрорайона
- 3. Моя бабушка курит трубку
- 4. Бродяга
- 5. Свободу Анджеле Дэвис!
- 6. Playboy
- 7. За окошком месяц май
- 8. Сантехник
- 9. Я обожаю jazz
- 10. Знаю я, есть края…(   Читать дальше...   )2012Жанр: RockПродолжительность: 03:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A146820A032BAF7D39B08A7F49AB83EE60A200F4
 ```
 
 

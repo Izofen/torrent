@@ -1,3 +1,111 @@
+###  Публикация: 1682678   (131117) от 08.12.2023
+
+Сергей Маврин - Хаос (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131117.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Хаос (instro)
+2. Запрещённая реальность '23
+3. Третий храм
+4. Десять(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404D51C7325E7901D5835A77517908FE0958E8A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682622   (131151) от 08.12.2023
+
+Мещера - Жатва (2023) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Black Fog 4:22
+02 Harvest 5:33
+03 Eternity of White Januarys 4:44
+04 Winter Cold 4:18(   Читать дальше...   )Жанр: Atmospheric Black Metal, Folk MetalПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714BADA0E7C0D539C3D62F644B7DC0E8FA279658
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682611   (131197) от 08.12.2023
+
+Lunatii - Insomniashes (2023) [FLAC|Lossless|image + .cue] <Depressive Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01		Insomniashes
+02		Empty Source
+03		Brutal Doom
+04		Lifeless(   Читать дальше...   )Жанр: Depressive Black MetalПродолжительность: 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D445A1446BF863FB69AFEECD8D30E45A419D22DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682568   (131201) от 08.12.2023
+
+кто тебя убил? - черное. белое. яркое. (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. мерцай, маленькая звездочка! [00:03:40]
+02. пусть горит наш старый дом [00:03:49]
+03. наблюдающий затмение [00:03:30]
+04. жизневорот [00:02:53](   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D9D7278E1FCA296DB4DFB98B63CA6F51A897A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682605   (131203) от 08.12.2023
 
 Lunatii - Deprosorryum (2018) [FLAC|Lossless|image + .cue] <Depressive Black Metal>
@@ -591,113 +699,6 @@ magnet:?xt=urn:btih:24595D1AEC3B3DAE7BA5FD49853FAB499ACBAE67
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A7D82D1B1C40D3F04795D2BC379A13707F905E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681127   (133165) от 02.12.2023
-
-S-VOX feat. Давид Тодуа, Вадим Самойлов - Моя звезда (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сердце [00:04:33]
-02. Нейлон [00:03:50]
-03. Моя звезда [00:04:39]Жанр: RockПродолжительность: 00:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FDEC732ABC75DB6A64698D9421F23A7382BEC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594767   (133204) от 27.12.2012
-
-Валькирия - Святым огнём (2012) [FLAC|Lossless]<Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Путь домой
-02. Таинственный зверь
-03. Странник
-04. Храм заблудших душ(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680817   (133520) от 01.12.2023
-
-LikArt - Мессия в MP3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Своё шоу [00:02:37]
-02. Плак-плак [00:02:36]
-03. Целуй! [00:02:36]
-04. Научи меня летать [00:02:55](   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0ACCBAC7E974D26D88ADEEAD02ADA4AEA11C8CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680739   (133539) от 01.12.2023
-
-DEgITx - Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Electro-Industrial, Melodic Death Metal >
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transistor (Intro) [00:02:46]
-02. Aurora [00:04:14]
-03. Path [00:02:17]
-04. Moon [00:04:21](   Читать дальше...   )Жанр: Power Metal / Instrumental / Electro-Industrial / Melodic Death Metal / Sid Metal / Folk MetalПродолжительность: 01:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63900F0EBC0D757853018D0D1B0344D6106E629F
 ```
 
 

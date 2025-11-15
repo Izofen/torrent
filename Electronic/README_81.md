@@ -1,3 +1,57 @@
+###  Публикация: 1697262   (118955) от 06.02.2024
+
+Laserdance - Around The Planet (1988) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shotgun (Into The Night) (Remix)
+02.  Battle Cry (Remix)
+03.  You & Me (Remix)
+04.  Mars Invaders (Remix)(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41F526634D89D9132DCE42476A8905107D6FA6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697272   (118958) от 06.02.2024
+
+Laserdance - Discovery Trip (1989) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cosmo Tron (Remix)
+02.  Trip To Destroy
+03.  Endless Dream
+04.  Brain Mission(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203A05EAD67C8EA34BA73DAF3F288BFCCFCE6594
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697354   (118976) от 06.02.2024
 
 VA - A State of Trance 2024 - DESTINATION (The Official Album) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -641,60 +695,6 @@ Miss Monique - Yearmix 2023 (2024-01-26) [MP3|320 Kbps] <Progressive House, Melo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4AC59F1E3CC42651070AFDE41474A74572FB5A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695149   (120372) от 29.01.2024
-
-VA - Dream Dance Vol. 95 - The Annual (Extended Versions) (2024) [MP3|320 Kbps] <Trance, Progressive, Dance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris & Sam Smith - Desire (Extended Mix) [4:33]
-02. Hardwell x DJs From Mars x Tomcraft - Loneliness (Extended Mix) [3:39]
-03. Felix Jaehn & Jonas Blue - Past Life (Extended Mix) [5:07]
-04. twocolors x Safri Duo x Chris de Sarandy - Cynical (MistaJam Extended Remix) [5:16](   Читать дальше...   )Жанр: Trance, Electronic, DanceПродолжительность: 05:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420F895B0F28F680DC88A7AEE6768612344FDC9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695124   (120434) от 28.01.2024
-
-Caro Emerald - The Shocking Miss Emerald (The Remixes) (2013) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tangled Up (Yarin & Richwood Remix) [00:03:34]
-02. Tangled Up (Yarin & Richwood Remix) (Yarin & Richwood (Extended Version)) [00:04:36]
-03. Tangled Up (Lokee Remix) [00:03:25]
-04. Tangled Up (Kahedi Remix) [00:03:04](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A3C17969EF1FCFCAC718384906A6065E57B5285
 ```
 
 

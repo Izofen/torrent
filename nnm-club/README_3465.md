@@ -1,684 +1,687 @@
-###  Публикация: 1719972   (110451) от 01.05.2024
+###  Публикация: 1722187   (109782) от 10.05.2024
 
-Amiensus - Reclamation (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blink of the Moment (5:28)
-02. Reverie (5:28)
-03. Senses Amplified (7:04)
-04. Sun and Moon (8:38)(   Читать дальше...   )Жанр: Progressive Black MetalПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F60C43600A1EF8829BAACF707693FA711C49CC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719822   (110452) от 01.05.2024
-
-Azaab - Summoning the Cataclysm (2022) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
+Freedom Call - Silver Romance (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pandemonium Twilight
-02. Carbon Plague
-03. A Hollow Pact
-04. Preachers Of Hate(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00: 38:07
+01. Silver Romance [00:04:07]
+02. Symphony of Avalon [00:04:05]
+03. Supernova [00:03:55]
+04. Infinity [00:04:22](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5B908286F4AE705FABE56FDBD493ECAD86145BD
+magnet:?xt=urn:btih:74ABDED75CC446984E47D6BD75D8458C3ECEFDDB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719834   (110453) от 01.05.2024
+###  Публикация: 1722231   (109783) от 10.05.2024
 
-Emitt Rhodes - The Emitt Rhodes Recordings 1969-1973 (2009) 2CD [FLAC|Lossless|tracks + .cue] <Rock>
+Hexe - Дурак (2024) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Встречай Рассвет [00:02:21]
+02 - Дурак [00:03:44]
+03 - Режь! [00:02:06]
+04 - Голем [00:03:21](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A6D1278EA083BD65661B2907A3016D524E5832
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722141   (109784) от 10.05.2024
+
+VA - Modern Rock Mavericks (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mother Earth (2:30)
-02. Pardon Me (2:46)
-03. Textile Factory (3:05)
-04. Someone Died (2:04)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 02:16:15
+01. Paramore - All We Know (3:14)
+02. My Chemical Romance - Teenagers (2:42)
+03. Kaleo - My Fair Lady (3:43)
+04. The Wombats - Little Miss Pipedream (4:12)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78728AB803DBEA869A8CDA54D41DEC6F52CE9C46
+magnet:?xt=urn:btih:680534A6AD63D100A76B6343EA06346B1BF814A5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719825   (110454) от 01.05.2024
+###  Публикация: 1722206   (109785) от 10.05.2024
 
-U.D.O. - Steelfactory (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+Feuerschwanz - Warriors (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highlander (English Version) [00:03:19]
+02. The Unholy Grail (feat. Dominum, Orden Ogan) [00:03:51]
+03. The Forgotten Commandment [00:03:35]
+04. Memento Mori (feat. Lord of the Lost, Chris Harms) (English Version) [00:03:31](   Читать дальше...   )Жанр: Gothic, Black, Death MetalПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0FA70B8232AEFC838A0D29B1BA14433EF3AF321
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722225   (109786) от 10.05.2024
+
+Haylen - Compilation (2024) [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Crawfish
+ 02.  It's in Her Heels
+ 03.  With You I Feel Alone
+ 04.  Scary Story(   Читать дальше...   )Жанр: Rock, Pop Rock, SoulПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9B4D96DCD6B3858B1A437BACE00DF51E08F005
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722306   (109787) от 10.05.2024
+
+Robotic attacks - Robot is here (2014) [MP3|320 Kbps] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invasion (2:41)
+02. Force of gravity (2:44)
+03. Landing (2:39)
+04. Connecting to the Universe (2:41)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA31A3611FB5EC85E2DF8BE5E204465FF2BE38A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722193   (109788) от 10.05.2024
+
+Scotty McCreery - Rise & Fall (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Country>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109788.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:08] 01.  Little More Gone
+[3:47] 02.  Cab In A Solo
+[4:33] 03.  Lonely
+[2:42] 04.  Can't Pass The Bar(   Читать дальше...   )Жанр: CountryПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:933C08C3D7D89F3E9515C278A951B1115B7785B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722302   (109789) от 10.05.2024
+
+Intru.Der - The First Journey (2013) [MP3|320 Kbps] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intru.Der (8:01)
+02. Distance (5:54)
+03. Space Dust (6:20)
+04. Central Brain (5:20)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28B3275F51DB9FC6262D88F082D59338F838837
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722023   (109790) от 10.05.2024
+
+Bobina - Catchy! (20th Anniversary Edition) (2024) [FLAC|Lossless|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobina - Lazy World (Remastered) [2:58]
+02. Bobina - Russian Dream (Remastered) [2:48]
+03. Bobina - Cast Away (Remastered) [3:09]
+04. Bobina - The Scary Thing (Remastered) [3:19](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C78CA208AA1648E6E26CCC6AA451271077BDC8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722226   (109791) от 10.05.2024
+
+Foo Fighters - Studio Albums (12 releases) (1995-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Grunge, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Tongue Reaper
-A2 Make The Move
-A3 Keeper Of My Soul
-A4 In The Heat Of The Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:50
+Foo Fighters — американская рок-группа, основанная участником Nirvana Дейвом Гролом в 1994 году.1995 - Foo Fighters
+1997 - The Colour And The Shape
+1999 - There Is Nothing Left To Lose
+2002 - One By OneЖанр: Grunge, Hard RockПродолжительность: 12:47:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:177683999F4E23A3BBA4A2F864FB76812DEAF171
+magnet:?xt=urn:btih:FBD777DE3720436C7D4B0B11215EC9AF4E67A75B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720038   (110455) от 01.05.2024
+###  Публикация: 1722279   (109792) от 10.05.2024
 
-Thalia - The River Of Books (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy Metal>
+Imagination - The Golden Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just An Illusion
+02. Body Talk
+03. Heart 'N' Soul
+04. Flashback(   Читать дальше...   )Жанр: R&B, DiscoПродолжительность: 00:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6CF7320568269EAE4BE0D3CB64794C7A59F00FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721065   (109793) от 10.05.2024
+
+Бумбокс - Меломанія (2008) [WavPack|Lossless|image + .cue] <RnB, Swing, Pop Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бета-Каротин
+ 02. День
+ 03. Діагноз
+ 04. E-mail(   Читать дальше...   )Жанр: RnB, Swing, Pop RapПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D9475AE843C88D9FC181B73C1504F81F2AE122
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722217   (109794) от 10.05.2024
+
+Пешком-пешком / Aruitemo aruitemo (2008) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожилая чета Ёкояма собирает всех родственников, чтобы отметить годовщину смерти своего старшего сына, который утонул, спасая жизнь совсем незнакомому мальчишке много лет тому назад. Приехала дочь Тинами со своим мужем и двумя шумливыми детьми, мальчиком и девочкой. Появляется в доме и второй сын Рёта со своей новой женой и её ребёнком от первого брака. Отношения (   Читать дальше...   )Производство: Япония / Bandai Visual Company, Cinequanon, Eisei Gekijo, Engine Film, TV Man UnionЖанр: драмаРежиссер: Хирокадзу КорээдаВ ролях: Хироси Абэ, Юи Нацукава, Ю, Кадзуя Такахаси, Сохей Танака, Кирин Кики, Ёсио Харада, Харуко КатоПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские (, HJdsaksjdklklnjkhbdsfsl), английскиеПродолжительность: 01:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885210F840DDFBDE767DC36D2B19B0FAAA299D7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722213   (109795) от 10.05.2024
+
+Дмитрий Силлов | Снайпер S.T.A.L.K.E.R. Закон Хармонта (2014) [MP3, Макс Радман]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рэдрик Шухарт пожелал «счастья для всех, даром, и пусть никто не уйдет обиженным». Но его желание обернулось большим горем для жителей Хармонта. Город оцеплен воинскими подразделениями, отгорожен от остального мира колючей проволокой. Люди с признаками мутаций отправлены в лаборатории для научных исследований. И, вдобавок ко всему, в развалинах старого завода вновь (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 08:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89727B3DFC3D8AC36F14C77662792C83AC553D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722126   (109796) от 10.05.2024
+
+Сергей Соловьёв | История России с древнейших времен (Том 21, 22) (2014) [MP3, Вячеслав Герасимов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый труд великого русского историка Сергея Михайловича Соловьева (1820-1879) является крупнейшим достижением русской исторической науки XIX в. Соловьев - "первый среди равных" в плеяде блестящих русских историков, в которую входят Н. Карамзин, В. Ключевский, Н. Костомаров, А. Пресняков, Т. Грановский, С. Платонов и многие другие.
+Двадцать первый (   Читать дальше...   )Жанр: ИсторияИздательство: Нигде не купишьПродолжительность: 30:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B316F95C373A087F4D18402C96AC028265E37028
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720924   (109797) от 10.05.2024
+
+Elyanna - WOLEDTO (2024) [MP3|320 Kbps] <World, Arabic, R&B>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woledto [02:03]
+02. Ganeni [02:57]
+03. Callin' U (Tamally Maak) [01:57]
+04. Al Sham [02:46](   Читать дальше...   )Жанр: World, Arabic, R&BПродолжительность: 00:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C61B4F7B790846A18C1DBE245093B3737E48D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722042   (109798) от 10.05.2024
+
+Dessar - Кошмар (посв. студентам РГГУ) (2024) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не хочу ничего уже больше писать,
+Ведь песни мои как пророчества.
+На прогулку ведёт пятилапого пса
+Наше - Ваше высочество.(   Читать дальше...   )Жанр: RapПродолжительность: 00:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F253215582C5B3E2E3F86DF10D23968F790605F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721077   (109799) от 10.05.2024
+
+Бумбокс - III (2008) (Deluxe Issue) [WavPack|Lossless|image + .cue] <RnB, Swing, Pop Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Концерти
+ 02. Стяги На Стяги
+ 03. Поліна
+ 04. Наодинці(   Читать дальше...   )Жанр: RnB, Swing, Pop RapПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0C555191C5A1F244E05542A3EC46C46091831E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722232   (109800) от 10.05.2024
+
+Измена - Чёрный похмелоид (2024) [MP3|320 Kbps] <Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109800.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The River Of Books
-02 - Vision Empire
-03 - AtmoSign
-04 - Body & Soul(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 00:52:12
+01 - Алкотреш [00:03:20]
+02 - Зубник из ада [00:03:43]
+03 - Червоточина [00:03:21]
+04 - Кручина [00:03:55](   Читать дальше...   )Жанр: MetalПродолжительность: 00:54:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09D55259E27134564A9843C7A11C45346672B7AC
+magnet:?xt=urn:btih:CBE8A4DF561B51C7A9DBE20CA44C455D082FB08A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719461   (110456) от 01.05.2024
+###  Публикация: 1722137   (109801) от 10.05.2024
 
-The Acid Machine - Mushrooms (2024) [MP3|320 Kbps] <doommetal, stoner>
+VA - British Rock Hits Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The Sky Opened [00:05:42]
-02 - Acid Machine [00:05:23]
-03 - Mushrooms [00:05:36]
-04 - Wild Sap [00:03:49](   Читать дальше...   )Жанр: doommetal, stonerПродолжительность: 00:44:52
+01. Coldplay - The Scientist (5:10)
+02. Gorillaz - Clint Eastwood (5:41)
+03. Biffy Clyro - Space (3:56)
+04. Coldplay - Yellow (4:27)(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4587387D2585D9EC445E7AEFAF03E1F71BB494B
+magnet:?xt=urn:btih:70726F92EFD7E30C16DCC0F059AA5F4B941042A2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719889   (110457) от 01.05.2024
+###  Публикация: 1722049   (109802) от 10.05.2024
 
-Niels van Gogh - Rave All Night (2023) [FLAC|Lossless|tracks] <EDM, Future House, Club House>
+VA - In Bloom 2024 (Vocal Dance Mix) [MP3|320 Kbps] <Trance, Progressive, Dance>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109802.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Niels van Gogh – Rave All Night (2:34)
-02. Niels van Gogh – Rave All Night (extended mix) (4:03)Жанр: EDM, Future House, Club HouseПродолжительность: 00:06:37
+01. Markus Schulz & Pretty Poison - Stolen (In Bloom 2024) (3:56)
+02. Tritonal & Susie Ledge - Keep My Dreams Alive (In Bloom 2024) (Hessian Remix) (3:07)
+03. Kyau & Albert - Always A Fool (In Bloom 2024) (Jope Remix) (4:09)
+04. Adina Butar - Whisper (In Bloom 2024) (2:51)(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 02:00:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2CC455758498A88E776D05076A6F9FC97226D9E
+magnet:?xt=urn:btih:3EA6D8DE75B1854DDE97CD5D380E091199BFA717
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719620   (110458) от 01.05.2024
+###  Публикация: 1722345   (109803) от 10.05.2024
 
-Dave Brubeck - Blue Rondo: The 1987 Dave Brubeck Quartet (2000) Concord Jazz [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Does Your Garden Grow? [5:57]
-02. Festival Hall [5:59]
-03. Easy as You Go [3:19]
-04. Blue Rondo a la Turk [7:36](   Читать дальше...   )Жанр: CoolПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD8AFD2F95631CADD57C715D95D55AB5585D220
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719888   (110459) от 01.05.2024
-
-Niels van Gogh - The Rebel (2023) [FLAC|Lossless|WEB-DL|tracks] <Club House, Hard House, Hard Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niels van Gogh – The Rebel (3:04)
-02. Niels van Gogh – The Rebel (extended mix) (4:46)Жанр: Club House, Hard House, Hard TranceПродолжительность: 00:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FE3EEAA3E5689BFE2848E544ABA223C334C704
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719490   (110460) от 01.05.2024
-
-Judy Garland - That's Entertainment! (1960) 1987, Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's Entertainment [2:31]
-02. Who Cares (As Long as You Care for Me) [1:32]
-03. I've Confessed to the Breeze (I Love You) [3:08]
-04. If I Love Again [2:42](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047CB38AEA6EE4F5809A8C4E1B3E59C9F7A5D54E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719823   (110461) от 01.05.2024
-
-In Search Of Sun - Lemon Amigos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Progressive Rock>
+Tyler Bryant & The Shakedown - Electrified (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109803.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Electric (3:56)
-02. Contagious (4:26)
-03. Lemon Amigos (4:12)
-04. The Fire I Play With (4:23)(   Читать дальше...   )Жанр: Alternative Metal, Progressive RockПродолжительность: 00:32:23
+01. Between The Lines (3:16)
+02. Crossfire (3:42)
+03. Snake Oil (3:57)
+04. Trick Up My Sleeve (3:23)(   Читать дальше...   )Жанр: Southern Rock, Blues RockПродолжительность: 00:36:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0033BA4217A6F1B57D56DF6813853CB4A15273F1
+magnet:?xt=urn:btih:9AD2F12DF4D1A0951A1456EF3B6014624EECB87F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719836   (110462) от 01.05.2024
+###  Публикация: 1722210   (109804) от 10.05.2024
 
-Emitt Rhodes - Rainbow Ends (2016) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Dj Sava - Vogue Vibes (2024) [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <Dance>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109804.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dog on a Chain (3:44)
-02. If I Knew Then (3:59)
-03. Isn't It So (2:26)
-04. This Wall Between Us (2:49)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 00:37:01
+[3:08] 01. Magical Place (MD Dj & Dj Dark Remix)
+[3:11] 02. Coco Bongo (Dj Dark & MD Dj Remix)
+[3:02] 03. Nobody
+[3:14] 04. Bora Bora(   Читать дальше...   )Жанр: DanceПродолжительность: 00:23:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9281AD167A19FABA1F8BAF7FD4D529D1F1F5B9D6
+magnet:?xt=urn:btih:DA8CA766ECD6A91E674855FB25A6FB8F0ED5A2E9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719674   (110463) от 01.05.2024
+###  Публикация: 1722184   (109805) от 10.05.2024
 
-Exiled on Earth - Vertenbra (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power, Thrash Metal>
+Kings Of Leon - Can We Please Have Fun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt Rock, Indie Rock, Rock>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109805.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Revived Entity [00:04:48]
-02. Constellations Collapse [00:04:38]
-03. The Messenger From The Red Aeon [00:04:17]
-04. The Dying Sun of Sarnath [00:05:18](   Читать дальше...   )Жанр: Progressive Power, Thrash MetalПродолжительность: 00:42:08
+[3:52] 01. Ballerina Radio
+[4:11] 02. Rainbow Ball
+[3:41] 03. Nowhere To Run
+[3:15] 04. Mustang(   Читать дальше...   )Жанр: Alt Rock, Indie Rock, RockПродолжительность: 00:44:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58CC85F1C2BF975080811A7C0E558E5BE4C06332
+magnet:?xt=urn:btih:4C4A342E40F38699867ACF16D32D71A121A809B8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719703   (110464) от 01.05.2024
+###  Публикация: 1722189   (109806) от 10.05.2024
 
-Double Horse - Diablerie (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom, Occult, 70's>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last House on the Left [00:07:47]
-02. Blind Dead [00:04:58]
-03. Castle Crypt [00:06:58]
-04. Lady Bathory [00:05:52](   Читать дальше...   )Жанр: Stoner Doom, Occult, 70'sПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4EC0235180A6EB631AB8254C5169F6E9F8E31D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719876   (110465) от 01.05.2024
-
-Tanshuman Das - Progress Report (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Battle theme
-02 - Machine
-03 - Scarlet
-04 - Fearless leader(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60C30B9D035FB7C3DB70BFE4846D4552C6DADA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719854   (110466) от 01.05.2024
-
-Jazzlamic Jihad (The Hard Bop Holy War) - Forbidden Expression (1994) Ratamacue Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nadroj [5:54]
-02. Hotline [5:46]
-03. Under the Moon [6:24]
-04. Yellsker Bellsker [5:40](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6C5B191519134ABB3ECDEF73BFD22FE3B992BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719996   (110467) от 01.05.2024
-
-Годзилла: Минус один / Godzilla: Minus One / Gojira -1.0 (2023) WEB-DLRip [H.264] [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Послевоенная Япония подвергается нападению Годзиллы.Производство: Япония / Robot Communications, Toho Company, Toho StudiosЖанр: фантастика, боевикРежиссер: Такаси ЯмадзакиАктеры: Сакура Андо, Минами Хамабэ, Рюносукэ Камики, Рикако Миура, Юки Ямада, Мунэтака Аоки, Такато Ёнэмото, Юки Такао, Майкл Ариас, Кураносукэ СасакиПеревод: Профессиональный многоголосый (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:04:36Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719930   (110468) от 01.05.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 5-й матч) Нэшвилл Предаторз - Ванкувер Кэнакс (30.04.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110468.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 мая 2024, среда. 05:00 МСК. 1/4 финала - Запад. 5-й матч. Стадион: Роджерс-Арена (Ванкувер, Канада), 19 036 зрителей (101% при вместимости 18 910)
-Главный судья: Франсис Шаррон (Оттава, Канада); Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Линейный: Джеймс Тобиас (Баффало, США); Линейный: Мэтт Макферсон (Энтигониш, Канада)Телекомпания: TBSЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02C55BCE50261B4E13BB6458A8AF5FF307A6779
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719626   (110469) от 01.05.2024
-
-Mike Holober & The Gotham Jazz Orchestra - Thought Trains (1996) 2004, Sons Of Sound [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jump Down, Spin Around [11:35]
-02. Big Sky [10:11]
-03. Waltz Medium [7:43]
-04. Thought Trains [6:38](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382411CB2A21791B1040B8809A897D0425DB5349
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719912   (110470) от 01.05.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 5-й матч) Торонто Мэйпл Лифс - Бостон Брюинз (30.04.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110470.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 мая 2024, среда. 02:00 МСК. 1/4 финала - Восток. 5-й матч. Стадион: Ти-Ди Гарден (Бостон, США), 17 850 зрителей (100% при вместимости 17 850)
-Главный судья: Стив Козари (Пентиктон, Канада); Главный судья: Кайл Реман (Стеттлер, Канада); Линейный: Джонни Мюррей (Бипорт, Канада); Линейный: Эндрю Смит (Китченер, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D2979A753632A4128348882AC1A2A6CA48B84B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719926   (110471) от 01.05.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 5-й матч) Колорадо Эвеланш - Виннипег Джетс (30.04.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110471.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 мая 2024, среда. 04:30 МСК. 1/4 финала - Запад. 5-й матч. Стадион: Канада Лайф-центр (Виннипег, Канада), 15 225 зрителей (99% при вместимости 15 325)
-Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Линейный: Трент Кнорр (Пауэлл Ривер, Канада); Линейный: Марк Шевчук (Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8362ADEDC40605665A3BE125E702AEA0FE2B9937
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719694   (110472) от 01.05.2024
-
-Ascia - The Wandering Warrior (2024) [MP3|320 Kbps] <Stoner Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Greenland [00:05:42]
-02 Blood bridge battle [00:06:32]
-03 Ruins of war [00:04:01]
-04 Dhul Qarnayn [00:02:39](   Читать дальше...   )Жанр: Stoner Doom MetalПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D555336FF291DF7428E210CEA10238C2159B614C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719487   (110473) от 01.05.2024
-
-The Dave Brubeck Quartet - Plays Music From West Side Story (1960, 1965) 1986, Columbia [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria [3:17]
-02. I Feel Pretty [5:11]
-03. Somewhere [4:16]
-04. A Quiet Girl [2:23](   Читать дальше...   )Жанр: CoolПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4AF0F99AEA2D968A952ABB0D26E706A90012FC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719858   (110474) от 01.05.2024
-
-Футбол. Лига Чемпионов 2023-2024. 1/2 Финала. Бавария (Германия) - Реал (Мадрид, Испания) (30.04.2024) HDTVRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2023-2024. 1/2 Финала. Бавария (Германия) - Реал (Мадрид, Испания) (30.04.2024)
-СУДЬЯ Тюрпен Клеман (Улинс, Франция)
-Судья на линии 1: Дано Николя (Франция)
-Судья на линии 2: Пажес Бенжамен (Франция)(   Читать дальше...   )Телекомпания: Матч! ФутболЖанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70807BBC8DD716AAF14816AFB7CA4CBAF2D79B54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719966   (110475) от 01.05.2024
-
-Moldiver | Молдайвер [1993, OVA, 6 эп.] DVDRip 480p raw
+Topaz Photo AI 3.0.2 (x64) [En]
 
 >>Архив торрентов
->>Архив Аниме
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Озора Хироши изобретает Мол, устройство, которое делает пользователя непобедимым. Однако его планы стать супергероем недолговечны, когда его сестра Мирай случайно меняет конфигурацию костюма. Теперь она сама вынуждена в одиночку спасти Токио от злого Машингала и его банды андроидов, состоящих исключительно из женщин.Производство: Студия AICЖанр: приключения, комедия, фантастикаРежиссер: Китадзумэ ХироюкиПеревод: LexThornЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 30 мин.
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:325C744EE2464345DD9695B72AAF8B8AE929BE17
+magnet:?xt=urn:btih:95D9F293BF212C76C66B836C671A8F1F1D01A362
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719616   (110476) от 01.05.2024
+###  Публикация: 1722069   (109807) от 10.05.2024
 
-Bobby Watson & Horizon - Post-Motown Bop (1991) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
+PilotEdit Lite & Pro 18.6.0.0 [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109807.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Punjab of Java Po' [5:29]
-02. Big Girls [5:42]
-03. Falling in Love with Love [6:32]
-04. 7th Avenue [5:35](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:14
+Один из многих текстовых редакторов, но с большими возможностями и своими особенностями.
+PilotEdit можно использовать для редактирования больших файлов размером 400 ГБ (40 миллиардов строк) или сравнения больших файлов размером 100 ГБ (10 миллиардов строк). PilotEdit предлагает настраиваемую подсветку синтаксиса и ключевых слов, расширенные операции поиска и замены, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A5425FBE4D44D2DD6B8C864FE94CEEEBD04B51A
+magnet:?xt=urn:btih:1A4FA51912DF5BBFE57529BB2211406447C44925
 ```
 
 

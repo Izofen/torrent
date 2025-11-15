@@ -1,3 +1,30 @@
+###  Публикация: 1431745   (166228) от 15.12.2020
+
+VA - Beatport Electronic: Sound Pack #210 (2020) [MP3|320 Kbps] <Electronic, Synthwave, Experimental Music>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка экспериментальной электроники в 210-м релизе от Beatport готова порадовать Вас оригинальными и интересными треками.001. Volta Cab - Ramatuelle Tahiti
+002. Till Trench - Paint Of Strange
+003. Deckmaster - Childrens
+004. Mateis E. Aqir - All Possible Stars(   Читать дальше...   )Жанр: Electronic, Synthwave, Experimental MusicПродолжительность: 11:26:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE812D6B64EFD3939F8796AE9C74215E54311F10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345566   (166238) от 15.12.2019
 
 VA - Зайцев.нет Лучшие новинки Декабря (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -665,33 +692,6 @@ VA - Beatport Electro House: Sound Pack #382 (2021) [MP3|320 Kbps] <Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FB0187A3DE1F1BF16BC20D358E2A29F8FDC56A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515857   (167805) от 09.12.2021
-
-VA - Beatport Tech House: Sound Pack #381 (2021) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка которая находится на стыке двух стилей - ещё не техно, но уже не хаус. Это уже даже не стиль, а точка пространства, где встречаются и взаимопроникают две большие музыкальные стихии – техно и хаус.001. Cristhian Balcazar - Body Trap
-002. Dexxx Gum - Lights
-003. Ron Flatter - Dragoon
-004. Arni & Kazuma Akasaki - Kage(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 10:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE0214AC1906C3B2D859A7E765D9DD5602F4F66
 ```
 
 

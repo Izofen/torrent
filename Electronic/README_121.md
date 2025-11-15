@@ -1,3 +1,57 @@
+###  Публикация: 1657612   (192434) от 04.09.2023
+
+Cygnosic - Demystify (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sea [00:03:04]
+02. Darkout [00:03:05]
+03. Nothing to Regret [00:03:11]
+04. Into the Flames [00:04:08](   Читать дальше...   )Жанр: Dark Electro, EBMПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A51EE4B4648DD3A4FEE761DDFE655C356147A6B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657610   (192436) от 04.09.2023
+
+The Midnight - Red, White and Bruised: The Midnight Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Dream Wave, Electronic, Songwriter, Synth Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heroes (Live) [00:06:11]
+02. Change Your Heart or Die (Live) [00:03:13]
+03. Brooklyn. Friday. Love. (Live) [00:04:08]
+04. Gloria (Live) [00:04:39](   Читать дальше...   )Жанр: Dream Wave, Electronic, Songwriter, Synth PopПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAEA008B26A168B94666712FBD60F3B09ADC1657
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587548   (192669) от 31.10.2022
 
 about : river - 24 Years Apart (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Organic House>
@@ -636,60 +690,6 @@ Gunsta Sessions - Vol. 2 (2008) [MP3|320 kbps]<Drum&Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E24F006F78EBA23B5726FD8C157EC8B88D147244
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639097   (197265) от 11.06.2023
-
-Analog '82 - Sunsets and Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Rain (4:22)
-02. Super VHS (4:00)
-03. Metropolis (4:12)
-04. Reconnect (3:27)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB1225F06451D3A5D056A69FCFD9257F2BBE770
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632463   (198673) от 10.05.2023
-
-Sandra - Stop For A Minute (Maxi-Singles Collection) (2023) [FLAC|Lossless|image + .cue] <Synthpop, Eurodisco, Europop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop For A Minute (Extended Version)
-02. Maria Magdalena (Extended Version)
-03. In The Heart Of The Night (Extended Version)
-04. Little Girl (Extended Version)(   Читать дальше...   )Жанр: Synthpop, Eurodisco, EuropopПродолжительность: 01:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F1AE221EBA9278903B060C91CA768EB9DB7FEB
 ```
 
 

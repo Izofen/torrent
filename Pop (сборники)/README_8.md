@@ -31,6 +31,39 @@ magnet:?xt=urn:btih:E177D5BD0321C6C6F8F6373B6D1A5B8BFBC14BE0
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482673   (99603) от 14.04.2012
+
+VA - The Best Pop Albums of 2011 on Amazon (2011) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marry The Night  (04:25)
+02. Born This Way  (04:21)
+03. Government Hooker  (04:15)
+04. Judas  (04:09)
+05. Americano  (04:07)
+06. Hair  (05:08)
+07. Scheibe  (03:46)
+08. Bloody Mary  (04:05)
+09. Black Jesus + Amen Fashion  (03:37)
+10. Bad Kids  (03:51)(   Читать дальше...   )2011 Release "Жанр: PopПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486228   (100227) от 22.04.2012
 
 VA - Студенческая Вечеринка Русский (2012) [MP3|256 кб/с]<Pop>
@@ -704,33 +737,6 @@ VA - Hot songs to make out to (2024) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A653F04B2A325556C1A6C240DDBE2C0CD08AE62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696788   (119395) от 04.02.2024
-
-VA - Зима на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dua Lipa - Houdini (3:05)
-02. Клава Кока & FEDUK - Кабы не было тебя (2:40)
-03. Gayazov$ Brother$ - Нужна Перезагрузка (2:57)
-04. Ofenbach feat. Norma Jean Martine - Overdrive (Extended Mix) (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0FA4B6FA6C2C1A6F47E0F160E884D64FB86C6B
 ```
 
 

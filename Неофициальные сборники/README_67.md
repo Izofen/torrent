@@ -1,3 +1,30 @@
+###  Публикация: 1684667   (127659) от 16.12.2023
+
+ADIK - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  With Him
+ 02.  Egypt
+ 03.  Cosmos
+ 04.  Anatomia(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501CEB008770CE7F464E0530F8D6CB2398D50F7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684173   (127799) от 15.12.2023
 
 VA - Музыка для машины Vol.52 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -694,33 +721,6 @@ VA - Remembering Summer: Chillout Session (2022) [MP3|320 Kbps] <Chillout, Loung
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C13FC9A61CF442F32EB943A9E8C549CFCFF5CFDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525382   (129205) от 21.01.2022
-
-VA - Beatport Deep House: Sound Pack #397 (2022) [MP3|320 Kbps] <Deep House, Soft Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая известная в музыкальных кругах  медиа площадка Beatport не перестает радовать своих почитателей музыкальными новинками. Вот и на этот раз она преподносит нам "Подарок" в виде 397-го электро саунда - микс самых известных композиций клубного дип хауса со всего мира.001. Junktion - Tribute
-002. Awsi - Lo Que Faltaba
-003. Efe Goroglu - There For You
-004. Peter Brown - This Feeling(   Читать дальше...   )Жанр: Deep House, Soft ElectroПродолжительность: 10:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6319632BDA2F8A0E2FD136B92962D69CB2E54499
 ```
 
 

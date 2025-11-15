@@ -1,3 +1,57 @@
+###  Публикация: 1652752   (206469) от 13.08.2023
+
+VA - Balearic Chill out Edition, Vol. 1 - 4 (2023) [MP3|320 Kbps] <Chillout, Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lounge Groove Avenue - Wait for Me [03:33]
+02. TAWO - Had Love [03:15]
+03. MILA - The Sounds of Night (Snare Mix) [05:47]
+04. Dreamhunter - Kadinsky [05:10](   Читать дальше...   )Жанр: Chillout, Balearic, DowntempoПродолжительность: 09:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9843BCBEDE21650C0715D9AC9B57F7B6D9B98EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652526   (206530) от 11.08.2023
+
+Blank & Jones - The Best Of Relax // 20 Years // 2003 - 2023 (2023) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Electronic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones - Beyond Time (Ambient Mix) [5:20]
+02. Blank & Jones - Flaming June (Original Mix) [3:36]
+03. Blank & Jones - Desire (Ambient Mix) [4:33]
+04. Blank & Jones - Someone Like You (Original Mix) [5:10](   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, ElectronicПродолжительность: 01:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3723A747B249B28441C6EE4D04AC3C998C62EF65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652411   (206569) от 11.08.2023
 
 VA - Laid-Back Lounge: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -638,60 +692,6 @@ Jessi Frey - Warrior (2022) [MP3|320 Kbps] <Industrial Rock, Synthpop, Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:173C4A29715512792B97F6B2F5C39707BF64016F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641656   (210741) от 23.06.2023
-
-VA - Suanda Ibiza (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Gid Sedgwick - This Is Real (Christopher Corrigan Extended Remix) [7:05]
-02. SMR LVE & Jennifer Rene - Stay (Extended Mix) [5:45]
-03. Feel & Papulin & Ren Faye - The Way Of Magic (Alex M.O.R.P.H. Extended Remix) [7:33]
-04. DJ T.H. & Sharon Valerona - Only Now I See (Extended Mix) [5:54](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789263E5DF94EEADEC1DD9728B04E20B3319D347
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641392   (210748) от 23.06.2023
-
-VA - Nothing But... Trancetopia, Vol. 04 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. STNX - Meyena (Original Mix) [3:47]
-02. Alphed Le Cornett & Dropper Vampire - Closer To Heaven (Original Mix) [4:21]
-03. Intra De Aeris - Breath Of The Universe (Original Mix) [4:15]
-04. Heaven & Alone - Immersion (Original Mix) [3:30](   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A034E6C4553CA75D85CCA57C0E01DC1EA6C3E3B
 ```
 
 

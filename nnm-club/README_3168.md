@@ -1,674 +1,681 @@
-###  Публикация: 1764521   (102706) от 07.12.2024
+###  Публикация: 1764680   (101486) от 08.12.2024
 
-VA - Ibiza Winter 2025 (Deep-House Smoothies from the Heart) (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+НХЛ 2024/2025. Регулярный чемпионат. Торонто Мэйпл Ливс - Питтсбург Пингвинз (07.12.2024) WEB-DLRip [H.264/720p]
 
->>Electronic
->>House
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101486.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steen Thottrup & Eva Scolaro - Deeper Love (Calmabohain Remix) [03:22]
-02. Nykoluke - Summer '04 [02:23]
-03. Seumas Norv - Baby (Radio Edit) [03:11]
-04. Kay Portman - Deep Down [03:02](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:57:32
+8 декабря 2024, воскресенье. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 290 зрителей (93% при вместимости 18 673)
+Главный судья: Фурман Саут (Сьюикли, США); Главный судья: Вес Макколи (Джорджтаун, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:659F0883A8A61E3DFA9311B384339AA859051FFA
+magnet:?xt=urn:btih:C44840A4F658CBD7EFD97A5FC88DEB6FE6E618A4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764551   (102707) от 07.12.2024
+###  Публикация: 1764695   (101487) от 08.12.2024
 
-Instrumental Jazz Musica Ambiental - Hot Jazz Lounge: Sexy Moments with Erotic Jazz (2023) 2024 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+Neon Rider - Destination Unknown (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destination Unknown (0:51)
+02. Neon Rider (5:04)
+03. Feel The Magic (5:22)
+04. Unleash The Fire (4:32)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8040530D5F9D15EE86256BD926403749D6011E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764525   (101488) от 08.12.2024
+
+Аркадий Беловский - 3 Albums (2013-2024) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На Фурштатской [00:03:17]
+02. Багатель [00:03:10]
+03. Ничтожный Шанс [00:03:17]
+04. Вьюжный Вечер [00:03:41](   Читать дальше...   )Жанр: ChansonПродолжительность: 3 CD, 02:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23D3E3799621FEDBD45909F7E188DF8C804605B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764777   (101489) от 08.12.2024
+
+Cory Marks - Sorry For Nothing (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Make My) Country Rock (feat. Sully Erna of Godsmack, Travis Tritt, and Mick Mars)
+02. Guilty (feat. DL of Bad Wolves)
+03. Whiskey For Sale
+04. Sorry For Nothing(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057DC426656B990512D904536099BFA1A8086673
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764730   (101490) от 08.12.2024
+
+Whiskey Nips - Whiskey Nips (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sexy & Noir (3:29)
-02. Music for Quiet Moments (4:28)
-03. Jazz Mood – Erotic Dance (4:03)
-04. Sentimental Sounds (3:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:55:44
+01. No Stranger To Frustration (4:32)
+02. Old Fashioned Romeo (4:24)
+03. Mamma Just Got Married (4:30)
+04. Superficial (5:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74587E7FCDB07085AE7159DD824DAD9E0324F155
+magnet:?xt=urn:btih:1AA7188B47BFB2294B61D1D3C94E7F1B8F0EE932
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764478   (102708) от 07.12.2024
+###  Публикация: 1764691   (101491) от 08.12.2024
 
-VA - Christmas Dance Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+VA - Redux Selection Vol. 12 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
->>House
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. JLUIS - Parachute (02:48)
-02. Rene Rodrigezz, Basslovers United & Dan Winter - Wherever You Go (02:17)
-03. Stephan F & Ya-Ya - No Broken Heart (03:09)
-04. Dropix DJ - Far in Love (02:34)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:22:32
+01. Dan Cooper - Tipping State (Thomas Lloyd Extended Remix) [5:28]
+02. Mark Hide - Into The Ocean (Emir Guven Extended Remix) [6:30]
+03. Comacode - Vision (Extended Mix) [6:06]
+04. Matthew Dreamer - Remember (Extended Mix) [5:47](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:16:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED5C54E61910ECDA845E0F72F2DA4936E3372B61
+magnet:?xt=urn:btih:0F3A1A4A9C65BAC58235CA0F53655411901FBBEC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764508   (102709) от 07.12.2024
+###  Публикация: 1764701   (101492) от 08.12.2024
 
-VA - Christmas Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+Apollo Brown & CRIMEAPPLE - This, Is Not That (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Boom Bap>
 
->>Electronic
->>House
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Turbotronic - Mamacita (02:45)
-02. JLUIS - Si Te Vas (03:31)
-03. Deep Emotion - With Me (02:53)
-04. TEKTRONIC - Oldskool Vibe (02:53)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:24:25
+01. This, Is Not That (0:44)
+02. Mercy (3:02)
+03. Superstitious (3:11)
+04. Wonderful Feelin' (feat. Willie The Kid) (3:51)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom Bap, Instrumental Hip-HopПродолжительность: 00:40:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EEA1871B1F72BA30161D0D775C8D84ADD26FF78
+magnet:?xt=urn:btih:131FC46ADD1BBAD2F907209819FB9892673D1F7B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764589   (102710) от 07.12.2024
+###  Публикация: 1764664   (101493) от 08.12.2024
 
-Валерий Кравец | Розовая чайка (2005) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга действительного члена Русского географического общества, почетного полярника Валерия Кравца рассказывает о реальных людях и событиях, которые происходили в Арктической и Заполярной части Таймырского полуострова в 70-90-х годах прошлого столетия. Непосредственным участником этих событий был автор этих воспоминаний.
-Книга сформирована в виде серии репортажей, (   Читать дальше...   )Жанр: Путешествия, исследования АрктикиИздательство: Студия "Полярная звезда"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14EA0EED7FB46E9C45C31373280124A1196F634
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764553   (102711) от 07.12.2024
-
-Sexual Music Collection - Saxual Healing: Contemporary Sax Jazz for Intimate Night (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+Herm Solo and the Prompts - Düsterherz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sexual Music Collection - Saxual Bliss Nights (4:21)
-02. Sensual Lounge Music Universe - Intimate Sax Serenade (3:42)
-03. Jazzed-Up Romance (3:43)
-04. Sexual Music Collection - Saxophone Seduction (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:14
+01. Broken Glass (4:33)
+02. These Walls (3:31)
+03. Frustriert (3:33)
+04. Information Overflow (3:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:13:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9FA3A755BDA926E207DB33224CA5A66FF85785B
+magnet:?xt=urn:btih:226497EAABBF6483460EC4FDEC3399EBE70A93EC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764436   (102712) от 07.12.2024
+###  Публикация: 1758065   (101494) от 08.12.2024
 
-SnapEdit - AI photo editor v7.2.4 Mod by Oflarm [Ru/Multi]
+Заклятие: Реинкарнация отца / Папина голова / Daddys Head (2024) WEBRip [DVO] [AD]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 06.12.2024Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+После внезапной смерти отца Айзек остаётся с молодой мачехой. Пока та скорбит и решает, оформлять ли опеку над мальчиком, в их дизайнерский дом в лесу начинает являться некое существо с лицом покойного.Производство: Великобритания / Stigma Films, Arthrofilm, CaptureЖанр: ужасыРежиссер: Бенжамин БарфутАктеры: James Harper-Jones, Руперт Тёрнбулл, Джулия Браун, Чарльз Эйткин, Delta, Натаниэль Мартелло-Уайт, Нила Аалия, Мэри Вудвайн, Стелла Гонет, Lexi Austin-Jones и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:51Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4A4BAB6065AC8A75C6E34182EED6FCC82635394
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764385   (102713) от 07.12.2024
+###  Публикация: 1764685   (101495) от 08.12.2024
 
-Rihanna feat. Mikky Ekko - Stay (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+Holler - Reborn (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
->>Театр и Музыкальное видео
->>Музыкальные клипы
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Stay» — песня барбадосской певицы Рианны, записанная при участии Микки Экко, для её седьмого студийного альбома Unapologetic (2012). Музыкальное видео, сопровождающее песню показывает то, как Рианна сидит в ванне, которая заполнена мутной водой, в то время, как Микки Экко поет в отдельной ванной комнате. Видео было выпущено на официальном Vevo-аккаунте артистки (   Читать дальше...   )Жанр: Поп, R&BПродолжительность: 00:04:13
+01. Do You Believe (4:48)
+02. I Don't Want (4:43)
+03. Music Is The One (4:30)
+04. Into Me Forever (3:34)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:56:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:179345DD2DD5EC0C8937313EA9EB57AD5C27F89A
+magnet:?xt=urn:btih:ACE78CEEDE7FF2D427296127112311FA01D183EB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764584   (102714) от 07.12.2024
+###  Публикация: 1764758   (101496) от 08.12.2024
 
-Следствие вели... (07.12.2024) WEBRip [H.264/1080p]
+Братья-индейцы / The Indian Brothers (1911) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Индеец-отступник убивает оскорбившего его вождя. Брат вождя клянется отомстить и преследует отступника, настигая его как раз вовремя, чтобы спасти от другого племени, которое разгневано на него за кражу лошади...
+Качество картинки не очень. Но что уж тут поделаешь - сто лет назад, индейское племя, какое уж тут качество.Производство: США / Biograph CompanyЖанр: короткометражный, драма, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Фрэнк Опперман, Уилфред Лукас, Гай Хедлунд, Джон Т. Диллон, Френсис Дж. Грэндон, Флоренс Ла Бади, Альфред Пегит, У.К. Робинсон, Бланш Свит, Кейт ТонкрэйПеревод: немой с интертитрами (chayka2 / Феникс)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C424FA3EDD5C7E8EAB62DC3BE492BF5103E901
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764762   (101497) от 08.12.2024
+
+Своя игра (08.12.2024) WEBRip [H.264/1080p]
 
 >>Документалистика и Телепередачи
->>Тележурналистика
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Взрыв на дороге». Это расследование вошло в историю. По нему учили не только советских, но и зарубежных сыщиков.
-1961 год. В Ярославской области ищут бандитов, взорвавших почтовую телегу. В тот день почтовая служба везла 6900 рублей… Что удалось выяснить легендарному детективу? Какую роль в этом деле сыграл театральный бинокль? И как следователям помогла знаменитая (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:07
+В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC7E8B13E85A90C91A87BCB11EDDFE5274423082
+magnet:?xt=urn:btih:D5AD0674E928A4B7B7CE2E81EC656AC5ED497878
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764596   (102715) от 07.12.2024
+###  Публикация: 1764625   (101498) от 08.12.2024
 
-Любимые мультфильмы кота Леопольда. Выпуск 1. Мама для мамонтенка (1974-1993) DVD5
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимые мультфильмы кота Леопольда. Выпуск № 1: Мама для мамонтенка (Крошка Енот, Сказка о старом Эхо, Земляничный дождик, Мотылек, Еловое яблоко, Марусина карусель, В зоопарке ремонт, Кубик-рубик, Кто ж такие птички)Производство: СССР /  Союзтелефильм, ТО "Экран"Жанр: мультфильм, детский, короткометражкаРежиссер: Юлиан Калишер, Натан Лернер, Борис Тузанович, Александр Татарский, Олег ЧуркинАктеры: Зиновий Гердт, Зинаида Нарышкина, Клара Румянова, Григорий Толчинский, Рина Зеленая, Мария Виноградова, Игорь Ясулович, Людмила Гнилова, Татьяна Божок, Евгений Герчаков, Наталья Ромашенко, А. Крюков и другиеСубтитры: отсутствуютПродолжительность: 01:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A30BF8FE2FA2793417D77F8FC6F9510447C55D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764291   (102716) от 06.12.2024
-
-Mystery Blue - Night Demon (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Of The World
-02. Colours Of Life
-03. Burning Souls
-04. Night Demon(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1B54FFC5C1899AD6CCE9DCED72F661173F01A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764287   (102717) от 06.12.2024
-
-White Tower - Night Hunters (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood
-02. Total Evil
-03. Night Hunters
-04. Knife In The Back(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9199963400F396470E7FA952F2B34BF237D1572
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764373   (102718) от 06.12.2024
-
-High Parasite - Forever We Burn (2024) [FLAC|Lossless|image + .cue] <Gothic Metal, Black Metal, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever We Burn 3:57
-02. My Syndrome 5:33
-03. Grave Intentions 3:25
-04. Wasn't Human 3:54(   Читать дальше...   )Жанр: Gothic Metal, Black Metal, IndustrialПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C99EFEE2D8FA3E4552FF6EC5413691965608B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764279   (102719) от 06.12.2024
-
-Ann Hampton Callaway - This Christmas (1997) Angel Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Ella Fitzgerald - Ken Burns Jazz (2000) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Jazz, Swing>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jingle Bells [3:34]
-02. The Christmas Song (Chestnuts Roasting on an Open Fire) [4:59]
-03. Silent Night/A Child Is Born [4:30]
-04. Baby, It's Cold Outside [4:39](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:30
+01. A-Tisket, A-Tasket (2:40)
+02. Vote for Mr. Rhythm (2:28)
+03. Betcha Nickel (2:56)
+04. Flying Home (2:30)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:10:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D19C7A5B6C76DABFA5F61060369EE2A6C8B9D920
+magnet:?xt=urn:btih:195D73D7468BF0AB2BFD016E8E1F0F2A5A8E425C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764368   (102720) от 06.12.2024
+###  Публикация: 1764650   (101499) от 08.12.2024
 
-Von Panzer - Iron and Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Jill Scott - Beautifully Human: Words and Sounds, Vol. 2 (2004) [FLAC|Lossless|tracks + .cue] <Funk / Soul, Contemporary R&B>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101499.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Scorched Earth 04:16
-02. Iron And Steel 05:00
-03. Monte Cassino 03:49
-04. Rode Orm 03:48(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:06
+01. Warm Up (1:20)
+02. I'm Not Afraid (3:26)
+03. Golden (3:52)
+04. The Fact Is (I Need You) (4:38)(   Читать дальше...   )Жанр: Funk / Soul, Contemporary R&BПродолжительность: 01:07:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:209C10DF317C9041A94C74724D2341E9DFB54858
+magnet:?xt=urn:btih:CC5D6BD0E625CC5942323205A1F36001A80B32E1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764304   (102721) от 06.12.2024
+###  Публикация: 1764709   (101500) от 08.12.2024
 
-My Silent Wake - Studio Albums (13 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Doom Metal; Dark Ambient>
+Первая передача на НТВ. Автомобильная передача (08.12.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101500.jpg" />
+</div>
+
+
+###  Подробнее
+
+По морде кирпичом: уличный хулиган кошмарит всю округу и безнаказанно портит машины. Как найти управу на беспредельщика, если стражи порядка бездействуют?
+ Церемония погребения «скончавшегося» авто в Индии: зачем там со всеми почестями похоронили транспортное средство на ходу.
+ Всегда праздник: на всю страну прославился любитель выпить накануне экзамена на права. Что (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCFAE398EF748E77AE2050B55968C56DCD7B5C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757466   (101501) от 08.12.2024
+
+Досье «Чёрная канарейка» / Особо опасный файл / Canary Black (2024) WEBRip [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эйвери Грейвс — одна из лучших агентов ЦРУ, чье мастерство и профессионализм заслужили ей безупречную репутацию. Несмотря на молодой возраст, она уже неоднократно спасала мир, и в этот раз ее задание приводит ее в Японию. Пока Эйвери выполняет опасную миссию, ее муж Дэвид, далекий от шпионских интриг, с нетерпением ждет возвращения жены в их уютный дом. Для него (   Читать дальше...   )Производство: Великобритания / Anton, MP Film Production, MP ProdukcijaЖанр: боевик, драмаРежиссер: Пьер МорельАктеры: Кейт Бекинсейл, Руперт Френд, Рэй Стивенсон, Джаз Хатчинс, Горан Костич, Бен Майлз, Ромина Тонкович, Rok Juricic, Масаёси Ханэда, Эмма Гойкович и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:35Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764671   (101502) от 08.12.2024
+
+Jacqueline Tabor feat. Michael Underwood & Jeremy Boettcher - All Shades of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-My Silent Wake - группа из Северного Сомерсета, Великобритания. Образована в 2005 году.2006 - Shadow Of Sorrow
-2007 - The Anatomy Of Melancholy
-2008 - A Garland Of TearsЖанр: Gothic/Death/Doom Metal; Dark AmbientПродолжительность: 13:29:34
+01. Voodoo Woman (4:05)
+02. Love Me Right (2:13)
+03. Love Ain't Nothin' but the Blues (3:43)
+04. Keep it to your Darn Self (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABF6D4F5C3B0363AE2BAAC6A8813793B441936A8
+magnet:?xt=urn:btih:2724CFF845BB9D9BC217380B7C8D22ACBC5D2DCD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764280   (102722) от 06.12.2024
+###  Публикация: 1764704   (101503) от 08.12.2024
 
-The Great Jazz Trio - Love For Sale (1976) 1986, Nippon [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+Apollo Brown - This Must Be The Place (2022) [FLAC|Lossless|tracks + .cue] <Instrumental Hip-Hop, Underground Hip-Hop, Boom Bap>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Love for Sale [7:03]
-02. Glad to Be Unhappy [6:54]
-03. Gee Baby, Ain't I Good to You [6:48]
-04. Secret Love [6:10](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:39:08
+01. Got It Good (3:26)
+02. Time Lost (3:05)
+03. It Just Is (3:12)
+04. Flowers Die (3:24)(   Читать дальше...   )Жанр: Instrumental Hip-Hop, Underground Hip-Hop, Boom BapПродолжительность: 01:08:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E313CAC5839A92C16A83BD5ACA318D4BA64B1551
+magnet:?xt=urn:btih:44B5EBEE0FC088F15D3781C1904C99BC029FFA49
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764277   (102723) от 06.12.2024
+###  Публикация: 1764702   (101504) от 08.12.2024
 
-The L.A.4 - The L.A.4 (1976) 1987, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bossa Nova, Cool>
+Apollo Brown & Planet Asia - Sardines (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Boom Bap>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101504.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dindi [5:56]
-02. Rainbows [6:46]
-03. Rondo Espressivo [4:45]
-04. Manteca [7:46](   Читать дальше...   )Жанр: Bossa Nova, CoolПродолжительность: 00:46:00
+01. Bird Food (0:52)
+02. Get The Dough Off (3:42)
+03. Panama Sun (feat. Marv Won) (3:29)
+04. Stones (3:46)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom Bap, Instrumental Hip-HopПродолжительность: 00:46:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB634ED188A0CEDC34490EF627258340A2391E13
+magnet:?xt=urn:btih:47855419A001E1E4180804BA42067FB7E80AA129
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764326   (102724) от 06.12.2024
+###  Публикация: 1764703   (101505) от 08.12.2024
 
-Врач / The Doctor (1911) WEBRip
+Apollo Brown & Philmore Greene - Cost of Living (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Boom Bap>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нравоучительная история о том, что врач обязан исполнять свой долг помощи больным в любом случае, даже если приходится жертвовать для этого своими интересами.  Все достаточно прямолинейно и очевидно.Производство: США / Edison Manufacturing CompanyЖанр: короткометражный, драма, немое киноРежиссер: Дж. Сирл ДоулиАктеры: Чарльз Огл, Мэйбл Труннелль, Херберт Прайор, Лаура Сойер, Edna May WeickПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:15:00
+01. Consequences (1:17)
+02. Nice to Meet You (3:24)
+03. Keep Goin' (3:26)
+04. Day On The Ave (3:14)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom Bap, Instrumental Hip-HopПродолжительность: 00:50:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00F9EFD9050405A77A27B62C669C5867CFED3DEE
+magnet:?xt=urn:btih:ED12E74DD6EBFFCAD5C6AA923BBC89D88CAA52EC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764239   (102725) от 06.12.2024
+###  Публикация: 1764705   (101506) от 08.12.2024
 
-The Vazeline - Панк для молодых (2024) [MP3|320 Kbps] <Punk Rock>
+Apollo Brown & Stalley - Blacklight (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Underground Hip-Hop, Boom Bap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hidden (1:08)
+02. Blacklight (3:51)
+03. Love Me, Love Me Not (feat. Skyzoo) (4:37)
+04. No Monsters (3:39)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom Bap, Instrumental Hip-HopПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B952FF9B47092ABFAD57175D81A7A9383CD99749
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764775   (101507) от 08.12.2024
+
+Text Editor Pro 31.0.0 + Portable + Bonus [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощным инструментом редактирования текста с подсветкой синтаксиса для сценариев и языков программирования, является небольшая и компактная программа – Text Editor Pro. Программу можно сравнить с известным текстовым редактором Notepad++ функционал у них схожий, отличаются только по размеру. Утилита работает во всех версиях ОС, выпущенных корпорацией Microsoft. В последних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015E1704D42BE4A56732672515A30355CB9E7EC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764641   (101508) от 08.12.2024
+
+Главная дорога (07.12.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сколько стоит «ремонт» человека, пострадавшего в аварии, и на что хватает этих денег?
+ ереобули шины — не забудьте поменять и автоковрики. Андрей Федорцов и Денис Юченков устроили настоящую проверку всем известным видам ковриков для салона. Ведущие их терли, били, топили, морозили и подогревали, а все для того, чтобы определить, какие из них безопаснее зимой, а какие (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 00:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09DAF49FF412AB190CF840E4FEDC12B5158825E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764728   (101509) от 08.12.2024
+
+The Smoothies - December Chill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chilling in a Winter Night (3:14)
+02. Psychology of Love (3:59)
+03. A Winter Night in Norway (3:50)
+04. A Winter's Tale (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D1304E1BEFBC95539F56D044DCB5B40B5BAC802
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764624   (101510) от 08.12.2024
+
+Jim Jones - Pray IV Reign (2009) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Album Intro (5:14)
+02. Pulling Me Back (3:46)
+03. Let It Out (4:09)
+04. How to Be a Boss (5:07)(   Читать дальше...   )Жанр: Hip Hop, RapПродолжительность: 01:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8091BD45C702588A791998A9A97AA0AC477FACF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764776   (101511) от 08.12.2024
+
+Солнце в Тетрадке - Против Течения (2016) [MP3|320 Kbps] <Pop Punk, Electronic>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Панк для молодых
-2. Разблокируйте панкам Тайгу
-3. Панки не танцуют танго
-4. Нам здесь не будет весело(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:28:27
+01. Welcome 2
+02. Беги
+03. Четвёртый Вид (Мёртвые Звёзды)
+04. Вместо(   Читать дальше...   )Жанр: Pop Punk, ElectronicПродолжительность: 00:22:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E9CB441F58C65D31E430F6F9D2FF1AEE0509597
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764359   (102726) от 06.12.2024
-
-Любимые мультфильмы кота Леопольда. Выпуск 5. Приключения Фунтика (1978-1988) DVD5 [Крупный план]
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимые мультфильмы кота Леопольда. Выпуск № 5: Приключения Фунтика (Фунтик и сыщики, Неуловимый Фунтик, Фунтик и старушка с усами, Фунтик в цирке, Муми-Тролль и другие, Муми-Тролль и комета, Путь домой)Производство: СССР / ТО "Экран"Жанр: рисованная анимацияРежиссер: Анатолий Солин, Аида Зябликова, Нина ШоринаАктеры: Армен Джигарханян, Ирина Муравьёва, Ольга Аросева, Спартак Мишулин, Анатолий Баранцев, Георгий Бурков, Борис Рунге, Юрий Волынцев, Зиновий Гердт, Ольга Гобзева, Зинаида Нарышкина, Юрий Яковлев и другиеСубтитры: отсутствуютПродолжительность: 00:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7EFE6463D18FA901A93DE841A0CBCB8EEF6F9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764286   (102727) от 06.12.2024
-
-Любимые мультфильмы кота Леопольда. Выпуск 2. Про тигренка и его друзей (1983-1987) DVD5 [Крупный план]
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимые мультфильмы кота Леопольда. Выпуск № 2: Про Тигренка и его друзей (По дороге с облаками, Подарок для слона, Клад, Девочка+дракон, Малиновое варенье, Забытый день рождения, Крококот, Вреднюга и др.)Производство: СССР / ТО "Экран"Жанр: мультфильм, короткометражка, детскийРежиссер: Юрий Бутырин, Юрий ТрофимовАктеры: Зинаида Нарышкина, Зоя Пыльнова, Александр Маркелов, Рогволд Суховерко, И. Воронцова, Зинаида Нарышкина, Клара Румянова, Раиса Мухаметшина, А.Баталов, Ролан Быков и другиеСубтитры: отсутствуютПродолжительность: 00:09:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE32A0404F5FBCB6F7EE63EB35FB7F3BCC0192A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764273   (102728) от 06.12.2024
-
-Мишени / Targets (1968) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102728.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом фильме две сюжетные линии, которые развиваются параллельно и независимо. Но это только на время... Известный всем актёр, который решил закончить сценическую карьеру, и молодой человек, весьма уравновешенный и благополучный, на первый взгляд. Что же между ними общего? И какова будет причина их встречи в финале?... Фильм снят по мотивам дела Чарльза Уитмена, (   Читать дальше...   )Производство: США / Saticoy ProductionsЖанр: драма, криминал, триллерРежиссер: Питер БогдановичАктеры: Тим О`Келли, Борис Карлофф, Артур Петерсон, Монте Лэндис, Нэнси Хсю, Питер Богданович, Даниэль Адес, Джеймс Браун, Стэффорд Морган, Мэри ДжексонПеревод: профессиональный многоголосый, профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366FF133160E1FAD59BA1C9908FD5AD483A40F5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764312   (102729) от 06.12.2024
-
-Феникс - Мы не доживем до рая (2014) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Отрекись
-02 - Мы не доживем до рая
-03 - Тишина
-04 - На арене(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD13B84B01E7A469CE2AB8B7F9E066E679BBDB5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764259   (102730) от 06.12.2024
-
-VA - Anjunadeep The Yearbook 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CRi - Dark In This Room (Original Mix) (04:12)
-02. Qrion - Miyanosawa (Extended Mix) (05:42)
-03. Steven Weston & Ormella - Give Me Something (Extended Mix) (06:11)
-04. Romain Garcia - Digital Diva (Extended Mix) (06:15)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279D2E7980A59C4C4CB7EC2EB97BE9DBE91EE11F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764265   (102731) от 06.12.2024
-
-VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristiano Cento & Panico - Smooth Criminal (Panico Extended Remix) (05:24)
-02. Francesco Castelli, Paolo Lofrè & Alicia Wilkson - Bang Bang (Radio Edit) (04:03)
-03. Shock Mama - Let's Party (Euro Mix) (05:23)
-04. Fabio Pazzaglia, RaFF T & Gabriel - Summer Jam (Radio Edit) (03:13)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 03:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:094EB9626B85C6BAE54DE8CED399F7C6A79B6CB1
+magnet:?xt=urn:btih:C02A74C7DC383C1DD7EBDC424D2176C76EF2F7D5
 ```
 
 

@@ -1,682 +1,684 @@
-###  Публикация: 1755913   (103593) от 18.10.2024
+###  Публикация: 1761898   (102943) от 24.11.2024
 
-Максим Яковлев | Преподобноисповедник Георгий Даниловский (Лавров) (2016) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документально-художественное повествование знакомит читателя с судьбой архимандрита Георгия (Лаврова) (1868–1932), старца и духовного наставника тысяч людей, который во времена жестоких гонений на Церковь стойко выдержал все испытания, до самой смерти остался всецело верен оптинскому завету милосердия к грешным людям и в 2000 году был прославлен в лике святых исповедников (   Читать дальше...   )Жанр: ПравославиеИздательство: СимволикФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184265096987DF927E1C6586D986F9494FC54562
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755819   (103594) от 18.10.2024
-
-Cold Cave - Passion Depression (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Reigns Down [00:02:45]
-02. Shadow Dance [00:02:43]
-03. Blackberries [00:04:19]
-04. Hourglass [00:05:02](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20825ABE652672B000F16399C2C70BBCF8F76045
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755812   (103595) от 17.10.2024
-
-VA - Jazz Para Trabajar Y Estudiar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. McCoy Tyner - When Sunny Gets Blue (4:42)
-02. Herbie Hancock - Cantaloupe Island (Remastered 1999/Rudy Van Gelder Edition) (5:24)
-03. John Coltrane - In A Sentimental Mood (4:16)
-04. Harry Baker - Cry Me a River (Arr. for Cello and Piano) (2:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907072F12F14623A61E8BB9925862364825E1419
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755716   (103596) от 17.10.2024
-
-BoomChank - GobabyGO! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gobabygo! (3:22)
-02. Smoking Gun (3:17)
-03. Magic Bag (3:37)
-04. Running Man (4:03)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:110210D85FA7470D506F6B5A19870C0EBECF67B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755796   (103597) от 17.10.2024
-
-Mama's Blues Joint - Happy Dude (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Dude (3:12)
-02. This Ain't Love (3:20)
-03. Missing You (3:50)
-04. How Many Times (3:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5291D1E8B6E270EDD3A0CF3C73D1C3E1C7F99D72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755793   (103598) от 17.10.2024
-
-Khalif Wailin’ Walter - Phoenix Risin (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Connie-Lee (5:52)
-02. Baby, Please Lie To Me (3:37)
-03. The Streets (4:55)
-04. Phoenix Risin' (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A18501FF6FF573EB67D1CC6574ED9AF2C7C976
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755797   (103599) от 17.10.2024
-
-Michelle Malone - Southern Comfort (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country, Folk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southern Comfort (4:06)
-02. Like Mother Like Daughter (3:00)
-03. Randall Bramblett - I Choke on My Words (feat. Buddy Miller & Randall Bramblett) (3:07)
-04. Simple Life (3:08)(   Читать дальше...   )Жанр: Blues, Country, FolkПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CE57865254EEF63513BD270E4C9A1C702AFBF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755727   (103600) от 17.10.2024
-
-James Cooke - Halfway There (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good To You (3:53)
-02. Blood, Sweat, & Steel (3:51)
-03. Shop Around (3:36)
-04. Along for the Ride (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307E0C136F03974738B69CD44324C3D6053D5234
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755802   (103601) от 17.10.2024
-
-Mr Hardearly - Redemption & Bad Habits (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redemption & Bad Habits (3:20)
-02. Good with My Lady (3:21)
-03. You Got No Time (4:56)
-04. Looking for Love (3:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A013CAA08760DCEFB2AAD729DDEA7E6F046283
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755804   (103602) от 17.10.2024
-
-Tas Cru - Tas Cru Band LIVE (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dat Maybe (LIVE) (2:59)
-02. Stand Up! (LIVE) (3:52)
-03. Brown Liquor Woman (LIVE) (3:36)
-04. Have a Drink (LIVE) (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D7D621C4B0EF34044945985E25295C55058F43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755400   (103603) от 17.10.2024
-
-Kenny Werner - Vida Nueva (New Life) (2001) Laurel Tree Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wave [5:03]
-02. Corcovado (Quiet Nights) [5:03]
-03. Girl from Ipanema [4:27]
-04. Morning of Carnival [5:00](   Читать дальше...   )Жанр: Post-Bop, Latin JazzПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DAE7D856932D069E8775D24B82C87B1AFB8FB76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755752   (103604) от 17.10.2024
-
-НХЛ 2023-2024. Баффало Сэйбрз - Питтсбург Пингвинз (16.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103604.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 октября 2024, четверг. 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 15 644 зрителя (84% при вместимости 18 673)
-Главный судья: Коди Бич (Нанаймо, Канада); Главный судья: Тревор Хансон (Ричмонд, Канада); Линейный: Райан Дейзи (Мансфилд, США); Линейный: Джесси Маркис (Буктуч, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72B9FA4EFC5529B9B56D5F2702C98AD61C71270
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754968   (103605) от 13.10.2024
-
-НХЛ 2024/2025. Регулярный чемпионат. Баффало Сэйбрз - Флорида Пантерз (12.10.2024) WEB-DL [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103605.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 октября 2024, воскресенье. 02:00 МСК
-Стадион: Кибэнк-центр (Баффало, США), 16 644 зрителя (87% при вместимости 19 070)
-НХЛ - Регулярный сезон. Баффало Сэйбрз (Баффало) — Флорида Пантерз (Санрайз)
-Главный судья: Пьер Ламберт (Сен-Юбер, Канада)Телекомпания: Scripps SportsЖанр: Спорт, хоккейЯзык озвучки: английскийПродолжительность: 01:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24062E2C30F5B894491D78D02E2D884E97ACA10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754989   (103606) от 13.10.2024
-
-Хоккей. КХЛ 2024-2025. ХК Сочи (Сочи) - Локомотив (Ярославль) (12.10.2024) WEBRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. ХК Сочи (Сочи) - Локомотив (Ярославль) (12.10.2024)
-СУДЬИ Акузовский Николай (Тольятти, Россия) Юдаков Сергей (Россия)
-СТАДИОН «Ледовый дворец «Большой»» (Сочи) Зрителей: 5550Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D238C875DD42DCB7B91BEDF37F59D382BC0F91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754980   (103607) от 13.10.2024
-
-Хоккей. КХЛ 2024-2025. Трактор (Челябинск) - Торпедо (Нижний Новгород) (12.10.2024) WEBRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Трактор (Челябинск) - Торпедо (Нижний Новгород) (12.10.2024)
-СУДЬИ Беляев Дмитрий (Москва, Россия) Наумов Денис (Тольятти, Россия)
-СТАДИОН «Арена Трактор» (Челябинск) Зрителей: 7500Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19EFB770572D3AAE5156A4068E732910E38F097
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754983   (103608) от 13.10.2024
-
-Хоккей. КХЛ 2024-2025. Спартак (Москва) - Ак Барс (Казань) (12.10.2024) WEBRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Спартак (Москва) - Ак Барс (Казань) (12.10.2024)
-СУДЬИ Овчинников Павел (Орск, Россия) Фатеев Иван (Россия)
-СТАДИОН «Мегаспорт» (Москва) Зрителей: 8333Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9DE08DBEDB533D6312B473539FFF190F418701A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754973   (103609) от 13.10.2024
-
-Белый город | Акафистник семейный (2020) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103609.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге собраны акафисты, которые христиане могут читать, молясь о создании семьи и о семейном благополучии. Здесь представлены девять акафистов: Святой Троице, Богородице в честь иконы «Млекопитательница», Ангелу-хранителю, а также святым – от праведных Иоакима и Анны до праведного Алексия (Мечёва), пресвитера Московского.Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202DCDC5390D147CCDDDB8F7EF7198EF13487841
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754956   (103610) от 13.10.2024
-
-Hydra - Rehydration (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+The Soup Dragons - Lovegod (1990) [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102943.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. We Belong (5:37)
-02. Marionette (5:10)
-03. Still The Same (4:59)
-04. Eye Of The Storm (5:04)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:58:11
+01. The Soup Dragons feat. Junior Reid / I’m Free    [0:03:58.40]
+02. Mother Universe    [0:03:46.30]
+03. Backwards Dog    [0:02:20.15]
+04. Softly    [0:02:57.63](   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 00:41:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48120E6B162C1079A11D45CCC13BBDACAD5D434E
+magnet:?xt=urn:btih:AC29F54D66D3335A8CB49C1225263A5E04D4D2B4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754987   (103611) от 13.10.2024
+###  Публикация: 1762116   (102944) от 24.11.2024
 
-Бранимир (Александр Геннадиевич Паршиков) - Ждут домой (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Acoustic, Dark-Folk-Rock, Dark-Chanson>
+The Pursuit Of Happiness - Love Junk (1988) CD, Album, Club Edition, CRC [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102944.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ты меня где-то ждёшь [00:03:49]
-02. Вахтовик звонит домой [00:03:52]
-03. Провожал я друга на войну [00:03:41]
-04. Стёпка украл гуся [00:03:20](   Читать дальше...   )Жанр: Acoustic, Dark-Folk-Rock, Dark-ChansonПродолжительность: 00:27:32
+01. Hard to Laugh (2:40)
+02. Ten Fingers (2:53)
+03. I'm an Adult Now (4:30)
+04. She's So Young (3:37)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:43:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:247368BED278E525A98929B8F7BA460981E379C0
+magnet:?xt=urn:btih:673F91A5232E3051B6366187748EDB573AE1F050
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755065   (103612) от 13.10.2024
+###  Публикация: 1762063   (102945) от 24.11.2024
 
-Первая передача на НТВ. Автомобильная передача (13.10.2024) WEBRip [H.264/720p]
+Pero Defformero - (Jer to lici na taj nacin?) Jer to liči na taj način? (2014) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 
->>Документалистика и Телепередачи
->>За рулем
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Платная парковка для жильцов многоэтажки: в одном из районов Екатеринбурга установили режим платной парковки, но знак установить забыли. Под какой «крышей» здесь делают кассу?
- Внешняя отделка кузова: зачем полировать крылья, двери и капот?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:59
+01. Metal sviraću (3:21)
+02. Gotičarka 2 (6:50)
+03. Gastarbajter (3:44)
+04. Fejsbuk Stana (4:54)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:44:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FE7A5284B9C9E38263B5A81E7342C8A3748E411
+magnet:?xt=urn:btih:5A62F8751918BCACC788DAF83D1D5DC7D1272F32
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755042   (103613) от 13.10.2024
+###  Публикация: 1762023   (102946) от 24.11.2024
 
-Joe Pass Quartet - Nuages: Live At Yoshi's, Vol. 2 (1992) 1997, Pablo [FLAC|Lossless|tracks + .cue] <Bop, Mainstream jazz, Guitar Jazz>
+Zombie Death Stench - The Redeadening (2010) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Remember You [5:48]
-02. Repetition [4:58]
-03. September Song [4:33]
-04. Nuages [5:06](   Читать дальше...   )Жанр: Bop, Mainstream jazz, Guitar JazzПродолжительность: 00:49:12
+01. Requiem 01:15
+02. The Redeadening 05:11
+03. Ally of Apocalypse 03:30
+04. Dead in the Water 04:53(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:55:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB827098FA5C7BA37F75D088E4CE1C5C274E3247
+magnet:?xt=urn:btih:03A7C63F8E2FF8A46CCD39976DDEDB94934561D1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754896   (103614) от 13.10.2024
+###  Публикация: 1761937   (102947) от 24.11.2024
 
-Своя игра (12.10.2024) WEBRip [H.264/1080p]
+Paradigm - Mainstream Epidemic (2005) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Truth Surround (2:42)
+02. Kamikaze (4:19)
+03. Kamikaze (5:32)
+04. Let It Breathe (5:30)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18A3E5FCCAC360DD8E022DBAFA00E6068C5A357
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762319   (102948) от 24.11.2024
+
+Carrioned - Echoes of Abomination (2013) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirge for the Forsaken (Descend into Oblivion) 05:01
+02. Liturgy for Dying Remains 05:31
+03. Shrouded in Agony 05:56
+04. Carrioned (Rotting Remnants) 04:22(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD45BC3882B0FB8F7C030A88BE941BE2928F1753
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762045   (102949) от 24.11.2024
+
+Famishgod - Rotting Ceremony (2021) [FLAC|Lossless|image + .cue] <Doom Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sun, The Death (6:40)
+02. Ascension (5:46)
+03. Fear Your Own Shadow (6:03)
+04. Deep Fall (6:28)(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A468F52D9076611943ACD9974A1308CA1C1081
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762048   (102950) от 24.11.2024
+
+Hidden - Dead Land Energy (2011) [FLAC|Lossless|image + .cue] <Progressive Black Doom Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of Control 02:38
+02. Dead Land Energy 03:26
+03. Humanjunk 03:04
+04. Archaic Wasteland 02:51(   Читать дальше...   )Жанр: Progressive Black Doom Death MetalПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD41E183159EBB9EA9F24B56E7E5157B5134446
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762213   (102951) от 24.11.2024
+
+Газета | Невыдуманные истории №43 (447) (октябрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102951.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B68F861212769E4129C6324D994C1D5D5EFA5B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762123   (102952) от 24.11.2024
+
+Своя игра (23.11.2024) WEBRip [H.264/1080p]
 
 >>Документалистика и Телепередачи
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102952.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:04
+В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F785308E2E3DAE6086596CC6972BAAE6EDAF1978
+magnet:?xt=urn:btih:7156B85E7A42E14962128B94AB9BC805CC8F6987
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755040   (103615) от 13.10.2024
+###  Публикация: 1762216   (102953) от 24.11.2024
 
-Jim Hall - Live! (1975) 2017, Universal [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Guitar Jazz>
+Газета | Невыдуманные истории №45 (449) (ноябрь 2024) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Angel Eyes [11:11]
-02. 'Round Midnight [8:02]
-03. Scrapple From The Apple [7:37]
-04. The Way You Look Tonight [6:14](   Читать дальше...   )Жанр: Cool, Post-Bop, Guitar JazzПродолжительность: 00:41:45
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FD6B7C94BD2F6DE8B3D22896F5CEEA338228A36
+magnet:?xt=urn:btih:3AC54FFE3A31957F7F6CEDC51A7914A325B8D5F6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754856   (103617) от 13.10.2024
+###  Публикация: 1762081   (102954) от 24.11.2024
 
-Barney Kessel & Herb Ellis - Poor Butterfly (1976) 2002, Victor [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+VA - The Best Of Suanda True 2024 (2024) [MP3|320 Kbps] <Trance>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dearly Beloved [3:23]
-02. Monsieur Armand [4:24]
-03. Poor Butterfly [3:48]
-04. Make Someone Happy [8:38](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:42:31
+01. AYUUB - Teemo (Extended Mix) [5:09]
+02. Adip Kiyoi - Queen Of Zee (Extended Mix) [7:26]
+03. Kaselia - Albatross (Extended Mix) [6:31]
+04. Christopher Corrigan - Vanishing Echoes (Extended Mix) [6:40](   Читать дальше...   )Жанр: TranceПродолжительность: 03:14:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1530E7E24C56369021F4D875240BA855F2D2197
+magnet:?xt=urn:btih:4F095F0E97D3DF4C0CC5ECE3ADBC56AE27B598CA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754843   (103618) от 13.10.2024
+###  Публикация: 1762185   (102955) от 24.11.2024
 
-Joe Pass - Live In Vegas (1988) 2018, Hi Hat [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+WoodScream - Studio Albums (4 releases) (2010-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Come Rain or Shine, Full of Pass [4:48]
-02. All the Things You Are [4:11]
-03. Beautiful Love [6:55]
-04. Joy Spring [6:26](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:56:38
+WoodScream - фолк-метал группа из Санкт-Петербурга, Россия, основана в 2006 году.2010 - Pentadrama (EP)
+2014 - Octastorium
+2020 - Варево
+2024 - Чёрные птицыЖанр: Folk MetalПродолжительность: 02:10:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2E2CB34EA352FBE9A3DE5061A1BC34FE9238B45
+magnet:?xt=urn:btih:F706457ED67CA3E25B467667BBE9EB07109DDA9C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755053   (103620) от 13.10.2024
+###  Публикация: 1762077   (102956) от 24.11.2024
 
-Хоккей. НХЛ 2024-2025. Нью-Джерси Дэвилз - Вашингтон Кэпиталз (12.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+VA - The Best Of Suanda Future 2024 (2024) [MP3|320 Kbps] <Trance>
 
->>Спорт и активный отдых
->>Хоккей
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 октября 2024, воскресенье. 02:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Брайан Почмара (Детройт, США); Главный судья: Майкл Маркович (Скарборо, Канада)Телекомпания: MSGЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:58:20
+01. Gid Sedgwick - One Track Mind (Extended Mix) [4:53]
+02. Adip Kiyoi & Eky - Pure (Extended Mix) [5:33]
+03. Tonerush & Pragma - El Fuego (Extended Mix) [4:52]
+04. Nucrise - I'll Be There (Extended Mix) [5:51](   Читать дальше...   )Жанр: TranceПродолжительность: 00:53:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D668E9940843205BC33471E0307A5E5A9E691192
+magnet:?xt=urn:btih:CD7A0CFA6453DDAE1585AAAC3EAB7E9C285EA0A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762341   (102957) от 24.11.2024
+
+Torchlight Parade - Children of the Night (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children of the Night (01:52)
+02. Howl'n Wolf (04:13)
+03. Frankenstein of Death (04:37)
+04. Shadow Run (01:42)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF62AF1C817105F54B0A34B547C56396DC5176D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762078   (102958) от 24.11.2024
+
+Talia Hoit - Oceans (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castaway [00:03:46]
+02. Unanchored [00:04:23]
+03. Ocean [00:04:25]
+04. Beautiful [00:04:01](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA91F0B4E11C16BC58A1D3A731396068B5F325BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762214   (102959) от 24.11.2024
+
+Газета | Невыдуманные истории №44 (448) (октябрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102959.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B1E6D922B21F891760212FDC117F7C47194E18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762124   (102960) от 24.11.2024
+
+Своя игра (январь-февраль 2024) WEBRip [H.264/1080p] (игры 1-12 из 12)
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102960.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. Первый турнир этого года называется "Возвращение к истокам" и проводится по тем же простым правилам, по которым проводился самый первый турнир: победитель отправляется за центральный игровой стол и остаётся там, пока не проиграет.Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 12 выпусков по ~00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1619B9F2C5D1FEFE3416C00B5450902827B5AEDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762339   (102961) от 24.11.2024
+
+Lost in Hollywood - The Beauty of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep [00:02:53]
+02. Body Bag [00:03:22]
+03. All Night [00:03:45]
+04. Deadly Remedy [00:03:19](   Читать дальше...   )Жанр: Alt MetalПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4696B1299538FF3B65C223A27B6790BE8637F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762205   (102962) от 24.11.2024
+
+Wolfheart - Draconian Darkness (2024) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102962.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ancient Cold
+2. Evenfall
+3. Burning Sky
+4. Death Leads The Way(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD98328FA574C9488E4F179020F85799A0D0C1C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762083   (102963) от 24.11.2024
+
+Deep As Ocean - Dance With Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance With Death [00:00:57]
+02. Dark Place [00:03:16]
+03. Minefield [00:03:45]
+04. Lunar [00:00:52](   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D103F184BAF2982B00D91581F8F93BC7C518ADB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762293   (102964) от 24.11.2024
+
+Своя игра (24.11.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102964.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416AFA2BB0A1DFCE5E117A411D5EB742252AA73C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762211   (102965) от 24.11.2024
+
+Первая передача на НТВ. Автомобильная передача (24.11.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как инспекторы ГИБДД оформили аварию со слов и проигнорировали то, что ДТП попало на запись сразу двух камер наблюдения?
+ Автомобильный коврик: как его обслуживать, чтобы долго служил?
+ Приставы годами не могут продать машину должника, который за это время успел скончаться.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:25:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDA70E3F9C6621E5CBF9CCCBF511026B16BD8D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762173   (102966) от 24.11.2024
+
+PJ Harvey - To Bring You My Love (1995) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Bring You My Love (5:34)
+02. Meet Ze Monsta (3:29)
+03. Working for the Man (4:49)
+04. C'mon Billy (2:51)(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FECBD1124413DEB889D51F95D021F11FBDA45A66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762054   (102967) от 24.11.2024
+
+Интоксикация - The Best 1996-2002 (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сарацины / Saracens
+02. Умереть молодым / To die young
+03. Если не закон / If not the law
+04. Рай или тюрьма / Heaven or prison(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FD84BBD35770393A46D249811360D099860448
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762080   (102968) от 24.11.2024
+
+Aeon Gods - King Of Gods (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun-God [00:04:00]
+02. King Of Gods [00:04:25]
+03. Aeon Gods [00:05:23]
+04. Babylon Burning [00:05:00](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD30B040E380C4FD5808D59C9F248ADDF5B578DF
 ```
 
 

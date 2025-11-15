@@ -1,3 +1,57 @@
+###  Публикация: 1663890   (186244) от 24.09.2023
+
+VA - Uplifting Only Top 15: September 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iberian - Preludio (George Crossfield Intro Remix) [6:52]
+02. Andrew Riqueza & Diana Dyatkinskaya - Hope To Wonder (Deme3us Extended Mix) [6:45]
+03. Paul Cry & 3xodus - We Still Hope (Extended Mix) [7:36]
+04. HALIENE & Maratone - Make It To Tomorrow (Extended Mix) [5:11](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3892800944DF67E760FB4C7833B5CF69DAC4C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664116   (186267) от 24.09.2023
+
+Vintage Culture - Live @ elrow, Ushuaia Ibiza, Spain (2023-09-06) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture - Tudo Bem Tudo Bom
+02. Gala - Freed From Desire (ID Remix)
+03. Kylie Minogue - Can't Get You Out Of My Head (ID Remix)
+04. Jewel Kid, Matt Sassari - Get Down Low(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D43711FF032AC9C5EF1062D4317EE04B89CB07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827337   (186356) от 21.10.2025
 
 Cosmic Gate - Live @ Tomorrowland Store Rooftop Ibiza, Spain (2025-09-16) [MP3|320 Kbps] <Trance, Melodic House, Techno>
@@ -638,60 +692,6 @@ Hernan Cattaneo & Soundexile - Future Memories (2022) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F83B46704EE07E2C9B6E1E4DCB0AAF22EA1FB81F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591132   (187534) от 17.11.2022
-
-VA - Sea & Waves: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Hitching a Ride to Paradise (Original Mix) (3:18)
-02. Clive Button - A Wish Come True (Original Mix) (4:42)
-03. Euphonic Traveller - Moro Bay (Original Mix) (8:18)
-04. Michael E - Andiamo (4:42)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05CA98C64270AA6CFA90300D258B12BD15091B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590858   (187550) от 17.11.2022
-
-Groove Master Juno - The Last Prism (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Alternative>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mission Control [00:05:40]
-02. Coordinates [00:04:34]
-03. Breaking in [00:03:24]
-04. Sector 3 [00:05:18](   Читать дальше...   )Жанр: Synthpop, AlternativeПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23833DF01C5248AC421C25E547985BE47C098A93
 ```
 
 

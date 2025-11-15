@@ -1,701 +1,700 @@
-###  Публикация: 1640218   (236543) от 16.06.2023
+###  Публикация: 1645502   (232747) от 09.07.2023
 
-Nedrugh - Depersonalize (2023) [FLAC|Lossless|image + .cue] <Black Metal>
+Чёрное Платье - 2 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232747.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Depersonalize
-2. Faith In Salvation
-3. Mystifier
-4. Secret Alliances(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:29:05
+01. Во славу королю [00:04:10]
+02. Живи [00:04:46]
+03. Дракон [00:04:50]
+04. Лунный свет [00:04:32](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:30:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F478E89C05F2A2954677B78DA72A0FAD29B274C
+magnet:?xt=urn:btih:44F70096132DCD19F6040C9A782CB8AFD811A80F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456084   (236617) от 21.03.2021
+###  Публикация: 1643052   (232961) от 30.06.2023
 
-Delorian Domain - Alchemilla (2017) [FLAC|Lossless|WEB-DL|tracks] <Extreme Metal>
+Дмитрий Ревякин - Стрелы лет (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232961.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alchemilla [00:02:19]
-02. Black Rosarium [00:05:23]
-03. My Fall [00:05:49]
-04. The 21 Sacraments [00:02:29](   Читать дальше...   )Жанр: Extreme MetalПродолжительность: 00:20:08
+1. Будем жить!
+2. Абакан
+3. Оренбург
+4. Грёб ложкой(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AC8D0ED7EC8BBBE2218FE87A90DF42B29C856B9
+magnet:?xt=urn:btih:B423C5F4DE69C387BBD94F9B7EEBAAC17E9B51CD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505057   (236647) от 26.10.2021
+###  Публикация: 1580025   (233036) от 30.09.2022
 
-Shabnak - Fusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Tribal Metal, Industrual Metal, Nu Metal>
+7раса - 7жизней (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233036.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Into the Fusion (Intro) [00:00:09]
-02. Spit [00:03:13]
-03. Slave Zero [00:05:04]
-04. I'm Not OK [00:03:26](   Читать дальше...   )Жанр: Tribal Metal, Industrual Metal, Nu MetalПродолжительность: 00:48:40
+01. 1й круг (2022) [00:04:19]
+02. В поисках рая (2022) [00:03:26]
+03. Вечное лето (2022) [00:04:33]
+04. Качели (2022) [00:03:40](   Читать дальше...   )Жанр: RockПродолжительность: 00:25:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03A78763FFEB866E810FB8598A2960F9EA3C0473
+magnet:?xt=urn:btih:C19C47B21419FB235B26C12640EB3DC3F916573B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455925   (236716) от 21.03.2021
+###  Публикация: 1576911   (233318) от 17.09.2022
 
-Egor Lappo - Trancevoicer (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+Омела - Asperatus (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Renegade [00:04:44]
-02. Dreamworld [00:04:19]
-03. Turncoat Allies [00:03:23]
-04. Contention [00:04:19](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:42:03
+01. Письма с небес [00:05:56]
+02. Чёрная листва [00:07:06]
+03. Лес теней [00:07:12]
+04. Исчезновение [00:08:27](   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:16:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:820AB441420FC2B4016A359C8EB81C353A9548C5
+magnet:?xt=urn:btih:8E1D398BE1111828230CCEB2A3A64E161FE8CE8E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639584   (236772) от 14.06.2023
+###  Публикация: 1644723   (233332) от 06.07.2023
 
-Изморозь - ПеркелЕ (2023) [FLAC|Lossless|image + .cue] <Folk Metal, Black Metal>
+Saphath - Ascension Of The Dark Prophet (2022) [FLAC|Lossless|image + .cue] <Death Metal, Gothic Metal, Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233332.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Самая скандальная группа российской метал-сцены. Люди в черном запрещают их концерты на крупных площадках столицы, а лейблы готовы драться друг с другом за выпуск их альбомов! Фанаты группы начинают ломиться в очереди за билетами, пытаясь попасть на их концерты, но выступают они всего несколько раз в году….. Загадочная Проскофья Матвеевна дрожащей старой рукой пишет (   Читать дальше...   )01. Чёрный олень
-02. Перкеле
-03. Бабка с пистолетом
-04. Некрономикон(   Читать дальше...   )Жанр: Folk Metal, Black MetalПродолжительность: 00:40:32
+01. Children Of The Night
+02. Outcast Of Eden
+03. Darkness Unleashed
+04. Broken Mirror(   Читать дальше...   )Жанр: Death Metal, Gothic Metal, Black MetalПродолжительность: 00:44:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C2EDCB7B7B35400FE4F6B73B32AD353181C613B
+magnet:?xt=urn:btih:70317F9F21FBD47878ADC4A5224BED3ACF58C948
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455890   (236790) от 20.03.2021
+###  Публикация: 1644096   (233378) от 05.07.2023
 
-Летние войны - Сажа (2021) [FLAC|Lossless|WEB-DL|tracks] <Midwest Emo, Screamo, Post Rock>
+Паническая Атака - Основы любви и промышленной безопасности (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233378.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ковенант [00:04:05]
-02. Отдел тайн [00:03:13]
-03. 154 [00:03:27]
-04. Изменники тьмы [00:03:09](   Читать дальше...   )Жанр: Midwest Emo, Screamo, Post RockПродолжительность: 00:25:05
+01. Введение
+02. Паническая атака
+03. Паранойя
+04. Паранойя - 2(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DF69E88FFFDB60CA1671F6863078D3C9B1EC188
+magnet:?xt=urn:btih:778844FB2432D9098DBC8AAF5EF868C4D129B97B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504637   (236844) от 24.10.2021
+###  Публикация: 1634518   (233405) от 20.05.2023
 
-Цыганята и Я с Ильича - Заклятье Царей (2021) [FLAC|Lossless|image + .cue] <Rock, Avantgarde, Punk>
+Пилот - ТЫГЫДЫМ (2022) [FLAC|Lossless|tracks + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233405.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01-Заклятье Царей [00:03:42]
-02-Никогда Всегда [00:03:47]
-03-Свобода [00:00:45]
-04-Расхождения [00:02:12](   Читать дальше...   )Жанр: Rock, Avantgarde, PunkПродолжительность: 00:41:21
+01. Интро
+02. Апрель
+03. Иордань
+04. Заживо(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A096BDF18657E88AC237FC84499F003AEC43525E
+magnet:?xt=urn:btih:65411C0C521BF2629C8BEF88F8A3ABC7A01415B4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593414   (237659) от 03.05.2022
+###  Публикация: 1644400   (233418) от 05.07.2023
 
-Total - 4 Albums + 7 Singles (2001-2021) [FLAC, WV|Lossless|image + .cue, tracks] <Alternative Rock>
+Ильин - Общее согласие (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Prog-Metal, Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа «Total», чье возникновение пришлось на начало нулевых годов, является отличным примером того, что и в России возможно делать фирменную музыку на западном уровне. Запоминающийся низкий тембр вокалистки, музыкальные параллели с «Guano Apes» и «Skunk Anansie», и конечно же, талант продюсера и композитора Максима Фадеева (двоюродного брата Марины Черкуновой) — (   Читать дальше...   )2001 - Total:1
-2002 - Total:1+
-2006 - Total:2 (мой мир)
-2007 - Total:2+ (Life) + Bonus trackЖанр: Alternative RockПродолжительность: 05:12:43
+1. Новорожденный щит
+2. Театр
+3. Лужи-разводы
+4. Вторая память(   Читать дальше...   )Жанр: Metal, Prog-Metal, RockПродолжительность: 00:43:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3091AEDB34D8A70EA566B730661D63948E3F80A
+magnet:?xt=urn:btih:3F3C2A75F3FCE19E95408A9DF233E6525BC3ACBB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640035   (237728) от 16.06.2023
+###  Публикация: 1642076   (233468) от 25.06.2023
 
-Autumn Rain Melancholy - Одиночество (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Doom Metal, Symphonic Black Metal>
+мытищи в огне - A LA RUSSE (2023) [FLAC|Lossless|WEB-DL|tracks] <Art Punk, Art Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Прелюдия [00:02:01]
-02. Звезда [00:04:14]
-03. Два Крыла (Remastered) [00:05:23]
-04. Одиночество [00:05:30](   Читать дальше...   )Жанр: Symphonic Doom Metal, Symphonic Black MetalПродолжительность: 00:30:30
+01. À LA RUSSE [00:03:59]
+02. Клац клац клац [00:02:21]
+03. Сияющий Дао [00:04:03]
+04. Антракт [00:02:16](   Читать дальше...   )Жанр: Art Punk, Art RockПродолжительность: 00:30:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:857241ABCF9DB0FBE5D0C4A50317D1B0A1DBBEAC
+magnet:?xt=urn:btih:09AF9C47AA9BAA8C29DC12065EDE51CB9E94379C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630087   (237747) от 29.04.2023
+###  Публикация: 1634254   (233574) от 19.05.2023
 
-Раккас - Цирк-шапито (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Чёрный кофе - Нам 40 лет (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233574.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Шельма [00:04:08]
-02. Комеди дель арте [00:04:37]
-03. Чучело [00:02:55]
-04. Заклинатель змей [00:04:30](   Читать дальше...   )Жанр: RockПродолжительность: 00:37:41
+01. Герой
+02. Светлый образ
+03. Брожу по городу один
+04. Краски(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:47:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:650CDD3CACD6E77D5B8672C2B4405CA75D416AE9
+magnet:?xt=urn:btih:16A6423A51A374595342DE27B60D325BAE91AB49
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630093   (237807) от 29.04.2023
+###  Публикация: 1633777   (233882) от 17.05.2023
 
-Антоха Гумбин - Мазаные правдой (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Gorky Park - Moscow Calling (1992) Reissue, Remastered, 2023, Moroz Records [FLAC|Lossless|image + .cue] <Hard Rock, Glam Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233882.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Беспредел [00:04:07]
-02. Любовь и родина [00:05:23]
-03. Мазаные правдой [00:03:44]
-04. Поколение [00:02:47](   Читать дальше...   )Жанр: RockПродолжительность: 00:43:57
+01. Moscow Calling (5:09)
+02. All Roads (5:10)
+03. Politics Of Love (4:03)
+04. Tomorrow (5:55)(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:57:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C91115CA4B164BD10826C50A64660EAFA988CB2E
+magnet:?xt=urn:btih:589C577A676C22BA7CF5538116587E0FA30EAC6D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573702   (237886) от 01.09.2022
+###  Публикация: 1623404   (233944) от 01.04.2023
 
-Алиса - Дудка (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Джейло - Grunge Bo! X) (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233944.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Взрыв (Всё по швам)
-02. Покров
-03. Кислород
-04. Боль(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:18
+01. GRUNGE BO! X) [00:02:19]
+02. Где нас с тобою больше нет x( [00:02:12]
+03. Тени х_х [00:02:21]
+04. Мы найдем наши сердца </3+</3=<3 [00:02:43](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:15:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FD97EF06D56D854340090E86DE69AFAF4A7C095
+magnet:?xt=urn:btih:79258F25758C89D2B794509F848B88BA65D05E7F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624037   (238105) от 04.04.2023
+###  Публикация: 1543257   (234453) от 10.04.2022
 
-Loners - Отражения (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+Egor Lappo - Naturealism (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Отражения [00:03:47]
-02. Пешки [00:03:42]
-03. Будущее есть [00:03:58]
-04. Всадники [00:03:11](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:24:49
+01 - Unreal (00:01:27)
+02 - Invisible Walls (00:04:35)
+03 - Forgone Future (00:03:51)
+04 - Lack of Gravity (00:03:55)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F20A79894F729C42FD6A746BACEB588E3F27EF5
+magnet:?xt=urn:btih:DFA07B11FB848266AB0C6A3B597B92535D6C8064
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623754   (238175) от 03.04.2023
+###  Публикация: 1477030   (234706) от 13.06.2021
 
-Прощай, романтика - Жизнь прекрасна (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Dig Me No Grave - Under The Pyramids (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234706.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Гордая весна [00:04:12]
-02. Море горит [00:02:42]
-03. Мамины глаза [00:02:50]
-04. Тоска [00:02:38](   Читать дальше...   )Жанр: RockПродолжительность: 00:23:05
+01. Under The Pyramids (3:38)
+02. Doom Of Sarnath (3:07)
+03. From Beyond (3:45)
+04. Mortuus Templaris (4:23)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BAC83248C1D81ACA2EC11C18E95F37065A4A740
+magnet:?xt=urn:btih:6183053DC104622C3EC483E03BADAFD9DAE02571
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637313   (238356) от 03.06.2023
+###  Публикация: 1576908   (234859) от 16.09.2022
 
-Бѣсъ - Кощунства (2020) Remastered, 2022, Sound Age Productions [FLAC|Lossless|image + .cue] <Black Metal>
+Аквариум - Дом Всех Святых (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234859.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Исходъ
-02. Коще Омракъ
-03. Пекло, Взыди!
-04. Чърнобогъ(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:21
+1. портал (вход)
+2. Ворожба
+3. Вино Из Песка
+4. Не Выходи За Дверь(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:430D1A3177B0A893E485B4FB7769596694BE7A26
+magnet:?xt=urn:btih:D42F89FF5B3DA5475F0526BDC5B1DEBB26AF8E52
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639139   (238614) от 11.06.2023
+###  Публикация: 1639147   (234899) от 12.06.2023
 
-Hyperomm - Designing Apocalypse (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+Concrete Age - Bardo Thodol (2023) [FLAC|Lossless|image + .cue] <Thrash, Death Metal, Folk Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Weakest Link
-02. Shadowplay
-03. Doppelgänger
-04. Nuclear Phoenix(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:12
+01. Hex
+02. Purity
+03. True Believer
+04. Threads Of Fate(   Читать дальше...   )Жанр: Thrash, Death Metal, Folk MetalПродолжительность: 00:41:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C19E7D4DBE277E49C10EAAF3D0B86D88EE8C194C
+magnet:?xt=urn:btih:F9E6A6B5EB73A9E721CFD76B397708E2D4009385
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476751   (238923) от 13.06.2021
+###  Публикация: 1620716   (234902) от 23.03.2023
 
-Первый легион - Завет (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+Белая Ошибка - Умирать и убивать (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234902.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Покаяние [00:03:30]
-02. Щит, меч, острый топор [00:03:27]
-03. Где нет святых [00:03:42]
-04. Завет [00:04:48](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:36
+01. Преодоление [00:01:52]
+02. Безразличие [00:04:10]
+03. Родина [00:04:09]
+04. Эшафот [00:02:55](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:23:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E64F9A3ACB3D2AC3436576497CAB585F4E4E4EC
+magnet:?xt=urn:btih:425B5F1E046302D0D39E3E59684EBFD0BFC4B426
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476847   (238993) от 13.06.2021
+###  Публикация: 1621097   (234964) от 23.03.2023
 
-АутистЪ - 3 Albums (2019-2021) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk>
+Nemezida - Война. Голод (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234964.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Зарница горит (Дисциплина) [00:01:51]
-02. Нет дискотеки [00:02:11]
-03. Двуногий смеётся [00:03:11]
-04. Лето обещает быть холодным (2021) [00:02:06](   Читать дальше...   )Жанр: Hardcore PunkПродолжительность: 3 CD, 00:35:24
+01. Странник [00:03:32]
+02. Невинность [00:04:13]
+03. Тиран [00:03:53]
+04. Война [00:03:09](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3EB93ECC186E669B20AFF755D1C05169F792E73A
+magnet:?xt=urn:btih:8C064203E8C6CE5814072BB40B45FAC544329C0A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635301   (239892) от 25.05.2023
+###  Публикация: 1619961   (235223) от 18.03.2023
 
-Конец фильма - Непрожитые дни (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Loengreen - Огненные цветы (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235223.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Прыжок
-2. Поцелуй
-3. Огни
-4. Город(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:20
+01. Корабли [00:03:24]
+02. Радость [00:03:41]
+03. Огненные цветы [00:03:55]
+04. Лимонады [00:03:30](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C13B9B08220D12C4F7FD8222CC426E8B949AC00
+magnet:?xt=urn:btih:6FC63D6DC0E77AA78A45AC837AB5DCF3A913497D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635126   (240028) от 24.05.2023
+###  Публикация: 1458900   (235530) от 30.03.2021
 
-Black Scum - .INI (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore>
+Koldovstvo - Ни Царя, Ни Бога (2021) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Black Metal, Depressive Black Metal, Folk Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235530.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. xyintro [00:00:37]
-02. DNO [00:03:46]
-03. W.T.Y.C [00:03:31]
-04. #000 [00:03:15](   Читать дальше...   )Жанр: Nu-MetalcoreПродолжительность: 00:26:22
+01. I (7:13)
+02. II (4:55)
+03. III (3:29)
+04. IV (5:36)(   Читать дальше...   )Производство: Babylon Doom Cult, Extraconscious, Fólkvangr RecordsЖанр: Atmospheric Black Metal, Depressive Black Metal, Folk MetalПродолжительность: 00:30:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0582D23A6F35A135249665DB13B5B00DD0BC3F2E
+magnet:?xt=urn:btih:43EE139517D357ACED293B9211E25C52EF6A188E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627087   (240170) от 17.04.2023
+###  Публикация: 1617824   (235540) от 08.03.2023
 
-VA - Пипл про | To Purple. Российско-Белорусское посвящение Deep Purple (2006) [FLAC|Lossless|tracks + .cue] <Classic Rock>
+Melancholy - Чернъ (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic Metal, Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Н. Арутюнов, Д. Четвергов - Highway Star (Machine Head-1972) 05:27
-02. Crossroadz - Woman From Tokyo (Who Do We Think We Are-1973) 05:17
-03. А. Маршал - Lazy (Machine Head-1972) 05:10
-04. М. Мень, Д. Четвергов - Mistreated (Burn-1974) 04:58(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:03:26
+01. Лжепророк [00:06:44]
+02. Бесы [00:07:16]
+03. Чернъ [00:05:45]
+04. Бурелом [00:05:44](   Читать дальше...   )Жанр: Doom, Gothic Metal, Progressive MetalПродолжительность: 00:50:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82BDB4C9221E2A896D9BC9FA18D451681F71E489
+magnet:?xt=urn:btih:B6D85F9517CBAC7B2E2CDCE7B0D5A8B1B1AC81D1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621089   (240313) от 23.03.2023
+###  Публикация: 1617624   (235605) от 08.03.2023
 
-Roobanok - Космос умеет прощать (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, New Wave>
+Woab - Для этого мира (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Там где [00:02:54]
-02. Свечка [00:03:45]
-03. Дивный новый мир [00:03:42]
-04. Полуночный экспресс [00:04:30](   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:39:33
+01. Рвется наружу [00:03:37]
+02. Зрячих ослепит молчание [00:03:35]
+03. Одним из вас [00:03:13]
+04. Для этого мира [00:01:29](   Читать дальше...   )Жанр: RockПродолжительность: 00:19:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19C11BB9E5CDFEA4126269DCEAF2B4F356EE7DFF
+magnet:?xt=urn:btih:5E5E327010B261616C9E512DB97F1BFAFF777C37
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 609570   (240406) от 20.04.2022
+###  Публикация: 1617630   (235613) от 08.03.2023
 
-Леприконсы - 8 альбомов + 2 сингла (2000-2021) [FLAC, APE|Lossless|image + .cue, tracks + .cue, tracks] <Pop-Punk, Rock >
+Nuclear Cthulhu - Desecration (2016) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235613.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Леприконсы» — белорусская рок-группа.
-Предпосылки создания группы появились ещё в 1996 году. До появления на свет группы «Леприконсы» главный заводила Илья Митько играл в панк-рок-группе «Kindergarten». Хотя Илья и был там вокалистом, свободы ему явно не хватало. Потому группа просуществовала недолго, а ушедший вокалист организовал другую, назвав её «Леприкон». (   Читать дальше...   )2000 - Нам стобою было Super
-2001 - ...ля Тополя (live)
-2001 - Все ребята перцы
-2003 - С запада на востокЖанр: Pop-Punk, RockПродолжительность: 06:38:11
+01. Desecration I (The Great One) [00:09:21]
+02. Transmission from the Plateau of Leng I [00:01:02]
+03. Desecration II (Shub-Niggurath) [00:07:15]
+04. Transmission from the Plateau of Leng II [00:00:57](   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 00:45:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4E52DDF75754BC082131AD712C10D98AFBB4948
+magnet:?xt=urn:btih:429051E0E8C4BCB6DE17A6224F87D8209D44196C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620461   (240621) от 20.03.2023
+###  Публикация: 1457926   (235744) от 28.03.2021
 
-Blaze To Raise - Blaze to Raise (2023) [FLAC|Lossless|WEB-DL|tracks] <MetalCore>
+Electric Crown - Prophecy of Doom (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ash [00:04:30]
-02. Standoff [00:03:04]
-03. Renegade [00:01:28]
-04. It [00:04:06](   Читать дальше...   )Жанр: MetalCoreПродолжительность: 00:24:21
+01. Stand up & Fight [00:06:44]
+02. Hypocrite [00:04:56]
+03. Electric Crown [00:04:59]
+04. Between the Lines [00:05:29](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F257B3088C1D96A5E57F859C001B7A52053926CB
+magnet:?xt=urn:btih:BB52638BB6954DABB228E016542AD32A73CD2967
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636635   (240633) от 31.05.2023
+###  Публикация: 1613095   (235933) от 18.02.2023
 
-Elena Volkova And Alex K. Strangel - Nova (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Male Female Vocal>
+AHTOH SKALD (Anton Gruzinsky) - Enigma Of Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Arrival (07:05)
-02. We Are Here (05:13)
-03. Circle Of Life (04:28)
-04. Guardian Angel (04:42)(   Читать дальше...   )Жанр: Symphonic Metal, Male Female VocalПродолжительность: 00:51:41
+01. Centuries [00:03:49]
+02. Eternal Struggle [00:03:53]
+03. Enigma Of Time Uverture [00:09:08]
+04. Eternal Circling [00:02:32](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 01:31:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:099CC632F0279BA15BA7E8C77989BBCD9A80F81B
+magnet:?xt=urn:btih:B96E67121FE7959992838F81A6A7ACFBE8F3CFFB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598943   (240655) от 13.04.2023
+###  Публикация: 1610872   (236129) от 11.02.2023
 
-ГештальТ - 7 Realises (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Ural Rock>
+Ошибся номером - HYPERMETAL (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-2022 - Noir (Часть I)(LP)
-2022 - Noir (Часть II)(LP)
-2022 - В эфире снов (EP)(   Читать дальше...   )Жанр: Gothic Rock, Ural RockПродолжительность: 7 CD, 02:04:37
+01. Моя маленькая дрянь [00:03:48]
+02. Only Fun [00:02:28]
+03. Девочка-вебкам [00:02:27]
+04. Меня тоже нет [00:02:18](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:14:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96CB72B215F172EF6214CF4AE18C65A3A3186F76
+magnet:?xt=urn:btih:E2AC2B58D882114C65261FCE8D6096B42565B40A
 ```
 
 

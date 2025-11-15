@@ -1,3 +1,36 @@
+###  Публикация: 484211   (100193) от 22.04.2012
+
+VA - Клубные Новинки Vol.61 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sebastian Brandt - Mana (Original Mix)
+02. Rafael Frost - Channel 4 (Original Mix)
+03. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)
+04. Armin Van Buuren & Orjan Nilsen - Belter (Original Mix)
+05. Phunk Investigation - Smash (Original Mix)
+06. Morgan Page feat. Nadia Ali - Carry Me (Extended Mix)
+07. Kachu MX - Alien Bubble (Original Mix)
+08. suGar, Eva Kade, Evil T - All Around (Blood Groove & Kikis Remix)
+09. Matula feat Goldsound - Wonderful World (Gaga Remix)
+10. Chris Online feat. Alray - Once Again (Horny United Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CE40D0589331F0BB4357B7BC9DA246667A8E06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486228   (100227) от 22.04.2012
 
 VA - Студенческая Вечеринка Русский (2012) [MP3|256 кб/с]<Pop>
@@ -736,33 +769,6 @@ EchøNova - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB2836DBB3ADE36F6B4CB12AC773F37C274DD749
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822644   (100902) от 07.10.2025
-
-EchøNova - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Golden Sun
- 02 - Deep Chill
- 03 - Relaxing Music
- 04 - When All Else Fades, I’m Still With You(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6937BA2C347253A4D91766A468AD99D39DECDC1D
 ```
 
 

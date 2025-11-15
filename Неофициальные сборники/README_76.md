@@ -1,3 +1,30 @@
+###  Публикация: 1272800   (140738) от 29.12.2018
+
+VA - Не Зима, Просто Горячие Треки (2018) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140738.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Homie - Пули
+002. HammAli & Navai - Запах Снов (Rakurs & Ramirez Radio Edit)
+003. HammAli & Navai - Начальник Не Хочу Работать
+004. МакSим - Абонент недоступен(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB048368A1880570BD8641407380123D0617C9CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088192   (140769) от 30.12.2016
 
 VA - Better Than Sex (2CD) (2016) [MP3|320 Kbps] <Synthpop>
@@ -673,33 +700,6 @@ VA - The Space Beats (2021) [MP3|320 Kbps] <Synthspace, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09F606DC6FDADA296641212E18484735F054F523
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520523   (141992) от 28.12.2021
-
-VA - Music For You vol.21 (2021) [MP3|320 Kbps] <Rock, Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Van Der Graaf Generator - Theme One (03:10)
- 02. Jethro Tull - Crossfire (Extended Version) (Steven Wilson Remix) (04:39)
- 03. Camel - Song Within A Song (07:13)
- 04. Alphataurus - La mente vola (09:13)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 05:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5C182DB7B78D37C3FB9B6645EFC853082A0E4A
 ```
 
 

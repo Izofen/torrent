@@ -1,700 +1,705 @@
-###  Публикация: 1650604   (225782) от 02.08.2023
+###  Публикация: 1084110   (219597) от 18.12.2016
 
-TORF - Романтика не в моде (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Groove Metal>
+Nautilus Pompilius (Наутилус Помпилиус) - Архив. Цифровая реставрация оригинальных записей (1983-2001) 23CD [FLAC|Lossless|image + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219597.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Черным-черно (1:19)
-02. Семена (3:29)
-03. Гаутама (4:01)
-04. Общество пропавших капитанов (2:54)(   Читать дальше...   )Жанр: Nu-Metal, Groove MetalПродолжительность: 00:37:06
+1983 - Переезд (1997)
+1985 - Невидимка (1997)
+1986 - Разлука (1998)
+1987 - Подъем (Таллинн 87) (1997)Жанр: RockПродолжительность: 18:06:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79DEDB7CE6684EB2AC7B0BB352EEA8E1ACFFD7BF
+magnet:?xt=urn:btih:DF75C7BB770F5D4F7DFC8CF44FEA363A7D43B20C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650656   (225825) от 02.08.2023
+###  Публикация: 1652074   (219599) от 09.08.2023
 
-Dream Theater - Systematic Chaos (2007) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
+Woven Man - Sardonic Waters (2023) [MP3|320 Kbps] <Heavy Rock, Stoner Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219599.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. In the Presence of Enemies Part I
-2. Forsaken
-3. Constant Motion
-4. The Dark Eternal Night(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:18:43
+01 - Intro [00:02:17]
+02 - Break The Sea [00:05:04]
+03 - Stormbringer [00:08:18]
+04 - Led By Cold Water [00:02:01](   Читать дальше...   )Жанр: Heavy Rock, Stoner MetalПродолжительность: 00:49:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7A5A28DD251350627201F28246CFF4F648AB24C
+magnet:?xt=urn:btih:42E4FF549ED004B496B440CB9035B31C3E0A4B12
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650550   (225869) от 02.08.2023
+###  Публикация: 1585953   (219603) от 24.10.2022
 
-Aerolith - Megalorama Part II (2023) [MP3|320 Kbps] <Progressive Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parallel Dimension 12:00
-02. Planckworm 07:08
-03. Sickpax 08:20
-04. Moon Spell 10:54Жанр: Progressive Rock, Space RockПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D074B788D6BD5F4287742227A32F25757E1B4A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650440   (225883) от 02.08.2023
-
-Meat Puppets - Santa Monica (1988) live, Remaster, 2023, [MP3|320 Kbps] <Pop Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - In Love (live) [00:03:35]
-02 - Wish Upon A Storm (live) [00:04:45]
-03 - Light (live) [00:04:01]
-04 - Touchdown King (live) [00:05:09](   Читать дальше...   )Жанр: Pop Rock, Hard RockПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD954CAF4BE11236B7098664512AC430634F8802
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650511   (225892) от 02.08.2023
-
-Jonathan Cain - Back To The Innocence (1995) Japanese Edition [FLAC|Lossless|image + .cue] <Soft Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wish That I Was There With You (4:15)
-02. Waiting On The Wind (4:23)
-03. Something Sacred (4:05)
-04. Full Circle (4:06)(   Читать дальше...   )Жанр: Soft Rock, AORПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9A908D03E37DA00935F4C2F173F481F6DB8583
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650449   (225899) от 02.08.2023
-
-Will The Thrill - Take It Sleazy (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
+Seraina Telli - Simple Talk (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Hard Rock, Female Vocal>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219603.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Just Want Your Love Tonight [00:04:02]
-02. Creep [00:03:38]
-03. S.E.X. [00:04:35]
-04. Ain't Gotta Mean a Thing [00:05:21](   Читать дальше...   )Жанр: Hard Glam RockПродолжительность: 00:52:14
+01. Modern Warrior
+02. I’m Not Sorry
+03. Take Care
+04. I Dare To(   Читать дальше...   )Жанр: Alternative, Hard Rock, Female VocalПродолжительность: 00:41:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD47D8D235431C292C46CA480B4C0E186B8BE6A5
+magnet:?xt=urn:btih:0B6D65D2924097F291EC1CFC03DF079162FB872F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650621   (225906) от 02.08.2023
+###  Публикация: 1652066   (219607) от 09.08.2023
 
-G519 - Blue Atomic Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog, Female Vocal>
+Hanoi Rocks - Oriental Beat mix (1982) The 40th Anniversary Re(al)mix 2022, 2023, Sanctuary Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Time To Reflect (03:57)
-02. Rain In The City (03:50)
-03. Walking To The Sun (04:24)
-04. Asteroid (02:34)(   Читать дальше...   )Жанр: Progressive Rock, Crossover Prog, Female VocalПродолжительность: 00:44:26
+01. Oriental Beat (2022 Remix) [00:03:07]
+02. Motorvatin' (2022 Remix) [00:03:11]
+03. No Law Or Order (2022 Remix) [00:03:39]
+04. Teenangels Outsiders (2022 Remix) [00:03:28](   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:35:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0CAB9A23E4609D427A4EDD955A2DBCBED60C20B
+magnet:?xt=urn:btih:5BE4517FD7A1CC909CD56FD7190C7AF59FF272E7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650617   (225915) от 02.08.2023
+###  Публикация: 1585932   (219626) от 24.10.2022
 
-Marc Atkinson - For A Broken Dime (2023) [FLAC|Lossless|WEB-DL|tracks] <Acoustic Rock, Prog Related>
+Vatic - Mercer 217 (2022) [MP3|320 Kbps] <Progressive Metalcore, Nu Metalcore>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219626.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Heart and Soul
-02. See Right Through You
-03. Changes
-04. The End of the World(   Читать дальше...   )Жанр: Acoustic Rock, Prog RelatedПродолжительность: 01:00:35
+01. Not Ready To Die
+02. Silver Glass
+03. The Colour In Your Eyes
+04. 217(   Читать дальше...   )Жанр: Progressive Metalcore, Nu MetalcoreПродолжительность: 00:25:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53F33231BF5F616D62974B87ED6F72938F9F4838
+magnet:?xt=urn:btih:281CAE61D1B932ABD889F381A917C177CB01FEAF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650470   (225927) от 02.08.2023
+###  Публикация: 1585923   (219633) от 24.10.2022
 
-Protean Shield - Protean Shield (2023) [MP3|320 Kbps] <Epic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Protean Shield (04:36)
-02. 47 Ronin (04:39)
-03. Stormbringer (04:44)
-04. Lament (00:38)(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8963B90D94AFD97A8F834055DB9585C650F2FDBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650503   (225947) от 02.08.2023
-
-Cavalera - Bestial Devastation (2023) EP [FLAC|Lossless|image + .cue] <Thrash/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-1. The Curse
-2. Bestial Devastation
-3. Antichrist(   Читать дальше...   )Жанр: Thrash/Death MetalПродолжительность: 00:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E54DAFCF9149067002B7E1CD68412A132FAFFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650608   (226049) от 02.08.2023
-
-The Unscarred - Vacant Skies (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vacant Skies [00:04:29]
-02. March of Ides [00:03:08]
-03. Infinite [00:02:45]
-04. Heatwave [00:04:17](   Читать дальше...   )Жанр: Alternative Rock, MetalПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FA6DB6E2E1DAD35B858CE0D3BA61722054736F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650611   (226067) от 02.08.2023
-
-Recreating Eden - Tome I: Awaken (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Prog Rock, Metal, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prologue
-02 - Veins
-03 - Daylight
-04 - Another Day, Another Nightmare(   Читать дальше...   )Жанр: Alternative Prog Rock, Metal, Female VocalsПродолжительность: 01:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3327C3311FF27717D4BEC12E6D96E325D39F13A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650411   (226075) от 02.08.2023
-
-Phantom Witch - Forced to Worship (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Soldier's Sorrow (00:01:05)
-02 - Crusader (00:05:16)
-03 - Day of Reckoning (00:04:28)
-04 - Something Evil Approaches (00:05:04)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4852D719A99292C697F7AAE4189FBB19955B7C6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650467   (226086) от 02.08.2023
-
-Doomdozer - Live in Industrial Plate (Live) (2023) [MP3|320 Kbps] <Rock>
+Bon Jovi - Bon Jovi (1984) Remastered, 1998, Mercury [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219633.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Tonight (Live) [00:05:46]
-02 - Narcotic Eldorado (Live) [00:04:12]
-03 - Decomposition (Live) [00:03:59]
-04 - Dead President (Live) [00:04:54](   Читать дальше...   )Жанр: RockПродолжительность: 00:37:40
+01. Runaway
+02. Roulette
+03. She Don't Know Me
+04. Shot Through The Heart(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:38:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2387E69127543E7D8A6CE01A2C89978157B5B4F3
+magnet:?xt=urn:btih:69B4B73B23BDB93634B7ADD377A99AC02B8B80C2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650459   (226093) от 02.08.2023
+###  Публикация: 1585973   (219645) от 24.10.2022
 
-Sisyphean - Illusions of Eternity (2017) [FLAC|Lossless|image + .cue] <Black, Death Metal>
+Antivalent - Lifelong (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219645.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Into The Circle (02:24)
-02 - Epitaph To The Remnants (06:32)
-03 - Nekrokatarsis (05:42)
-04 - Paskęsk Savyje (07:49)(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:40:02
+01. Lost and Found [00:03:00]
+02. Full Repair [00:03:06]
+03. Sucker for Love [00:03:32]
+04. End Time Valentine [00:03:17](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:35:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D46546BA60096E13176F436631CFC0AA34E222BD
+magnet:?xt=urn:btih:64406A10F387D61740F30CF74CD632F3EFD1CD6E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650629   (226101) от 02.08.2023
+###  Публикация: 1585882   (219656) от 24.10.2022
 
-Hey Colossus - RRR (2011) 2CD, Expanded Edition, 2018, Riot Season Records [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
+Asceta - Asceta (2022) [FLAC|Lossless|tracks + .cue] <Prog Rock, Avantgarde>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219656.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Teased From The Nest (Alt Version) [00:06:14]
-02. Under And Under [00:03:40]
-03. Rotated For Success (Alt Version) [00:08:46]
-04. RRR (Alt Version) [00:04:11](   Читать дальше...   )Жанр: Psychedelic Rock, Noise, Doom Metal, Avantgarde, ExperimentalПродолжительность: 00:40:23
+01. Fobia
+02. Virusmosis
+03. Gigante Microscopico
+04. Los De Afuera(   Читать дальше...   )Жанр: Prog Rock, AvantgardeПродолжительность: 00:44:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCD979319D89145725AF9BDE8CB22E7EF2A1915F
+magnet:?xt=urn:btih:C311894F476C24241FBE86930747EE6707D25B17
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650405   (226108) от 02.08.2023
+###  Публикация: 1652091   (219666) от 09.08.2023
 
-Perracide - Underdog (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
+Midnight Phantom - Murder On 42nd Street (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danger Zone
+02. Rock 'N' Roll Time Machine
+03. Peacemaker
+04. Always Remember(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC630622D16028100FC03BEB1B1CA90AF4E7757E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651858   (219674) от 09.08.2023
+
+Distorted Force - Angelic Bloodshed (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Inexorable (03:20)
-02. The Grotesque (originally by Benediction) (03:28)
-03. In The Eyes Of Suffering (02:53)
-04. Raped (originally by Deströyer 666) (03:16)(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:44:25
+01 - Desert (00:05:26)
+02 - Charge & Slay (00:08:30)
+03 - Light & Stone (00:09:51)
+04 - Acherondas (00:08:43)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:08:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC9028EFD2D26B1056DC1FFFE1919DF8EA98A0D8
+magnet:?xt=urn:btih:E4DB60BFD5595B51D5C76156C732DD0F84948B81
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650599   (226114) от 02.08.2023
+###  Публикация: 1342732   (219680) от 05.12.2019
 
-The Astral Serpent - Mirages in Izar (2023) [FLAC|Lossless|WEB-DL|tracks] <Raw Black Metal>
+Gary Moore - Gold (2013) 2CD, Compilation, Remastered [MP3|320 Kbps] <Hard Rock, Blues-Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219680.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I
-02. II
-03. III
-04. IV(   Читать дальше...   )Жанр: Raw Black MetalПродолжительность: 00:48:49
+01 - Out In The Fields [4:18]
+ 02 - Still Got The Blues [4:11]
+ 03 - Wishing Well [4:07]
+ 04 - Woke Up This Morning [3:51](   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 02:34:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C009AC2100D241C26DC7A5EE2C5EDCCB5A2AE6FE
+magnet:?xt=urn:btih:162E9CB17D0F942299B43465205DDAD52E61FF9D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650457   (226121) от 02.08.2023
+###  Публикация: 1651806   (219684) от 09.08.2023
 
-Sisyphean - Colours of Faith (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before the Light (00:58)
-02. Scorched Timeless (06:44)
-03. Hearts of Mercury (05:18)
-04. Sovereigns of Livid Hope (07:02)(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD6BC0A78542CF23172A2D5FDCD2A18DFBB1E268
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650613   (226140) от 02.08.2023
-
-Mudness - Mudness (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.I.P.
-02. Gone
-03. Evil Roots
-04. Disembody(   Читать дальше...   )Жанр: Stoner Doom MetalПродолжительность: 00:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6792399FD711F71D187541FD4CE46F3C8170533C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650612   (226148) от 02.08.2023
-
-Torture Rack - Primeval Onslaught (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ceremonial Flesh Feast (03:02)
-02. Decrepit Funeral Home (02:44)
-03. Forced From The Pit (04:24)
-04. Morning Star Massacre (00:50)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BCDDEA836DFDBE26DC7E62F1B01A3121A24F044
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650354   (226444) от 01.08.2023
-
-Dogs Of Neptune - One Taste Of Blood (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atrophy
-02. Through The Black Hole
-03. Extinction Of Hope
-04. The Lucky Ones(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081B1CD3FDFA096BB7D9D52A8AF53F8947D44FE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649945   (226460) от 01.08.2023
-
-The Shape of Chaos - The Shape of Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fight Or Fail [00:03:36]
-02. Relocate [00:04:02]
-03. Animal X [00:03:26]
-04. No Limits [00:05:02](   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A3D78C17E3F6277326E56B54D28D589B8F152F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650271   (226468) от 01.08.2023
-
-Eternal Rot - Moribound (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Doom Metal, Blackened>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summoned From Moribund Delusions [00:06:24]
-02. Reflected In Perpetual Waves Of Despair [00:05:18]
-03. Swollen Corpse Adoration [00:05:54]
-04. Desecrated Guts [00:05:09](   Читать дальше...   )Жанр: Death Metal, Doom Metal, BlackenedПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC9F03A524FA8F45D7D721EA0648C4DA951D1A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650021   (226475) от 01.08.2023
-
-Dead Fields Of Woolwich - Dead Fields Of Woolwich (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Metal, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Those Who Flower In Darkness [00:04:43]
-02. Midnight In The Garden Of Earthly Delights [00:06:42]
-03. Winters For Poets [00:05:04]
-04. Casualties Of Circumstance [00:08:23](   Читать дальше...   )Жанр: Doom Metal, Gothic Metal, Female VocalsПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0772F82D96CD66404AEC40D4874FE83C7CD507
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650158   (226749) от 31.07.2023
-
-Anna Fiori - De la Tierra (Un encuentro semiacústico) (2019) EP [MP3|320 Kbps] <Symphonic Power Metal>
+Cathalepsy - Blood and Steel (2023) [MP3|320 Kbps] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219684.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cehualli
-02. De la Tierra
-03. Jamás
-04. Bajo la tempestad(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:24:56
+01 - We Are the Warriors
+02 - Heavy Metal Faith
+03 - Hammer Heart
+04 - Blood and Steel(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58BD2AC44046FA873E42B034BAFEE48C1CE54F33
+magnet:?xt=urn:btih:A5577D8E8A07B46DBE9A911FD00777DD0A2BB8AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651481   (219698) от 09.08.2023
+
+M.A.G.S. (MAGS) - Destroyer (2023) [FLAC|24/44.1|tracks|WEB-DL] <Alternative & Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destroyer [00:03:59]
+02. Sins [00:03:28]
+03. Elephant [00:03:41]
+04. Swimming [00:04:25](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79442246757A7618845F5E4E1FED78CB56699D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651922   (219730) от 09.08.2023
+
+Jovian Queen - Jovian Queen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirt [00:04:22]
+02. Catatonic Smile [00:04:58]
+03. Death Machine [00:04:48]
+04. Nostromo's Demise [00:05:25](   Читать дальше...   )Жанр: Heavy Rock, Stoner, 70'sПродолжительность: 00:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75EC1FEBE1A9E9C79436DC363EDA0A28B0C7BC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651925   (219751) от 09.08.2023
+
+Coffin Hag - Prairie Tyrant (2023) [MP3|320 Kbps] <Psych Stoner Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Family Man [00:10:43]
+02 Three Times Great [00:09:10]
+03 Become Nothing [00:03:22]
+04 Forgotten Gods [00:02:12](   Читать дальше...   )Жанр: Psych Stoner DoomПродолжительность: 00:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DCD54ABA9F1EEE82A338084C4E7C536D2AB468B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514155   (219785) от 02.12.2021
+
+Dec Burke - Life in Two Dimensions (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life in Two Dimensions (5:12)
+02. Emergency (3:53)
+03. Sister X (4:49)
+04. This Time (4:39)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D431A04BFEEC13A4DC024DD3FBF7A144FC4187
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652064   (219802) от 09.08.2023
+
+Hypnos - Oniros (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obertura [00:03:30]
+02. Viaje [00:03:31]
+03. Encuentro [00:05:45]
+04. No Necesitas [00:05:17](   Читать дальше...   )Жанр: Progressive Metal, Female VocalПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AE5BA8560B1D906CBE30AD2A6C575F4C99A7F52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652063   (219817) от 09.08.2023
+
+Revealing Chaos - Materia (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Materia [00:02:00]
+02. Scorched [00:04:21]
+03. Twisting Air [00:03:20]
+04. Erupted [00:04:11](   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E706CE1FA12C8B176A6495F439025E55B8D052
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651912   (219825) от 09.08.2023
+
+Darkened Nocturn Slaughtercult - Necrovision (2013) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Aura (Instrumental) 2:29
+02.Omnis Immundus Spiritus 4:36
+03.Primordial Sapphirine Driplets 4:26
+04.In The Hue Of Night 5:26(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E17A346C85D5DD79B3F6DE5A47B6F6D8BAC0A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343269   (219869) от 05.12.2019
+
+Nightwish - Decades: Live in Buenos Aires (2019) Live [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219869.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Swanheart
+2. End of All Hope
+3. Wish I Had an Angel
+4. 10Th Man Down(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 02:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECE7A5E17AE6EA172E574F89C1CE458ACEFA0A33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269601   (219883) от 15.12.2018
+
+Алексей Марковников (Год Змеи) - Мы ещё полетаем (the Best) (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219883.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Первый самолёт
+2. Мы ещё полетаем
+3. Две тысячи баксов
+4. Господин диспетчер(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A2CB95DBDD34A869532E957C9F1AC7568C2580
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269522   (219907) от 15.12.2018
+
+Outlaw Blood - Outlaw Blood (1991) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tower Of Love (04:24)
+02. Body And Soul (04:10)
+03. Last Act (04:40)
+04. Sink My Teeth (04:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B8CC5A38D259E50E750BCFB55F07713DFB7B95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343272   (219915) от 05.12.2019
+
+The Who - WHO (2019) Deluxe Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219915.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. All This Music Must Fade
+2. Ball and Chain
+3. I Don't Wanna Get Wise
+4. Detour(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7122B25EF2C6EE20D73B5680C40E4F9C3DAAB077
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587756   (219953) от 11.12.2012
+
+Scorpions - Love At First Sting [24 KT + Gold CD] (1984/2012) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219953.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bad Boys Running Wild (3:56)
+ 2. Rock You Like A Hurricane (4:12)
+ 3. I'm Leaving You (4:17)
+ 4. Coming Home (4:59)
+ 5. The Same Thrill (3:31)
+ 6. Big City Nights (4:09)
+ 7. As Soon As The Good Times Roll (5:02)
+ 8. Crossfire (4:36)
+ 9. Still Loving You (6:27)Жанр: Hard RockПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCFB5CD19E35CA3D730CF9EB0D3D9547CA2F650
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269536   (219975) от 15.12.2018
+
+Beacon Street Union - The Eyes Of The Beacon Street Union (1968) Reissue, 2010, Tune In [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219975.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Recitation / My Love Is
+2. Beautiful Delilah
+3. Sportin' Life
+4. Four Hundred And Five(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:099C2E36A7845E6A75D221616F2D5F95807AF911
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269688   (219999) от 15.12.2018
+
+АСТЕРА - Темный век (2018) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219999.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Испокон веков
+2. Тёмный век
+3. Северный ветер
+4. Последний путь воина(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6EA4475EF3517965EF8801C30AF09613E60D148
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1828049   (193612) от 23.10.2025
+
+Jumanov - Favorites Collection (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Disorder
+ 02 - Feel Fresh
+ 03 - Action
+ 04 - Remember Me(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECAB22AF683FC2BE4618C9DB069313E21C6FBF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640782   (193648) от 27.08.2023
 
 VA - Виниловый бублик (1901-2019) [MP3|128-320 Kbps] <Classic, Pop, Rock>
@@ -667,33 +694,6 @@ VA - Музыка для машины Vol.30 (2023) [MP3|320 Kbps] <Pop, Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D60C3DC4A38B70FAAB8C4BB1246D884CF9EE915B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645421   (195910) от 09.07.2023
-
-VA - Tik Tok Треки выстрелили летом 2023 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195910.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Childish Gambino - Me and Your Mama (6:18)
-002. Doja Cat - Kiss Me More (feat. SZA) (5:15)
-003. Frank Ocean - Nights (5:07)
-004. A-Wall - Loverboy (5:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B375AE666A2ED17818A7B9D47FB4314CCBEEB9C
 ```
 
 

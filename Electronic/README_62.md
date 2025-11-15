@@ -1,3 +1,57 @@
+###  Публикация: 1736135   (106723) от 11.07.2024
+
+VA - FSOE Summer Selection (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila & Richard Durand - Nebula (Extended Mix) [7:20]
+02. Billy Gillies - Nostalgia (Extended Mix) [7:26]
+03. Paul Denton - The Code (Michael Fearon Extended Remix) [5:18]
+04. Alex M.O.R.P.H. & Luminn - Shambhala (Extended Mix) [6:32](   Читать дальше...   )Жанр: TranceПродолжительность: 02:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CB8FFEB76936B5254B2A56FDA4039A814A4EA00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736017   (106726) от 11.07.2024
+
+Markus Schulz - Global DJ Broadcast World Tour: Luminosity Beach Festival 2024 (2024-07-04) [MP3|320 Kbps] <Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz presents Dakota - Stereo 11AM (Intro)
+02. ID - ID
+03. ID - ID
+04. Binary Finary - 1998 (Victor Ruiz Remix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7771F0E4C7419B586E27E634B951EB1E6EE35021
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736168   (106727) от 11.07.2024
 
 CVN - 4 Albums (2016-2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experimental, Abstract>
@@ -628,60 +682,6 @@ Charlotte de Witte - Overdrive EP (2023) [FLAC|Lossless|tracks] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDF52CFBA75B47B2631DC12D463C2F8D3ED8DF0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734358   (107123) от 03.07.2024
-
-VA - Trance Selected Vol. 1 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Kazal - Artemis' Love (Extended Mix) [6:54]
-02. Super Luminal - Dark Robe Lane (Extended Mix) [7:33]
-03. Steve Sunrise - Agua (Original Mix) [4:46]
-04. Static State (UK) - Transcended (Extended Mix) [7:03](   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2231E130BCF9B3DDCE48E58C40D2CB24DEF81FB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733848   (107205) от 01.07.2024
-
-VA - Live @ Pinkpop Festival Netherlands (2024) [MP3|320 Kbps] <Progressive House, Melodic House, Techno, Drum & Bass>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pendulum @ North Stage, Pinkpop, Netherlands 2024-06-22
-01. Pendulum - Napalm
-02. Pendulum - The Island, Pt. I (Dawn)
-03. Pendulum - The Island, Pt. II (Dusk)(   Читать дальше...   )Жанр: Progressive House, Melodic House, Techno, Drum & BassПродолжительность: 02:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F175951CB0B8EACF6669F11221A75B632A67977
 ```
 
 

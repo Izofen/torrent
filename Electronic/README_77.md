@@ -1,3 +1,57 @@
+###  Публикация: 1704089   (114515) от 03.03.2024
+
+Black Nail Cabaret - Chrysanthemum (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthpop, Darkwave, DarkPop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Home is Empty [00:04:27]
+02. Autogenic [00:05:20]
+03. Totem and Taboo [00:04:58]
+04. Never Enough [00:03:46](   Читать дальше...   )Жанр: EBM / Synthpop / Darkwave / DarkPopПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E63D3ACBC4E3D1E76E8AC5324C6056EAE0D6403
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704240   (114516) от 03.03.2024
+
+Hollan Holmes - Sacred Places (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Space, Berlin-School>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Order Out Of Chaos
+02. Temple Of Stones
+03. Bristlecone
+04. Drawn To An Intangible Energy(   Читать дальше...   )Жанр: Ambient, Space, Berlin-SchoolПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8155BC52D536F869FC1C6B9DA202F3CB1BB177B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704235   (114521) от 03.03.2024
 
 Madis - Live in Krakow (2023) [MP3|320 Kbps] <Electronic Techno>
@@ -641,60 +695,6 @@ Max Cruise - Night Cruise (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7A8B16F755F9AD455E35A18B4F67F0763AF38B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702003   (115824) от 24.02.2024
-
-VA - Armin van Buuren - A State Of Trance 1161 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Armin van Buuren & Ferry Corsten & Rank 1 & Ruben de Ronde - Destination (Cubicore Remix) (ASOT) (Tune Of The Week)
-02.	Lufthaus - Sunlight (Rodriguez Jr. Remix) (ARMADA) (Progressive Pick)
-03.	Vincent De Moor - Flowtation (Dan Stone Remix) (XL)
-04.	Armin van Buuren ft. Anne Gudrun - Love Is A Drug (Agents Of Time Remix) (ARMIND) (Future Favorite)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24269ECE7B671A517405A33FAE265780F6000219
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702303   (115830) от 24.02.2024
-
-Weber & Weber - World In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomorrow's Another Day
-02. What If...
-03. World In Motion
-04. Love Generation(   Читать дальше...   )Жанр: Nu Jazz, Chillout, LoungeПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879CE6AA6B47536552E30F119BDD210EA341F942
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1427424   (183390) от 28.11.2020
+
+VA - A State Of Trance - Future Favorite - Best Of 2020 - (Extended Versions) (2020) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Avira feat. Be No Rain - Hollow (Extended Mix)
+02. System F - Out Of The Blue (Ilan Bluestone Extended Remix)
+03. Aly & Fila feat. Plumb - Somebody Loves You (Extended Mix)
+04. Andrew Rayel & Robbie Seed feat. That Girl - Stars Collide (Aimoon Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 03:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03AC5183C2286860BC519933E1EE1A84296381E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591811   (183680) от 22.11.2022
+
+VA - Trance: The Vocal Session 2023 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183680.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Talla 2XLC & Alexandra Badoi - Revive My Light (Extended Mix) (7:42)
+02. Armin van Buuren & Gareth Emery feat. Owl City - Forever & Always (Extended Mix) (6:52)
+03. Cosmic Gate & Diana Miro - Hear Me Out (Extended Mix) (7:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B86F8588B22A202738EE32AD51D46235A899A03A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592223   (183732) от 22.11.2022
 
 Cyberwalker - Future Waves, Vol. 1-2 (2019-2022) 2CD [MP3|320 Kbps] <Synthwave, Retrowave, Retro Electro, Dreamwave>
@@ -638,60 +692,6 @@ Blank & Jones feat. Mick Roach - Christian (2023) EP [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC9D593D1274CC89DDA7099671BC70CAA64CB7D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663890   (186244) от 24.09.2023
-
-VA - Uplifting Only Top 15: September 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iberian - Preludio (George Crossfield Intro Remix) [6:52]
-02. Andrew Riqueza & Diana Dyatkinskaya - Hope To Wonder (Deme3us Extended Mix) [6:45]
-03. Paul Cry & 3xodus - We Still Hope (Extended Mix) [7:36]
-04. HALIENE & Maratone - Make It To Tomorrow (Extended Mix) [5:11](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3892800944DF67E760FB4C7833B5CF69DAC4C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664116   (186267) от 24.09.2023
-
-Vintage Culture - Live @ elrow, Ushuaia Ibiza, Spain (2023-09-06) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage Culture - Tudo Bem Tudo Bom
-02. Gala - Freed From Desire (ID Remix)
-03. Kylie Minogue - Can't Get You Out Of My Head (ID Remix)
-04. Jewel Kid, Matt Sassari - Get Down Low(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D43711FF032AC9C5EF1062D4317EE04B89CB07
 ```
 
 

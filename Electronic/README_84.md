@@ -1,3 +1,57 @@
+###  Публикация: 1692039   (122734) от 15.01.2024
+
+Space 92 - Live @ Input Barcelona, Spain (2024-01-06) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space 92 - Robot w/Space 92 - Gravity (Acapella)
+02. Heerhorst - Wimbo
+03. Space 92 - Gravity
+04. Green Velvet - Flash (Bart Skils Edit)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9FB1F44E394162320AA706942F7374A073C2AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692048   (122741) от 15.01.2024
+
+VA - Pop Mania 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empty Rollers - One More Time (Mike Claver Remix) [02:39]
+02. Robin Da Cross - Finger Tips (Original Mix) [02:24]
+03. Ellise Morgan - Tell That You Love Me (Original Mix) [02:57]
+04. Justin Young - Stereo (Original Mix) [03:07](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77513F3A847BBFE5CEF6B8424B827AA5D7B30BF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692110   (122768) от 15.01.2024
 
 18 Summers - Virgin Mary (2002) [FLAC|Lossless|image + .cue] <Downtempo, Synth-pop, Darkwave>
@@ -638,60 +692,6 @@ Igor Pumphonia - Euphonia 60 (2023) [MP3|320 Kbps] <Chillout, Organic House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7272600BB8DDD278C62E3EBE06D9A5D6DE042D0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690924   (123670) от 09.01.2024
-
-Igor Pumphonia - Best Of 2023 (2024) [MP3|320 Kbps] <Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teary (Original Mix) (3:55)
-02. City Like This (Original Mix) (4:50)
-03. Lonestar (Original Mix) (3:47)
-04. Hush Love (Original Mix) (3:52)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 01:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5800C29C13D265C71A92984EF517E28614058F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690748   (123783) от 08.01.2024
-
-VA - Nothing But... Trancetopia Vol. 11 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sánchez & Allan Berndtz - REDemption (Original Mix) [3:26]
-02. Gav Crayton - Encounter (Original Mix) [6:37]
-03. Titus1 - Black On Blue (Original Mix) [4:26]
-04. Mike Koglin - The Silence (Daybreakers Remix) [5:58](   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D5782877674E687BB01F00D8EB392FFB63E2A2
 ```
 
 

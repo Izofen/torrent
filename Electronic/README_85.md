@@ -1,3 +1,57 @@
+###  Публикация: 1690924   (123670) от 09.01.2024
+
+Igor Pumphonia - Best Of 2023 (2024) [MP3|320 Kbps] <Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teary (Original Mix) (3:55)
+02. City Like This (Original Mix) (4:50)
+03. Lonestar (Original Mix) (3:47)
+04. Hush Love (Original Mix) (3:52)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 01:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5800C29C13D265C71A92984EF517E28614058F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690748   (123783) от 08.01.2024
+
+VA - Nothing But... Trancetopia Vol. 11 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sánchez & Allan Berndtz - REDemption (Original Mix) [3:26]
+02. Gav Crayton - Encounter (Original Mix) [6:37]
+03. Titus1 - Black On Blue (Original Mix) [4:26]
+04. Mike Koglin - The Silence (Daybreakers Remix) [5:58](   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D5782877674E687BB01F00D8EB392FFB63E2A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690587   (123789) от 08.01.2024
 
 VA - One Year Anniversary (2024) [MP3|320 Kbps] <Trance>
@@ -632,60 +686,6 @@ draag me - lord of the shithouse (2023) [FLAC|Lossless|WEB-DL|tracks] <alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66670C99FEF90966FB3DA41B234E9DB4BCF69076
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689401   (124695) от 02.01.2024
-
-Tiesto - New Year's Eve Best of 2023 Mix (Countdown to 2024) (2023-12-31) [MP3|320 Kbps] <Dance, Electro Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - Lay Low
-02. MK - Take My Chance
-03. John Summit ft. Hayla - Where You Are
-04. Tiësto & 21 Savage & Bia - BOTH(   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 00:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52BD1E23992DED2065F114285F8FDA599169F65C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689357   (124774) от 01.01.2024
-
-Eisfabrik - Gotter in Weiss (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, EBM>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hearts [00:04:26]
-02. Götter in Weiss [00:03:52]
-03. Lost My Mind [00:03:48]
-04. King of the Cold [00:04:06](   Читать дальше...   )Жанр: Synthpop, Futurepop, EBMПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D19C70C50E84D40B37984A791A45F50582B7B10
 ```
 
 

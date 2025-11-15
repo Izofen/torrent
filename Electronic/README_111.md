@@ -1,3 +1,57 @@
+###  Публикация: 1596733   (169202) от 11.12.2022
+
+VA - This is Ablazing 2022 (Mixed & Selected by Rene Ablaze) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rene Ablaze & Kenny Palmer - Insomniacs (Extended Mix) (6:22)
+02. UDM - Airwave (Extended Mix) (6:35)
+03. DJ Shog - Make The Sun Rise (Woody van Eyden Extended Remix) (7:33)
+04. Arctic Ocean - Feel The Wave (Extended Mix) (6:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82621C42335C292412561514DA609A6D9C8902EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596724   (169203) от 11.12.2022
+
+VA - Best of We Are Trance 2022 Mixed by DJ GOOSE [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bram VanK & Northern Project - Twitch (Dinamic Extended Edit) (5:23)
+02. InfeXus - Illusion (Extended Mix) (6:43)
+03. Numedian - Babylon (Extended Mix) (7:45)
+04. Slow Emotion - Summer's Answer (Extended Mix) (6:55)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA8D1B96714424529B466969D88E7D444C0052D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596729   (169222) от 11.12.2022
 
 VA - Deep Christmas Vibes (2022) [MP3|320 Kbps] <Deep-House>
@@ -636,60 +690,6 @@ VA - Top 100 Best Bass House '19 (Part 1) (2019) [MP3|320 Kbps] <House, Future H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88D945CB6E2705959E617E9695E2BEC2DC756BAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515342   (170310) от 06.12.2021
-
-VA - Trance Dance 2022 (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tmina - Far East (7:39)
-02. X-Nova - Flowpass (8:13)
-03. Pudova - 3Rd (5:38)
-04. Acoustic Pressure - Do You Believe In Yourself (8:37)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92BBF53989B61778EA6AD437019F6D080FA2291
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671928   (170330) от 27.10.2023
-
-VA - Musical Escape: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Soul Crusaders - A Fading Memory (6:00)
-02. Clelia Felix - Fleurs Du Desert (Original Mix) (4:17)
-03. Marie Therese - Soul Talk (Original Mix) (4:33)
-04. Marco Moli - Flashpoint (Original Mix) (3:20)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22B18548C6840F99FE79DFC826328D8CB1A44BB
 ```
 
 

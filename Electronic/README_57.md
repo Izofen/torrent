@@ -1,3 +1,57 @@
+###  Публикация: 1749260   (104523) от 13.09.2024
+
+VA - Armin van Buuren - A State Of Trance 1190 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond ft. Richard Bedford – Heart Of Stone
+02. MEDUZA ft. HAYLA – Another World
+03. AYU – Move
+04. MORTEN & ARTBAT ft. Bonn – Hollow(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0482AC329A5B22493FBC5384A5905107E81CA2A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749318   (104527) от 13.09.2024
+
+VA - Black Hole House Music 09-24 (2024) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Thomas & Christian Burns - Enjoy The Silence (Extended Mix) [7:25]
+02. PARAFRAME - Close To Me (Extended Mix) [5:56]
+03. Markus Schulz & Sarah De Warren - Light On (ZOYA Extended Remix) [5:05]
+04. Scot & Millfield x Cabriolet Paris - Talamanca (Extended Mix) [5:25](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E75C3FFBE2FF6DDE1352CB80B77FFC64C9AEA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748245   (104545) от 10.09.2024
 
 Symphony of Unity - The Countdown to Tomorrowland Brasil, São Paulo, Brazil (2024-08-29) [MP3|320 Kbps] <Various>
@@ -638,60 +692,6 @@ Mura Masa - Curve 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <electronic, future bas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F3FBFA14B369406F74A0B568D04170C821B1BE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745078   (105085) от 25.08.2024
-
-Markus Schulz - Global DJ Broadcast (End of Summer Mix) (2024-08-22) [MP3|320 Kbps] <Progressive House, Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yotto - Just Another Piano Track
-02. Martin Roth - Ultraviolet (Nordfold Remix)
-03. 16BL, Colle & deroos - One Place
-04. Craving - Flare (NUMJA & SoulTrain Remix)(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45AA121CFA6AD7717D56E74BFF768B64BCB2EEB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745340   (105086) от 25.08.2024
-
-Geneva Jacuzzi - Triple Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <dance-pop, darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laps of Luxury [00:04:04]
-02. Art is Dangerous [00:03:41]
-03. Speed of Light [00:03:57]
-04. Nu2U [00:03:03](   Читать дальше...   )Жанр: dance-pop, darkwaveПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744E1E7CF568AAE112A9951AF8BDA27EC102DDF6
 ```
 
 

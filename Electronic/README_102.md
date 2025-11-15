@@ -1,3 +1,57 @@
+###  Публикация: 1270884   (154566) от 21.12.2018
+
+VA - World Club Charts (2018) [MP3|320 Kbps] <House, Tropical, Funky, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiziara - Save Me (Radio Version) 3:17
+02. Ibiza Bitches - Be Happy (#сmondance Radio Remix) 3:17
+03. Higher State Of Trance - Memories (Radio Version) 3:22
+04. Mykel Mars - Give Me The Sunshine (Radio Version) 3:48(   Читать дальше...   )Жанр: House, Tropical, Funky, ClubПродолжительность: 02:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BA3932D924148C2B61E07A6D34823B8B45AA5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433694   (154578) от 22.12.2020
+
+Nina - Control (2020) EP [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154578.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Where It Ends (feat. LAU) [00:03:29]
+2. Control (feat. LAU) [00:03:37]
+3. Forever (feat. LAU) [00:03:50]
+4. Tainted Butterflies [00:01:36](   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrowaveПродолжительность: 00:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1464A1F602701BB2997CE4D553C1C11B798AA9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433982   (154653) от 22.12.2020
 
 VA - Myon Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
@@ -640,60 +694,6 @@ VA - Christmas & Chill, Vol. 2 (Have Yourself A Little Deep House Hangout) (2018
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F54D5B1EB5748A2220A3B8DC3CB21F7D196A7BA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968115   (156353) от 23.12.2015
-
-VA - Anjunabeats Volume 12 (Mixed by Above and Beyond) (2015) [MP3|320 кб/с] <Trance,Progressive Trance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Howling - X Machina (Cubicolor Remix)
-02. Thomas Schwartz & Fausto Fanizza - Circles
-03. Oliver Smith - Your Love
-04. Jaytech - Great Divide(   Читать дальше...   )Жанр: Trance,Progressive Trance,Progressive HouseПродолжительность: 05:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E806BEC3E5510D79D6229F3F8E76C4B0DE7F89F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270474   (156408) от 19.12.2018
-
-VA - Christmas Dance Party 2018-2019 (Best of Dance, House & Electro) (2018) [MP3|320 Kbps] <House, Dance, Electro-House, Bigroom>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spikaa feat. Deja - Home (Radio Mix)
-02. Sean Norvis feat. Pacha Man and Alexandra Mitroi - Bad Girls (Radio Edit)
-03. John Reyton - Out Of The Dark (Radio Edit)
-04. Geo Da Silva - Pump It Up (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Electro-House, BigroomПродолжительность: 02:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3619A1AE7B058B83FE2EFB235344ABE8870BE511
 ```
 
 

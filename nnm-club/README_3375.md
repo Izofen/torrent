@@ -1,673 +1,680 @@
-###  Публикация: 1729158   (108111) от 10.06.2024
+###  Публикация: 1732816   (107442) от 26.06.2024
 
-Dying Fetus - Make Them Beg for Death (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Technical Brutal Death Metal>
+Журнал | Садовод и огородник №12 (527) (июнь 2024) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Enlighten Through Agony
-A2 Compulsion For Cruelty
-A3 Feast Of Ashes
-A4 Throw Them In The Van(   Читать дальше...   )Жанр: Technical Brutal Death MetalПродолжительность: 00:37:29
+«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Журнал знакомит своих читателей с современными технологиями и народным опытом выращивания овощных, плодовых, ягодных и лекарственных культур, разнообразием садовых (   Читать дальше...   )Жанр: Сад, огородИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E23309185F361126F43CB3DA8C859B4B990F7D2
+magnet:?xt=urn:btih:7DD7FED2B925C17DC97943CD020FFD9EE4EA8341
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729277   (108112) от 10.06.2024
+###  Публикация: 1732671   (107443) от 26.06.2024
 
-Николай Лесков | Воительница (Радиоспектакль) (2011) [MP3, Вера Васильева и др.]
+Журнал | Золотые рецепты наших читателей №12 (358) (июнь 2024) [PDF]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Театр FM, Из архива «Гостелерадиофонда».
-Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа.
-Повесть Лескова, написанная в 1866 году, входит в цикл произведений писателя о русских женщинах, среди которых наиболее известна (   Читать дальше...   )Жанр: Русская литература, классика, проза, трагикомедияИздательство: Радио «Культура», ГостелерадиофондПродолжительность: 02:01:19
+Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8D6A3D595804F113904FE153B092CD21A72BF3C
+magnet:?xt=urn:btih:53000697912134763F5131D98163F5B9C71A91E8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729067   (108113) от 10.06.2024
+###  Публикация: 1732730   (107444) от 26.06.2024
 
-Gone til Winter - Hiding from the Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Rock>
+ДК СССР. Экскурсия (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-13 из 13)
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Документалистика и Телепередачи
+>>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Danger To Myself (00:04:50)
-02 - Breathing Broken Glass (00:03:59)
-03 - In Your Eyes (00:05:03)
-04 - Truth In You (00:04:11)(   Читать дальше...   )Жанр: Gothic Metal, RockПродолжительность: 00:52:53
+Несмотря на все временные и идейные изменения, Дом культуры стал символом и наглядной репрезентацией всей советской культуры. Этот документальный сериал подробно раскроет историю данного феномена благодаря экспертам в области советского искусства. С помощью инфографики и экскурсий с кураторами направлений в ЦВЗ «Манеж» вы сможете узнать больше об изобразительном (   Читать дальше...   )Производство: Россия | «Территория культуры», «РОСИЗО»Жанр: Документальный, культура, искусствоРежиссер: Роман КаменскийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:23:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73C8E86DC7C26D97146E7861AA78CF4874E804D4
+magnet:?xt=urn:btih:95A3C08B6C9436EC79D6B3AF2E0E058EF1869771
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729118   (108114) от 10.06.2024
+###  Публикация: 1732804   (107445) от 26.06.2024
 
-Александр Леонович | Бионика подсказано природой (2023) [MP3, Ирина Булекова]
+Firefox Browser 127.0.2 Portable by PortableApps [Ru]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Движения птиц и зверей, рыб и насекомых издавна привлекали внимание человека, мечтающего перемещаться по земле, воде и воздуху так же легко и изящно. Однако прошли многие тысячелетия, прежде чем люди создали науку о движении – механику – и сумели найти материалы и создать конструкции, не уступающие в скорости и дальности передвижения любым представителям животного (   Читать дальше...   )Жанр: Научно-популярная литература для детейИздательство: Аудиокнига АСТПродолжительность: 06:23:45
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B9D42D954D868443360584631A15D52C58E80EA
+magnet:?xt=urn:btih:F7A2CDDC19322375B2FBC40D7076B770C8D6AC2E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729281   (108115) от 10.06.2024
+###  Публикация: 1732723   (107446) от 26.06.2024
 
-Николай Лесков | Воительница (2017) [MP3, Алексей Багдасаров]
+Glenn Marais & The Mojo Train - Red, Hot And Blue (2024) [MP3|320 Kbps] <Blues, Rock>
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Литература 19 века. Русская классика.
-Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто. (   Читать дальше...   )Жанр: Русская литература, классика, очеркИздательство: ООО «Эвербук»Продолжительность: 03:24:38
+01. That's Where My Mojo's At (03:09)
+ 02. Superfunk (04:04)
+ 03. Love Denied (03:57)
+ 04. Red, Hot And Blue (04:23)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:40:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1945DB6A62D13A546E079BCBCCD0DA6A09FB4983
+magnet:?xt=urn:btih:F888C9B6AC97AA51F2438B2218F04DE7D3827702
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729216   (108116) от 10.06.2024
+###  Публикация: 1732661   (107447) от 26.06.2024
 
-Discotron, Sandy's Groove - Crying At The Discoteque (2022) [FLAC|Lossless|tracks] <Nu-Disco, House>
+Футбол. Чемпионат Европы 2024. Групповой турнир. 3-й тур. Группа D. Нидерланды - Австрия (25.06.2024) HDTVRip [H.264/720p-LQ]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crying At The Discoteque (Extended Mix) (5:59)
-02. Crying At The Discoteque (Extended Dub Mix) (5:59)
-03. Crying At The Discoteque (Radio Mix) (3:59)Жанр: Nu-Disco, HouseПродолжительность: 00:15:58
+Футбол. Чемпионат Европы 2024. Групповой турнир. 3-й тур. Группа D. Нидерланды - Австрия (25.06.2024)
+СУДЬЯ Кружляк Иван (Словакия)
+Судья на линии 1: Хацко Бранислав (Словакия)
+Судья на линии 2: Позор Ян (Словакия)(   Читать дальше...   )Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:54:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E14F41E7FCAEB8A7F9D982C2B43202F99F886E31
+magnet:?xt=urn:btih:76E898EB5B5D6839ED61C0C05B3A7EB953E691C8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729249   (108117) от 10.06.2024
+###  Публикация: 1732660   (107448) от 26.06.2024
 
-VA - DJ Hits 40 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+Футбол. Чемпионат Европы 2024. Групповой турнир. 3-й тур. Группа D. Франция - Польша (25.06.2024) HDTVRip [H.264/720p-LQ]
 
->>Pop
->>Зарубежная поп-музыка
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107448.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. X-Pression - This Is Our Night
-02. MC Miker & DJ Sven - Let's Ride
-03. Frankie Nocenti - Get Away
-04. Alison - My Love(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:06:18
+Футбол. Чемпионат Европы 2024. Групповой турнир. 3-й тур. Группа D. Франция - Польша (25.06.2024)
+СУДЬЯ Гуида Марко (Торре-Аннунциата, Италия)
+Судья на линии 1: Мели Филиппо (Италия)
+Судья на линии 2: Перетти Джорджио (Италия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:57:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98CFB0AA54DEB38FD66A99D12C2592F5754590CA
+magnet:?xt=urn:btih:5F0AFC34AB2C15FDBDFCE68070FC0AFCAB6B9A7C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729312   (108118) от 10.06.2024
+###  Публикация: 1732773   (107449) от 26.06.2024
 
-Николай Лесков | Владычный суд. Епархиальный суд (2008) [MP3, Валентин Морозов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика.
-Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
-«Владычный суд» – рассказ Николая (   Читать дальше...   )Жанр: Русская литература, классика, рассказ, быльИздательство: Вира-М (аудио)Продолжительность: 03:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB202223EEDF4161CE01AEA6C6575D7A9DAD2383
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729010   (108119) от 10.06.2024
-
-Kujan - Crying at the Discoteque (2021) [FLAC|Lossless|tracks] <Nu-Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kujan - Crying at the Discoteque (3:24)Жанр: Nu-Disco, HouseПродолжительность: 00:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E999F11E89425E99A08FE2523F38F2588C9767C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729247   (108120) от 10.06.2024
-
-Журнал | Таинственные истории №12 (292) (2024) [PDF]
+Журнал | Профиль №23-24 (231) (июнь 2024) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В основу журнала «Таинственные истории» положены мистические и невероятные истории, потому что именно такие — необъяснимые и загадочные события интересовали человечество всегда. Такова уж природа людей: в жизни должно быть что-то таинственное. Кроме этого, на страницах журнала статьи о загадочных силах природы, толкование снов, рассказы очевидцев о встречах с внеземным (   Читать дальше...   )Жанр: История, мистикаИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED1FF5A3A9F8C49F19D630F3212E074D2CBAC340
+magnet:?xt=urn:btih:535793EB38DE019F487ACE06700BDEEAD511B335
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729068   (108121) от 10.06.2024
+###  Публикация: 1732725   (107450) от 26.06.2024
 
-Humanity Gone - Everything Nothing (2024) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything (07:53)
- 02. Nothing (09:39)
- 03. Tossing Stones (05:55)
- 04. EMP (07:06)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25BE1B49C5D5FF5CCE36B4006098C30C3A208FB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729293   (108122) от 10.06.2024
-
-Joanne Shaw Taylor - Heavy Soul (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+Terence Fixmer - The Paradox In Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <industrial, techno body music>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sweet 'Lil Lies (5:18)
-02. All The Way From America (4:20)
-03. Black Magic (4:26)
-04. Drowning In A Sea Of Love (4:35)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:43:59
+01. Test of the Times [00:06:04]
+02. In Synthesis [00:03:07]
+03. Razor Sharp [00:05:53]
+04. Dark Enough? [00:03:15](   Читать дальше...   )Жанр: industrial, techno body musicПродолжительность: 01:00:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE6258C75DC7D366ACA8A7EA30B6CDBC3DBAF5F1
+magnet:?xt=urn:btih:5587DE3CDC5A5D11741010552A8253B25B18248F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729301   (108123) от 10.06.2024
+###  Публикация: 1732629   (107451) от 26.06.2024
 
-Lucassen & Soeterboek's Plan Nine - The Long-Lost Songs (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doctor Robert's Medicine Show (3:52)
-02. The Preacher (4:33)
-03. Annie Moore (4:46)
-04. Get Down To Bizniz (4:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0D4262C39C1A6D79ADDF9B43AAA518131990B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729294   (108124) от 10.06.2024
-
-Calvin Russell - Tribute To Calvin Russell (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hugh Coltman - Shadow Of Doubt (4:33)
-02. Manu Lanvin - Wild Wild West (4:17)
-03. David Minster - Behind The 8 Ball (5:54)
-04. Beverly Jo Scott - Crossroads (5:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76977C7873C94B95A2E9BFFC5B80D5B4DDC4C3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729242   (108125) от 10.06.2024
-
-VA - DJ Hits 39 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+VA - DJ Hits Vol. 110 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Run 4 Fun - Please Don't Talk To Jessica (Pleasure Mix)
-02. General Base - I See You (General Radio Mix)
-03. Real Hype - Train Of Love (Radio Edit)
-04. Sophie Weller - Venus (Goddess Of Love)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:06:28
+01. IMF - Theme From Mission Impossible
+02. The Blue Men - X-Files
+03. 4 Ties - Chirpy Chirpy Cheep Cheep
+04. Gina G - ...Ooh Aah... Just A Little Bit(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:17:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BC33D8A334079A1F09463A6FF55FA8FF7A5FAC0
+magnet:?xt=urn:btih:6AAD6C1A9DD4E2CF8AE04581A9E1B5848FAD7522
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729298   (108126) от 10.06.2024
+###  Публикация: 1732499   (107452) от 25.06.2024
 
-Ivan Kravchenko - Lady Made of Sand (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+Motor Gypsy - Motor Gypsy II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lady Made of Sand (2:55)
-02. Waves (2:34)
-03. Beautiful Liar (4:37)
-04. Special (Nastly Liquor) (2:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:48
+01. Sixteen Stories (3:28)
+02. My Ghost (4:17)
+03. Change My Mind (3:37)
+04. It's a Party (3:49)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94F232C1C506E74D964A75DC51CFEF048C36F1B6
+magnet:?xt=urn:btih:3EC31E4C019A85215BFB9CF8BF301A62EB1E64EF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729093   (108127) от 10.06.2024
+###  Публикация: 1732492   (107453) от 25.06.2024
 
-Gone til Winter - Hear Me (2009) Single [MP3|320 Kbps] <Gothic Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hear Me (Radio Edit)Жанр: Gothic Metal, RockПродолжительность: 00:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF0E7795C523453821EDAE8FD559C5ED6C764E6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729279   (108128) от 10.06.2024
-
-Carpenthus - Midgard (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Song of the Dancing Valkyries [00:02:05]
-02. Heroes of the Great Battle [00:02:49]
-03. The Saga of the North Winds [00:02:53]
-04. The Legend of the Ancient Drakkar [00:01:36](   Читать дальше...   )Жанр: Folk, Symphonic MetalПродолжительность: 00:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A75396C31ABCED5B5C4DD21B1B260F6187AAE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729300   (108129) от 10.06.2024
-
-Johanna Red - Stronger Than You Thought (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+MaxX & Love - These Blues Might Get You Too (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dirty Games (3:41)
-02. Stronger Than You Thought (3:30)
-03. Hiding in Your Lies (3:45)
-04. Red Room (3:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:41
+01. Train Intro (3:36)
+02. I'll Never Fall In Love (2:48)
+03. Good Time (5:45)
+04. Overture I (0:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86E6C0C2DCC2B9534959CE17CEDD0834A985380E
+magnet:?xt=urn:btih:AC8812B9504631D65CC8D7822E5C462F2B3C2114
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728981   (108130) от 10.06.2024
+###  Публикация: 1732468   (107454) от 25.06.2024
 
-Gangruel - The Harvest Withers (2024) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Harvest Withers
-02. Starvation
-03. Forlorn
-04. Faltering(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749855B0E4745CF6DC3D5AFAA454D7F8D7A488CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729339   (108131) от 10.06.2024
-
-The Hu - Live At Glastonbury (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Metal>
+John Vlasic - After the Sunset (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shihi Hutu (Live at Glastonbury)
-02. The Gereg (Live at Glastonbury)
-03. Shoog Shoog (Live at Glastonbury)
-04. Eseerin Vasahina (Live at Glastonbury)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:55:45
+01. Burn One Down (3:55)
+02. Find a Way (4:36)
+03. Caught up in the Rush (3:31)
+04. The Sunset Blues (5:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F84D2BCFEEBAEC58CA4007807718DD126FE31482
+magnet:?xt=urn:btih:738EFAD4181CD404496A219EEE8699E358985C58
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729180   (108132) от 10.06.2024
+###  Публикация: 1732469   (107455) от 25.06.2024
 
-Лара Фортуна | Душа бизнесмена (2024) [MP3, Сергей Курнаев]
+Lester Young With Count Basie - Classic Columbia, Okeh And Vocalion (1936 - 1940) 4CD, 2008, Mosaic [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
 
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вдохновляющая история о нелёгком пути бизнесмена к финансовому и духовному процветанию. Книга, основанная на автобиографическом материале, подробно описывает опыт внутренней трансформации главного героя Максима от первого лица.
-Пройдя через предательство бизнес-партнера, развод с женой и ряд других событий, Максим обретает целостность, настоящую любовь и своё истинное (   Читать дальше...   )Жанр: Бизнес-романИздательство: Аудиокнига своими рукамиПродолжительность: 09:25:14
+01. Evenin' [2:43]
+02. The World Is Mad (Pt.1) [2:40]
+03. The World Is Mad (Pt.2) [2:52]
+04. Ad Lib Blues [3:22](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 04:00:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C6417327A47206C6585005FD6D3C31E2FA55643
+magnet:?xt=urn:btih:9A54951842888EF2E17B0D409EFF8FC7D05A0C13
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729250   (108133) от 10.06.2024
+###  Публикация: 1732441   (107456) от 25.06.2024
 
-Кирилл Кащеев, Илона Волынская | Потомокъ (Книга 3). Князь мертвецов (2024) [MP3, Илья Сланевский]
+Bottenhavet - Ljud i Tysta Rum (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Долгожданное продолжение детективного стимпанк-фэнтези в альтернативной Российской империи, где правят потомки древних славянских богов! Митя Меркулов мечтает о блеске светских вечеров и новых нарядах, но судьба заставляет его нести тяжелое бремя героя. Сначала – спасение уезда от нашествия зомби, затем – защита губернского города от варяжского набега. Митя уже упокоил (   Читать дальше...   )Жанр: фэнтези, мистикаИздательство: ВИМБОПродолжительность: 23:01:10
+01. Våg (4:59)
+02. Talar Miljon (5:33)
+03. Bränn Broar (4:32)
+04. Frågor Utan Svar (1:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:646DF8393733619F166524794342127F6DB863C9
+magnet:?xt=urn:btih:62F5A680BAAAC5AFA705AE21D333EC7AFC90EB30
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729252   (108134) от 10.06.2024
+###  Публикация: 1732433   (107457) от 25.06.2024
 
-Иеромонах Елпидий | Пророчества. Сценарий конца времён (2023) [PDF]
+Mass Infection - Shadows Became Flesh (2018) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ominous Prevision
+02. Demise of the Almighty
+03. To the Lords of Revulsion
+04. Oath to Nothingness(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A2A6F2BE9C4C04390E7D431C9FCD5A19BE0852
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732523   (107458) от 25.06.2024
+
+Mordaza - El orden del caos (2020) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Hedor De La Inmundicia
+02. Amok
+03. Toro De Falaris
+04. Necropsia(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38CF5762E21A42369F4C2A232AFE3E9E1FE68FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732471   (107459) от 25.06.2024
+
+Leonardo979 - Overdrive Motel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overdrive Motel (3:27)
+02. Limo Voodoo (3:28)
+03. Loser (3:37)
+04. By This River (5:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F94C48E9C729C56E1996C660B98B7055B390692A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732491   (107460) от 25.06.2024
+
+Helen Humes - 1948 - 1950 (2003) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Out for Tears [3:19]
+02. Married Man Blues [3:14]
+03. Somebody Loves Me [2:27]
+04. Don't Fall in Love with Me [3:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79019371A894BA0BACBA1D937F8D8FDD568B2674
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732430   (107461) от 25.06.2024
+
+Mass Infection - For I Am Genocide (2014) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Praised By All The Entities
+02. The Scourge Of Living Forms
+03. Hierarchy Of The Highest Abomination
+04. Beholding The Throne(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8720F8E39A828945B71E2E62ED48DEAFDAF9D66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732423   (107462) от 25.06.2024
+
+Mass Infection - The Age of Recreation (2009) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enslave the Earth
+02. Furious Annihilation
+03. Savagery Incarnate
+04. Enthralled in Deception(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D475D92751FE336800ED65CBE428221B402D2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732416   (107463) от 25.06.2024
+
+Mass Infection - Atonement for Iniquity (2007) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Act of War
+02. Circle
+03. Forced to Encryption
+04. Decay(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:30.55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D687854E945532A7A52D6EFEE8748BE39BFEF9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732513   (107464) от 25.06.2024
+
+VA - DJ Hits Vol. 105 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Primary - 2001
+02. Daniel Amalm - Classical Gas
+03. Captain Jack - Soldier Soldier
+04. Fiesta Del Soul - Marinero(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0967008EDAFA319331CEABBC8B71B96F2805E32B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732530   (107465) от 25.06.2024
+
+Сатисъ | Как быть смиренным в наше время (2005) [PDF, FB2, EPUB, MOBI, TXT]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Публикуемая беседа (2013 года) современного греческого подвижника иеромонаха Елпидия содержит эсхатологические пророчества о событиях и знамениях приближающегося конца времён существования нашего мира. Автор-современник упоминает всем хорошо знакомые из СМИ реалии духовного, экономического и политического кризиса современности, которые верующий христианин сможет (   Читать дальше...   )Жанр: Духовно-просветительное изданиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
+Мы помним слова преподобного Антония Великого: «Все грехи мерзки пред Богом, но всех мерзостнее – гордость сердца». Но как стяжать смирение в наше время, когда все вокруг: социальные нормы, этические оценки, личностные идеалы – основаны на превозношении человеческого «я»; когда мир усердно и неустанно воспитывает в человеке самоцен и самодовольство? Н.Е. Пестов, (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6380D868E4DC9592C4E0702525F99EB8413EEA87
+magnet:?xt=urn:btih:D495782D8C5BEA9B59CEF7B835EEE2D7EDEE344C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729305   (108135) от 10.06.2024
+###  Публикация: 1732542   (107466) от 25.06.2024
 
-VA - Sunset Dreamer: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+Протоиерей Сергий Филимонов | Великопостный служебник (2021) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mirage Of Deep - Lost Island (432 Hz) (4:06)
-02. Marc Hartman - Crystal Sea (5:16)
-03. Ljay - Let Me Chill (3:58)
-04. Marga Sol - My Core (Chill Mix) (4:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:21
+Великопостный служебник был составлен в 1990-е годы, когда автор обучался в Санкт-Петербургской Духовной Семинарии и Академии. В течение ряда лет он «апробировался» в Академическом храме и в других храмах Санкт-Петербургской епархии. Первое издание служебника вышло в свет в 2005 году. Данное издание значительно дополнено, в него внесены необходимые изменения, учтены (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D37CE617AC881A74118DE9150AD2445CD9E73BE
+magnet:?xt=urn:btih:9C32D3BA7FB34FBB687643B146FD1FA74CF90AA1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729214   (108136) от 10.06.2024
+###  Публикация: 1732512   (107467) от 25.06.2024
 
-The Distance And Franky Miller Feat. Easi - Crying At The Discotheque (2023) [FLAC|Lossless|tracks] <Electro House, Electro-Disco, Nu-Disco, Synth-Pop>
+The Mercury Riots - In Solstice (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Blues Rock>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crying At The Discothèque (00:02:20)
-02. Crying At The DiscothèqueЖанр: Electro House, Electro-Disco, Nu-Disco, Synth-PopПродолжительность: 00:05:07
+01. Make It (3:44)
+02. Be Yours (3:41)
+03. LA Girls (3:23)
+04. Sweet Melody (3:35)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:35:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E6408DA0A6FFE1828B14C875DF72F46ED2FE8EB
+magnet:?xt=urn:btih:AF62DDC3FFA75DFF49B3FE6556AA1B1C2E044EAF
 ```
 
 

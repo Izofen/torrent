@@ -1,3 +1,57 @@
+###  Публикация: 1702003   (115824) от 24.02.2024
+
+VA - Armin van Buuren - A State Of Trance 1161 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Armin van Buuren & Ferry Corsten & Rank 1 & Ruben de Ronde - Destination (Cubicore Remix) (ASOT) (Tune Of The Week)
+02.	Lufthaus - Sunlight (Rodriguez Jr. Remix) (ARMADA) (Progressive Pick)
+03.	Vincent De Moor - Flowtation (Dan Stone Remix) (XL)
+04.	Armin van Buuren ft. Anne Gudrun - Love Is A Drug (Agents Of Time Remix) (ARMIND) (Future Favorite)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24269ECE7B671A517405A33FAE265780F6000219
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702303   (115830) от 24.02.2024
+
+Weber & Weber - World In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomorrow's Another Day
+02. What If...
+03. World In Motion
+04. Love Generation(   Читать дальше...   )Жанр: Nu Jazz, Chillout, LoungeПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879CE6AA6B47536552E30F119BDD210EA341F942
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702443   (115846) от 24.02.2024
 
 VA - Pure Dreams, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -643,60 +697,6 @@ Kanka + Bodewell - Stroboscope (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8363A0D02430CAD906F52F3A6368905C580A4C73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700623   (116889) от 18.02.2024
-
-Karl Bartos (ex-Kraftwerk) - The Cabinet Of Dr. Caligari (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Krautrock, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prologue (00:01:32)
-02 - Scary Memories (00:02:21)
-03 - Atonal Floating (00:01:02)
-04 - Full Of Life (00:01:57)(   Читать дальше...   )Жанр: Krautrock, SynthpopПродолжительность: 01:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:915C4351E49614E3CDF9FD0BBE50738C0EEC0835
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700685   (116908) от 18.02.2024
-
-Kasra - Dream Metal (2024) [FLAC|Lossless|WEB|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spaceman (4:32)
-02. bb.oo (4:33)
-03. Talk Up (4:25)
-04. Shatter (4:36)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBAD59CDE49762999F7BC226ADE0A7FD1039BEA
 ```
 
 

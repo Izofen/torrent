@@ -1,3 +1,30 @@
+###  Публикация: 1645421   (195910) от 09.07.2023
+
+VA - Tik Tok Треки выстрелили летом 2023 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195910.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Childish Gambino - Me and Your Mama (6:18)
+002. Doja Cat - Kiss Me More (feat. SZA) (5:15)
+003. Frank Ocean - Nights (5:07)
+004. A-Wall - Loverboy (5:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B375AE666A2ED17818A7B9D47FB4314CCBEEB9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644910   (195986) от 07.07.2023
 
 VA - Club&Dance Летние Треки 2023 Remix NNM [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - The Inspiring Chill (2023) [MP3|320 Kbps] <Chillout, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5E84E5C8825D94C001D1922997614F2A13BA00F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633248   (198489) от 14.05.2023
-
-VA - Record Super Chart 13.05.2023 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Tree feat. Robin Schulz - Miss You (3:26)
-02. Tiesto - Lay Low (2:33)
-03. Calvin Harris & Ellie Goulding - Miracle (3:06)
-04. Tove Lo - Borderline (3:13)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E4E2BA3FC6FA8BE45AE93FAFD3A3551231A110
 ```
 
 

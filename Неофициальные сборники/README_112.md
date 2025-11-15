@@ -1,3 +1,30 @@
+###  Публикация: 1641841   (210443) от 26.06.2023
+
+VA - female rock, blues rock part  24 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaun Murphy - It Won't Stop Raining
+02. Deb Ryder - Bad Bad Dream
+03. Blue Touch - Trouble
+04. Connie Lush - Crying Won't Help You(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F03DB2E33644A9B4FA77E2E1A3CDEDE334B4D29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641994   (210509) от 25.06.2023
 
 VA - Music News vol.274 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ Chicago Blues Radio - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Blues, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D57338D7F9AA758524D1E7FEFD55CA966BF2094
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650559   (220752) от 07.08.2023
-
-Paul Mauriat - El Bimbo & Toccata (1973-1975) Remastered, 2019, Vocalion [OGG Vorbis|480 Kbps] <Jazz, Pop, Stage & Screen>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220752.jpg" />
-</div>
-
-
-###  Подробнее
-
-El Bimbo (1975)
-01. El Bimbo
-02. The Way We Were
-03. I Wont Last a Day Without You(   Читать дальше...   )Жанр: Jazz, Pop, Stage & ScreenПродолжительность: 01:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B55E4C1448DBCB5D510D973DDC01B0107BC71E
 ```
 
 

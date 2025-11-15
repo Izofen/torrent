@@ -1,690 +1,659 @@
-###  Публикация: 1730094   (107929) от 14.06.2024
+###  Публикация: 1733814   (107260) от 30.06.2024
 
-John Grant - The Art of the Lie (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <synthpop, synthfunk, artpop>
+Журнал | Главбух №13 (июль 2024) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - All That School For Nothing (00:05:20)
-02 - Marbles (00:07:14)
-03 - Father (00:07:02)
-04 - Mother And Son (00:07:26)(   Читать дальше...   )Жанр: synthpop, synthfunk, artpopПродолжительность: 01:01:49
+Журнал «Главбух» – это издание №1 бухгалтерского мира. В «Главбухе» практические ответы на злободневные вопросы бухгалтерского учета, расчета налогов и зарплаты. Примеры, образцы и готовые решения о том, как поступать в неоднозначной ситуации. Новости бухучёта и налогообложения. Консультации экспертов. Правовая база. Бланки налоговых деклараций, расчётов и др. документов, (   Читать дальше...   )Жанр: Бухгалтерский учетИздательство: ООО "Актион-пресс"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C26DCF2F6CF0FA4CF6FF454FC176FF7578D900BF
+magnet:?xt=urn:btih:97E49560FCC2706820DE41C4A3785C01C8DF05E1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730138   (107930) от 14.06.2024
+###  Публикация: 1733811   (107261) от 30.06.2024
 
-T-Dow - Vol. 2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Great Pretender: Razbliuto | Великий притворщик: Разблюто [2024, ONA, 4 эп.] WEBRip 720p raw
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Аниме с субтитрами
+>>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I'm Gonna Stay (2:32)
-02. Until The Sun Goes Down (3:18)
-03. Trouble In My Way (3:42)
-04. Running Man (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:05
+Считавшаяся погибшей всемирноизвестная аферистка Дороти обнаружена шанхайским Лунгу-бангом, мафией, которая хочет отомстить за то, что она их обманула. Но у Дороти амнезия и некуда идти, и поэтому ей приходится полагаться на местного криминального босса, чтобы ускользнуть от преступного мира Тайбэя, одновременно ища зацепки к своему загадочному прошлому.Производство: Студия Wit Studio / ウィットスタジオЖанр: приключенияРежиссер: Кабураги ХироПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 4 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E1326141E0F4E9E91321BB873E09697E24AE06A
+magnet:?xt=urn:btih:03CF695A34E318F5F79FF5788642470067FC66E0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730130   (107931) от 14.06.2024
+###  Публикация: 1733627   (107262) от 30.06.2024
 
-Ebba Bergkvist & The Flat Tire Band - Four Wings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+Последний подвиг / Кастер на Западе / Custer of the West (1967) BDRip [H.264/1080p] [MVO] [PR]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Four Wings (5:03)
-02. The Pack (3:32)
-03. Northeast Passage (4:07)
-04. Vice Versa (3:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:59
+В соответствии со своим служебным статусом в гражданской войне, генерал Джордж Кастер направляется на запад, чтобы принять командование над 7-й кавалерийской дивизией. По политическим мотивам генерал Шэридан направляет его вывести индейское племя из их резервации, вследствии того, что на их территории нашли золото...Производство: Великобритания, Франция, Испания, США / Cinerama Productions Corp., Security Pictures Inc.Жанр: драма, вестерн, военный, биография, историяРежиссер: Роберт СьодмакАктеры: Роберт Шоу, Мэри Юр, Тай Хардин, Джеффри Хантер, Лоуренс Тирни, Марк Лоуренс, Кирон Мур, Чарльз Сталмакер, Роберт Холл, Джек ГэскинсПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:21:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6B3E35CC9A8A69CE9AD85DD09C9FD1A6EA37966
+magnet:?xt=urn:btih:1A3AC68ED37DA78B7C7F62C3CF69FCB13834A62F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730108   (107932) от 14.06.2024
+###  Публикация: 1733788   (107263) от 30.06.2024
 
-Ensiferum - Two Paths (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
+140 ударов в минуту - Вне времени (2024) [FLAC|Lossless|WEB-DL|tracks] <Поп>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Pop
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Ajattomasta Unesta
-A2 For Those About To Fight For Metal
-A3 Way of the Warrior
-A4 Two Paths(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:46:38
+01. Я буду вспоминать (03:14)
+02. Я останусь с тобой (03:18)
+03. Ночной экспресс (04:00)
+04. Бывшая (04:07)(   Читать дальше...   )Жанр: ПопПродолжительность: 00:35:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4C21E15A7E0AA1E82F13AE0520D1622A5C0A9E0
+magnet:?xt=urn:btih:9AE4CF40AD25E0F3CD5C5F9E7821F1507E6C92F9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730137   (107933) от 14.06.2024
+###  Публикация: 1733600   (107264) от 30.06.2024
 
-Walt Disco - The Warping (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Seed (00:00:57)
-02 - Gnomes (00:03:34)
-03 - Come Undone (00:03:39)
-04 - The Warping (00:03:55)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DAC5556A9A264B9423BAA8C1CF271E05DD33361
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730093   (107934) от 14.06.2024
-
-Ensiferum - Unsung Heroes (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symbols
-02. In My Sword I Trust
-03. Unsung Heroes
-04. Burning Leaves(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991272E0858EF8EFAC4C69FD8205EC17D1F90C93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730008   (107935) от 14.06.2024
-
-Ensiferum - Victory Songs (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ad Victoriam
-02. Blood Is the Price of Glory
-03. Deathbringer from the Sky
-04. Ahti(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D6FDCD32DC8E10EB165B687A40B67F0CE0FFB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730119   (107936) от 14.06.2024
-
-Amar Sundy - Homme Bleu (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rahala (3:31)
-02. Men'na (4:25)
-03. Rab'ka (4:18)
-04. Ya'nass (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2028811882361B221A1CC14C4A8A77C5665480F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730122   (107937) от 14.06.2024
-
-Anders Osborne - Picasso's Villa (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Americana, Blues, Singer-Songwriter>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Decatur Love (6:32)
-02. Reckless Heart (3:58)
-03. Real Good Dirt (6:43)
-04. Picasso's Villa (3:08)(   Читать дальше...   )Жанр: Americana, Blues, Singer-SongwriterПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29EED56F2AE6ACEAD8A58D089305B14ED47FDC87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730125   (107938) от 14.06.2024
-
-Campbell & Johnston's Black Market Band - Paisley Hearts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Find Your Way (3:53)
-02. Righteous (2:58)
-03. Regrets I've Had a Few (4:49)
-04. Hash and Black Coffee (2:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B65F12003BF81DBDCE93D91AA6992F06D2A775B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730146   (107939) от 14.06.2024
-
-Ensiferum - Victory Songs / From Afar (2017) Compilation [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Epic Folk MetalПродолжительность: 01:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82692E7A2750CFD9B924D0A24A66E9B6A3829B58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730112   (107940) от 14.06.2024
-
-VA - Armin van Buuren - A State Of Trance 1177 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Tiësto - Tomorrowland Friendship Mix (2024-06-27) [MP3|320 Kbps] <Dance, Electro Pop>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. SMR LVE & Christina Novelli - Serenity
-02. The WLT pres. AlterDNA - Synthesis
-03. P.O.U. & Scott Forshaw - Castles In The Sky
-04. Jeef B - Iconic (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:39
+01. Adam Port & Stryv ft. Malachii - Move
+02. RAFFA GUIDO - Famax
+03. Disclosure ft. Eliza Doolittle - You & Me (Rivo Remix)
+04. Tiësto & Prophecy - My City(   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 00:57:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CC69470C3714A0B564E785B9FA6F3E23829EFC8
+magnet:?xt=urn:btih:6CE92B80AF1C1D62282D8C9CF6A8EB664F336A44
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730132   (107941) от 14.06.2024
+###  Публикация: 1733615   (107265) от 30.06.2024
 
-Caligula's Horse - Charcoal Grace (2024) 2 x CD, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Progressive Rock>
+Футбол. Чемпионат Европы 2024. 1/8 финала. Швейцария - Италия (29.06.2024) IPTVRip [H.264]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107265.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-1. The World Breathes With Me (10:00)
-2. Golem (05:20)
-3. Charcoal Grace I: Prey (07:48)(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 02:04:03
+Футбол. Чемпионат Европы 2024.
+Стадион: Олимпиаштадион (Берлин, Германия)
+Главные тренеры:
+Сборная Италии: Лучано Спалетти (Зенит 2009-2014)(   Читать дальше...   )Телекомпания: МатчТВЖанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 49:13+49:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDD97F3C7CADFF666D780669DF98EAAC0BB2B282
+magnet:?xt=urn:btih:15BFE0FFF513BFC5C04D1AE1FA23F0894A7DBDD8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730129   (107942) от 14.06.2024
+###  Публикация: 1733658   (107266) от 30.06.2024
 
-VA - Black Hole House Music 06-24 (2024) [MP3|320 Kbps] <House, Progressive House>
+Футбол. Чемпионат Европы 2024. 1/8 Финала. Германия - Дания (29.06.2024) HDTVRip [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Чемпионат Европы 2024. 1/8 Финала. Германия - Дания (29.06.2024)
+СУДЬЯ Оливер Майкл (Нортумберленд, Англия)
+Судья на линии 1: Барт Стюарт (Англия)
+Судья на линии 2: Кук Дэниэл (Англия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 03:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE104BAA642CB76BEE45A509F2B6C92E32D2009C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733612   (107267) от 30.06.2024
+
+VA - Best of Electronic Beats (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ZOYA & Dennis Sheperd - Purple Skies (Extended Mix) [6:24]
-02. Milkwish - Dynamite (Extended Mix) [5:51]
-03. Funkagenda & Christian Burns - Lost In Chemistry (Extended Mix) [5:02]
-04. Markus Schulz & HALIENE - Death Of A Star (Kris O'neil Extended Remix) [5:45](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:14:00
+01. Mykel Mars - L.A. Nights (System B Remix) [07:07]
+02. Pearls Of Ibiza - I Live My Life (Terrace Mix) [06:40]
+03. Paul aus Berlin - Paradise (About Amsterdam Edit) [03:47]
+04. Ibiza Groove Squad - I Don't (DJ Absinth Radio Remix) [03:43](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 04:23:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21852255DD02CC2D45299358C2AD0872929B2E3B
+magnet:?xt=urn:btih:30C6EF0C5E63FA7B151E77C1E31E0521A69E7326
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730062   (107943) от 14.06.2024
+###  Публикация: 1733847   (107268) от 30.06.2024
 
-Ensiferum - From Afar (2009) Released, 2010, Drakkar Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
+Austin School of Furniture & Design, Austin Waldo | Книжный шкаф из деревянных планок / Shiplap Bookcase (2021) WEBRip [EN, RU / EN Sub]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107268.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. By The Dividing Stream
-02. Fram Afar
-03. Twilight Tavern
-04. Heathen Throne(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:56:43
+Если вы ищете отличный проект для начала своего путешествия по деревообработке, то не ищите его дальше.
+Этот простой книжный шкаф из шипованой доски разработан специально для того, чтобы стать отличным первым проектом. Материалы легко достать, а инструментов совсем немного. Но пусть это вас не вводит в заблуждение. В этом проекте использованы хорошие, фундаментальные (   Читать дальше...   )Производство: Austin School of Furniture & DesignЖанр: Обучающее видеоЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 00:55:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25C4ADECB2FB4D4A4FA96B19A424FA5BA37343A0
+magnet:?xt=urn:btih:ADC6DE96740BDAA530062AB32E94F2AE252A6A69
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730081   (107944) от 14.06.2024
+###  Публикация: 1732658   (107269) от 30.06.2024
 
-New Horizon - Conquerors (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+VA - Bad Blues, Dark Blues (2024) 2CD  [MP3|320 Kbps] <Blues, Blues Rock>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107269.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Against The Odds
-02. King Of Kings
-03. Daimyo
-04. Shadow Warrior(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:52:04
+01. Billy F Gibbons - Missin’ Yo’ Kissin’ [03:19]
+02. The White Buffalo - The Matador [04:34]
+03. Gov't Mule - Thorazine Shuffle [06:47]
+04. Isobel Campbell, Mark Lanegan - Snake Song [02:48](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 11:41:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FA7FB52203AACC32A5086A5C353C16A2DC0DF0B
+magnet:?xt=urn:btih:75E4FDA399D6EB8633FE91680E5E1E30D7420A8F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730245   (107945) от 14.06.2024
+###  Публикация: 1733475   (107270) от 30.06.2024
 
-Mike Campbell & The Dirty Knobs - Vagabonds, Virgins & Misfits (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Roots Rock>
+VA - РАДИО БАТЯ - 015 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Greatest (3:30)
-02. Angel of Mercy (3:44)
-03. Dare to Dream (feat. Graham Nash) (4:09)
-04. Hands Are Tied (4:12)(   Читать дальше...   )Жанр: Classic Rock, Roots RockПродолжительность: 00:43:04
+01. Руки Вверх! - Набираю номер (04:33)
+02. Эллаи - Переболит (03:19)
+03. Rauf & Faik - Там, где мы с тобой (02:49)
+04. Anton Lacosta - Tik Tok (02:18)(   Читать дальше...   )Жанр: Шансон, Поп, Русская и Зарубежная ЭстрадаПродолжительность: 01:30:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44D4590F6596840BDE222E45E64B5D005719AC5B
+magnet:?xt=urn:btih:1F42A5037D311FFE83F247D90C477A87A83354A3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730009   (107946) от 14.06.2024
+###  Публикация: 1733813   (107271) от 30.06.2024
 
-Aetherian - Studio Albums (3 releases) (2015-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+Тоска / Longing (2024) WEB-DLRip [H.264/1080p] [MVO] [AD]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Aetherian — мелодик-дэт-метал группа из Афин, Греция, образованная осенью 2013 года.2015 - Tales Of Our Times
-2017 - The Untamed Wilderness
-2023 - At Storm's EdgeЖанр: Melodic Death MetalПродолжительность: 02:24:47
+Бизнес-магнат сталкивается со своей бывшей девушкой из провинции, когда она приезжает в большой город, и узнает, что у них родился ребенок, о котором он не подозревал.Производство: Канада / Mongrel Media, Anamorphic Media, The SolutionЖанр: драма, комедияРежиссер: Шаби ГабизонАктеры: Дайан Крюгер, Ричард Гир, Джессика Клемент, Марни Макпайл, Сюзанн Клеман, Томасо Санелли, Шона МакДональд, Стюарт Хьюз, Алекс Ивановичи, Ларри ДэйПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:52:27Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C11AED30D94D4AEFA5B933CD125A9D2EC342AC9
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729995   (107947) от 14.06.2024
+###  Публикация: 1733684   (107272) от 30.06.2024
 
-Black Country Communion - V (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enlighten (5:20)
-02. Stay Free (4:30)
-03. Red Sun (6:33)
-04. Restless (5:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D76EBAA4E4AEB443D2021F7D139BAB02216573
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730092   (107948) от 14.06.2024
-
-VA - DJ Hits Vol. 53 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sir Prise - Love is the answer
-02. Ex-It - Night Fever
-03. Blaxone - Good thimes
-04. Captain Jack - Soldier soldier(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D7FB787A8600233301E27839C6D3C4F6C59536
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730123   (107949) от 14.06.2024
-
-Adrienne Pauly - Et Comment Tu Trouves Que J'me Trouve ? (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - La nuit (00:04:34)
-02 - Anecdotique (00:03:41)
-03 - Message (à tous les mecs !) (00:03:43)
-04 - P'tite cherie (00:04:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BFA4625576063DD7A6CB93CF38C44B62491CB1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730104   (107950) от 14.06.2024
-
-PhotoRoom 4.9.9 (b1439) Mod by derrin [Ru/Multi]
+Практика — медитация и сон v1.4.9 Mod by vedserega [Ru/Multi]
 
 >>Программы, Игры и прочее
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 08.06.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+Практика — приложение для медитации. На русском языке и без эзотерики. Поможет справиться со стрессом, улучшит сон и работоспособность. Короткие уроки и тематические курсы с профессиональным гидом научат основам медитации и помогут медитировать каждый день.Тип издания: Пиратка (открыта подписка)Релиз состоялся: 26.06.2024Разработчик: Praktika, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D00A09F370F539305A43DE3BA45CFC626A24FC6B
+magnet:?xt=urn:btih:49EAC8391AD25C780F485B8259E20812228E1800
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730099   (107951) от 14.06.2024
+###  Публикация: 1733655   (107273) от 30.06.2024
 
-Max Greger - Wirtschaftswunder-Stars: Ein Leben Mit Musik (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Big Band, Swing, Pop-Jazz>
+Павел Матисов | Цикл "Вечный Данж" [7 книг] (2020-2021) [FB2]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - American Patrol (00:03:11)
-02 - Blue Tango (00:02:14)
-03 - Brazil (00:01:48)
-04 - Red Roses For A Blue Lady (00:02:03)(   Читать дальше...   )Жанр: Big Band, Swing, Pop-JazzПродолжительность: 00:45:51
+Эдик возможно и не считался плохим парнем при жизни, однако его циничные взгляды и некоторые поступки отнюдь не обрадовали высшую сущность, к которой случайно занесло его душу после смерти. И хотя он идет герою навстречу, давая сильный козырь в новом мире, без ложки дегтя тут обойтись не могло.
+Подземелье тем временем живет своей жизнью, дарит подарки, а также создает (   Читать дальше...   )Жанр: РеалРПГ, фэнтези, ПопаданцыИздательство: СамИздатФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69829ADADFBFA0D92EE3752F1B879446D48DAF39
+magnet:?xt=urn:btih:2EEFF5F91DDF2603302F7F47C0C4FF1D0BCB2824
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730103   (107952) от 14.06.2024
+###  Публикация: 1733877   (107274) от 30.06.2024
 
-PhotoRoom 5.0.1 (b1446) Mod by Maximoff [Ru/Multi]
+PotPlayer 240618 (1.7.22266) (unofficial) Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107274.jpg" />
+</div>
+
+
+###  Подробнее
+
+PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A32189B6209CE4593E68F19E3B249EF8BE18699
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733802   (107275) от 30.06.2024
+
+Вел Павлов | Высшая Речь (Книга 4). Последний реанорец. Том IV (2024) [MP3, Радион Нечаев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я - Зеантар Ар-Ир Ор'Реанон. Убийца, мститель, кто-то даже называл Линчевателем и Жнецом Бездны. Но по своей натуре я искупитель, носитель Высшей речи и последний в своем роде реанорец.
+Я убивал, уничтожал, истреблял, испепелял и стирал с лица Мерраввина целые города и народы. Во имя мести и искупления.
+Но не зря любят философствовать замшелые пеньки из расы людей, (   Читать дальше...   )Жанр: Попаданцы, Боевое фэнтези, Бояръ-АнимеИздательство: Author TodayПродолжительность: 08:23:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47DAB774E47E66859A8C0CD48AE5AA80B7EF1356
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723110   (107276) от 30.06.2024
+
+DailyArt - Daily Dose of Art v3.2.7 Mod by youarefinished [Ru/Multi]
 
 >>Программы, Игры и прочее
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 13.06.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+Оригинальное приложение для изучения творчества и биографии художников. Выполнено в виде ленты работ для ознакомления. Каждый день вдохновляйтесь прекрасными произведениями классического, модерн и современного искусства и читайте о них короткие истории. Присоединяйтесь к сообществу более 1.000.000 любителей искусства, для которых DailyArt - это то, что скрасит ваш (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 29.06.2024Разработчик: MoiseumПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D263CE8F69AF4C5B1D533F1B8727C8B2BF37923F
+magnet:?xt=urn:btih:C0C50494BA14B3BD695BBCF402F0A7044708C446
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730246   (107953) от 14.06.2024
+###  Публикация: 1733860   (107277) от 30.06.2024
 
-Azrael - Dimensión V (2023) [FLAC|Lossless|WEB-DL|tracks] <Speed, Power, Heavy Metal>
+VA - For Discos Only: Indie Dance Music From Fantasy & Vanguard Records (1976-1981) (2018) [FLAC 24/192|Lossless|WEB-DL|tracks] <Electronic, Indie Dance, Disco,>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Ad Aeternum 02:00
-2. Vivir - morir 03:11
-3. Sueños rotos 04:23
-4. Trece rosas 04:42(   Читать дальше...   )Жанр: Speed, Power, Heavy MetalПродолжительность: 00:39:12
+01. The Players Association - Turn The Music Up! (12" Disco) (06:51)
+02. Sylvester - Over And Over (Special 12" Disco Mix) (09:31)
+03. The Blackbyrds - Don't Know What To Say (04:07)
+04. Poussez! - Boogie With Me (12" Disco Mix) (07:53)(   Читать дальше...   )Жанр: Electronic, Indie Dance, Disco,Продолжительность: 03:23:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5133B7E303F3E10598AF99C288864EA308770C36
+magnet:?xt=urn:btih:7A44D9F3CC0F5E2571F38AFC10970591938CB44A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729970   (107954) от 14.06.2024
+###  Публикация: 1733818   (107278) от 30.06.2024
 
-Veil of Tears - Emo Diaries (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
+HandBrake 1.8.1 + Portable [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In the Aftermath (2:23)
-02. Whispers in the Dark (2:35)
-03. Lost in the Shadows (3:33)
-04. Down the Rabbit Hole (3:34)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:42:51
+HandBrake - бесплатный видео конвертер с открытым исходным кодом, который позволяет кодировать видеофайлы из DVD или любого видео формата в MPEG-4 или H.264. Содержит широкий набор пресетов, при помощи которых можно быстро преобразовать видео для дальнейшего просмотра на различных мобильных устройствах, как например Apple iPod, iPhone, iPad, AppleTV, Sony PSP, PS3, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A027516A770AF74038773A733FFCB4C959BDA449
+magnet:?xt=urn:btih:2F2545D115CF4946D949CAA9CD1FB641CF11E508
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733125   (107279) от 30.06.2024
+
+Александр Тафинцев - Коллекция Блюз (2024) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Александр Тафинцев и Александр Самойлов - Про Союз [04:53]
+02. Александр Тафинцев и Александр Самойлов - Чёрный волк [04:37]
+03. Александр Тафинцев и Сергей Никитин - Мачо [04:01]
+04. Александр Тафинцев - На просторах Дикого запада [04:23](   Читать дальше...   )Жанр: BluesПродолжительность: 06:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F8AC4C54E5EBC7B1D6496A28F95DD2026BD127
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733747   (107280) от 30.06.2024
+
+Журнал | Woodworker's Journal №4 (август 2024) [PDF][EN]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Woodworker's Journal — журнал по столярному делу представляет для всех мастеров по дереву новые идеи для творчества, обзоры деревообрабатывающей техники и оборудования для мастерской, проекты по изготовлению из дерева различной мебели, поделок, садовых беседок и прочих малых архитектурных строений, которые приводятся с пошаговыми инструкциями, фотографиями и чертежами, (   Читать дальше...   )Жанр: Столярное делоЯзык: АнглийскийИздательство: Rockler Press Inc.Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0DE39F74A92D7650DCC88E55BE62B97E098B0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733855   (107281) от 30.06.2024
+
+NetLimiter 5.3.16.0 RePack by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107281.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetLimiter - программа, решающая проблему контроля сетевого трафика. NetLimiter следит за деятельностью каждого приложения, использующего доступ к Интернету, а также активно управляет трафиком, контролируя скорость потока данных. Вы можете самостоятельно настроить скорость загрузки и отправки информации для каждого отдельного приложения или соединения. Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68912EF7783C9CB4AB7EC9821B0B0C91AE040E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733680   (107282) от 30.06.2024
+
+Paper Trail (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paper Trail - это увлекательная головоломка, которая перенесет геймеров в свернутый мир настоящей бумаги. Здесь вы окажетесь в роли Пейдж, молодой и перспективной студентки, покидающей свой дом впервые, чтобы начать свое учебное путешествие. Но это не только головоломки, но и приключение, где вы сможете исследовать разнообразные области, раскрывая давно забытые тайны (   Читать дальше...   )Тип издания: SceneРазработчик: Newfangled GamesЖанр: Приключенческие игры, Казуальные игры, Инди, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Китайский, Итальянский, Испанский и другиеЯзык интерфейса: Английский, Китайский, Итальянский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14EA413BA8724BA7638F43711654D7DC3526449D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733595   (107283) от 29.06.2024
+
+Muna - Live at The Greek Theatre in Los Angeles (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternativa & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What I Want (Live at The Greek Theatre in Los Angeles) [00:05:34]
+02. Number One Fan (Live at The Greek Theatre in Los Angeles) [00:03:27]
+03. Solid (Live at The Greek Theatre in Los Angeles) [00:02:22]
+04. Stayaway (Live at The Greek Theatre in Los Angeles) [00:03:45](   Читать дальше...   )Жанр: Alternativa & IndieПродолжительность: 01:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943AE12846AD3BE7BD2647D05333E5FA227E987E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733512   (107284) от 29.06.2024
+
+Пятеро на одного (29.06.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63420927AACC8848BA934B55FD41ECC79FE279AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733558   (107285) от 29.06.2024
+
+Madeleine Peyroux - Let's Walk (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Find True Love
+02. How I Wish
+03. Let’s Walk
+04. Please Come On Inside(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1D1D0EA9E6757EFDDF2A0B597401A50D25E1D5
 ```
 
 

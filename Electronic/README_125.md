@@ -1,3 +1,57 @@
+###  Публикация: 1641656   (210741) от 23.06.2023
+
+VA - Suanda Ibiza (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Gid Sedgwick - This Is Real (Christopher Corrigan Extended Remix) [7:05]
+02. SMR LVE & Jennifer Rene - Stay (Extended Mix) [5:45]
+03. Feel & Papulin & Ren Faye - The Way Of Magic (Alex M.O.R.P.H. Extended Remix) [7:33]
+04. DJ T.H. & Sharon Valerona - Only Now I See (Extended Mix) [5:54](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789263E5DF94EEADEC1DD9728B04E20B3319D347
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641392   (210748) от 23.06.2023
+
+VA - Nothing But... Trancetopia, Vol. 04 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. STNX - Meyena (Original Mix) [3:47]
+02. Alphed Le Cornett & Dropper Vampire - Closer To Heaven (Original Mix) [4:21]
+03. Intra De Aeris - Breath Of The Universe (Original Mix) [4:15]
+04. Heaven & Alone - Immersion (Original Mix) [3:30](   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A034E6C4553CA75D85CCA57C0E01DC1EA6C3E3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640825   (211035) от 19.06.2023
 
 Eguana - My Black World (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout, Psychill>
@@ -641,60 +695,6 @@ VA - Ibiza Summer 2025 (Chill out Cookies from the Heart) (2025) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C263F94AE03D3D411156FCB9325F5FCB8B33DC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832226   (213484) от 30.10.2025
-
-VA - Ibiza Winter Session 2026 (The House Hotties) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Dance, Club>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amlex - Be With You 02:40
-02. Tod Allen & Kris Kiss - Feelings 03:33
-03. Francesco Diaz, Radio Killer & Young Rebels - Clothes Off (Jeff Rock Remix) 06:09
-04. Muphus - Mahaba 03:35(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7071191FA515ADFE437A280149DED7B9A3971E24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832293   (213514) от 30.10.2025
-
-VA - A State of Trance - Classics Top 10, Vol. 7 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Binary Finary - 1998 (Matt Darey Extended Remix) [7:18]
-02. Signum - Solar Level (Extended Mix) [9:30]
-03. Olmec Heads - Lift Off (Extended Mix) [7:49]
-04. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (12" Vocal Mix) [8:32](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:22:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:342ED442077A4F4D801CA6537A58250B1D36E7C0
 ```
 
 

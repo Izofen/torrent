@@ -1,673 +1,660 @@
-###  Публикация: 1736635   (106681) от 13.07.2024
+###  Публикация: 1739668   (106012) от 28.07.2024
 
-Files Inspector Pro 4.10 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если на диске заканчивается свободное место, и вы не можете понять, чем занят ваш диск, то Files Inspector – отличное решение для поиска и удаления затерявшихся фильмов, загруженных файлов и неиспользуемых программ, которые вам уже не нужны, но занимают место на диске.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:986D2BD564856A0189149DEBFFFFF9DEA06AA6C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736702   (106682) от 13.07.2024
-
-Бегство к Афине / Escape to Athena (1978) BDRip [H.264/720p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106682.jpg" />
-</div>
-
-
-###  Подробнее
-
-1944 год. Один из греческих островов, оккупированных нацистами. Американские и британские военнопленные под руководством Зенона осуществляют побег. При этом они спасают не только свои жизни, но и древнегреческие предметы искусства...Производство: Великобритания / Incorporated Television Company, Pimlico FilmsЖанр: боевик, приключения, военныйРежиссер: Джордж П. КосматосАктеры: Роджер Мур, Телли Савалас, Дэвид Нивен, Клаудия Кардинале, Стефани Пауэрс, Ричард Раундтри, Сонни Боно, Эллиотт Гулд, Энтони Валентайн, Зигфрид Ройч, Майкл Ширд, Ричард Рен, Филип Лок, Стив Убельс, Пол ПицерниПеревод: профессиональный многоголосый, профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (R5), английскиеПродолжительность: 01:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C034DFD408A7705564490FE7BD9F54B83CC35034
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736439   (106683) от 12.07.2024
-
-VA - Playlist for a Picturesque Retreat That Will Rejuvenate Your Mind, Body, And Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Aurora (5:13)
-02. Konstantin Klashtorni - Just for 2 (4:25)
-03. Kool&Klean - Misty Mountains (4:31)
-04. Chillaxing Jazz Kollektion - Home (5:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9320EF6CF9E6409FABDC9BB91C04CC6C5787C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736510   (106684) от 12.07.2024
-
-VA - Black Hole House Music 07-24 (2024) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZOYA - Riverside (Extended Mix) [05:09]
-02. PARAFRAME - We Are the Only Ones (Extended Mix) [05:30]
-03. Siskin - Fly Away (Hel:sløwed Extended Remix) [05:46]
-04. Alex H - Not Fair (Máximo Lasso Extended Remix) [04:55](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22B1104A0E5324628A7C880D33885EB6882D2C70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736437   (106685) от 12.07.2024
-
-VA - Lounge Playlist for a Picturesque Retreat to Rejuvenate Your Body and Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Iridescent (5:10)
-02. Konstantin Klashtorni - Hypnotize Me (4:03)
-03. Chillaxonic - Cosmic Visions (4:26)
-04. Kool&Klean - Misty Mountains (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527B04A1E130EC080153242C114DC7EC3D25D41F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736502   (106686) от 12.07.2024
-
-Матвей Барсов | Сборник статей по истолковательному и назидательному чтению Деяний Святых Апостолов (1994) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Труд М. В. Барсова (1836–1896) представляет собой гомилетическую и экзегетическую хрестоматию по книге Деяний святых апостолов, в которую вошло огромное количество святоотеческих толкований, богословских работ и проповедей. Каждый раздел книги снабжен библиографическим справочником. Книга будет полезна всем, изучающим Священное писание.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5754905577B868DCD7FA9721D1D747D89DC26E1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736346   (106687) от 12.07.2024
-
-Photo Supreme 2024.2.1.6568 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:471D8F0E0B5CF48D697E1A0A8677CA3762E43D5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736501   (106688) от 12.07.2024
-
-Сатисъ | Жития святых в земле российской просиявших. Жития, чудеса, поучения [2 тома] (2001) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляемые книги – это зеркало, отражающее историю России в жизнеописаниях тех, реально существовавших, истинных героев, которых породила наша земля, которые по благодати Божией прославили Отечество и позволили именовать его Святой Русью.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EA79DFA60CCCFAE5C0D1C8E42FE2D7350204872
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736447   (106689) от 12.07.2024
-
-Palace - Reckless Heart (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <AOR/Melodic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reckless Heart (3:37)
-02. The Widow's Web (3:49)
-03. Back In Your Arms (4:04)
-04. Girl Is An Angel (4:25)(   Читать дальше...   )Жанр: AOR/Melodic RockПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47EA12B19DA308D03D5BEFAF8CC6D5FD8035A65F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736376   (106690) от 12.07.2024
-
-The Angels - Ninety Nine (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ninety Nine (Go For Broke)
-02. Blue Winter
-03. Heartbeats
-04. Follow The Red Thread(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2DC27BF3095C7AB23FFDDEE368A0691EE95B25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736367   (106691) от 12.07.2024
-
-Mr. Big - Ten (2024) with bonus track [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Luck Trying (4:06)
-02. I Am You (4:32)
-03. Right Outta Here (4:38)
-04. Sunday Morning Kinda Girl (4:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32214F8BBE0D867F0389BCE3727737FC58D72047
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736359   (106692) от 12.07.2024
-
-Miles Davis - Miles In Tokyo (1964) 2005, Columbia [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction by Teruo Isono (Live) [1:10]
-02. If I Were A Bell [10:17]
-03. My Funny Valentine [12:50]
-04. So What [8:05](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B326D86AF1FF8D10DA99F3BC48511568851793
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736433   (106693) от 12.07.2024
-
-VA - Funky Summer (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz, Dance>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papik - Wiser (4:02)
-02. Anduze - Defibrillator (4:25)
-03. Funky Destination - Mr. Bong (Louie's beat re-work) (3:40)
-04. DJ Umbi - The Way We Live (Radio Edit) (4:33)(   Читать дальше...   )Жанр: Funky Jazz, DanceПродолжительность: 01:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1207407AE55821125D39BE2A97A962C8CE94634F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736435   (106694) от 12.07.2024
-
-VA - Jazz House Grooves Volume 2 (The Finest Jazzy Soulful Chill House Selection) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulstance - Karma (5:53)
-02. Andy Sax - Saxsoulaction (4:10)
-03. Pomante - Kick Back (3:48)
-04. Jazz 2 More - Spiritual Session (5:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6072213BDCBF7B6F38EB3B08EA1D2BDE94DD67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736448   (106695) от 12.07.2024
-
-Spektra - Hypnotized (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freefall (3:49)
-02. Taste of Heaven (3:29)
-03. Search for More (3:45)
-04. My Voice for You (4:21)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E1BC0AC83639F4244C2BA90CEEB8EFA29EC672
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736380   (106696) от 12.07.2024
-
-Spektra - Hypnotized (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freefall
-02. Taste Of Heaven
-03. Search For More
-04. My Voice For You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DB8B7C95EAEF17171A1D158D3F48AB4A4FCFFE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736382   (106697) от 12.07.2024
-
-Legions Of The Night - Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+Metal Church - The Final Sermon (2024) Live In Japan 2019 [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power, Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106012.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. No Control
-02. Rebirth
-03. Darkness
-04. Hate(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:55:44
+01. Damned If You Do
+02. Needle and Suture
+03. Fake Healer
+04. In Mourning(   Читать дальше...   )Жанр: Heavy, Power, Thrash MetalПродолжительность: 01:35:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35135612D29F8590CA474E3823BC1E992936FF57
+magnet:?xt=urn:btih:A47EF875F4B677A86850B0D524962FB3FA3A019F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736352   (106698) от 12.07.2024
+###  Публикация: 1739409   (106013) от 28.07.2024
 
-Ирина Мясник | Глазами любви (2023) [MP3, Ирина Мясник]
+Иракли - Сделай Шаг (2009) [WavPack|Lossless|image + .cue] <Pop>
 
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>Pop
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106013.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга о том, как женщина сама берет на себя ответственность быть счастливой независимо ни от кого! Женщина и есть любовь, с нее все начинается. Каждая из нас выбирает, в каком состоянии жить, создавая события из точки настоящего. Женщина делает выбор будущего результата в настоящем моменте. Только вам решать какой делать выбор, на что направлять свое внимание. Женщина (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 04:57:48
+01. Я С Тобой
+ 02. Ну И Что
+ 03. Капли Абсента
+ 04. Так Не Бывает (Lounge Version US Global DJ's)(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB416D5ED70AF661ABBC1E6A35E99B179526337E
+magnet:?xt=urn:btih:D151BC9EF7BFD8BCDE1FA18F5F9E999E5F7BC489
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736374   (106699) от 12.07.2024
+###  Публикация: 1739595   (106014) от 28.07.2024
 
-Voice - Holy Or Damned (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nevermore
-02. The Silence Of Prescience
-03. In This World
-04. Dream On(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:04:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81660AA5B63EEFCAB85496A8CDE4400D54375FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736507   (106700) от 12.07.2024
-
-Валентина Филиппенко | Папа ищет работу (2024) [MP3, Валентина Филиппенко]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мой папа работал водителем, а потом фирму закрыли. Тогда-то с ним и начали происходить приключения: день за днём он читал газеты с объявлениями, сочинял мороженое, стриг облака, командовал воздушными шарами, даже королём успел поработать — чуть было в Африку не улетел... Но в глубине души и папа, и мама, и я понимали: это всё не для него, призвание папы — другое.Жанр: детская проза, сказкиИздательство: СамокатПродолжительность: 03:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1D9023969F1A05232ACA47BB612118577809BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736516   (106701) от 12.07.2024
-
-John Hiatt - Stolen Moments (1990) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Country Rock>
+Abyssphere - Studio Albums (5 releases) (2008-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Doom/Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106014.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side One:
-A1 Real Fine Love
-A2 Seven Little Indians
-A3 Child Of The Wild Blue Yonder(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:52:47
+Abyssphere — российская метал-группа, основанная в 2005 году в Санкт-Петербурге.2008 - Images and masks
+2010 - Тени и Сны
+2013 - Снова и Снова (EP)
+2017 - На Пути К ЗабвениюЖанр: Gothic/Doom/Death MetalПродолжительность: 04:55:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:590B37716A3D6A4F0CAC70B6A1B75434EAD2979D
+magnet:?xt=urn:btih:534FDF1537128EB9D12714476C67999D68F55DD8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736434   (106702) от 12.07.2024
+###  Публикация: 1739564   (106015) от 28.07.2024
 
-Волшебники / The Sorcerers (1967) BDRip [H.264/720p] [MVO]
+Smells Ai Music Project - Broken Hopes (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106015.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пожилая супружеская чета профессор Монсеррат и его жена Эстель убеждают молодого человека Майка Роско принять участие в эксперименте по гипнозу и телепатии. Они обещают ему некий новый опыт. После того как парень подвергается воздействию их сложного аппарата, он оказывается в их подчинении. Пожилые супруги могут силой мысли заставить его исполнять свою волю, и в (   Читать дальше...   )Производство: Великобритания / Curtwel Productions, TigonЖанр: ужасы, фантастикаРежиссер: Майкл РивзАктеры: Борис Карлофф, Катрин Лэйси, Элизабет Эрси, Иэн Огилви, Виктор Генри, Сэлли Шеридан, Мейер Целкинер, Джералд Кэмпион, Сьюзен Джордж, Айвор Дин, Питер Фрайзер, Мартин Терри, Морин БутПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: нетПродолжительность: 01:25:35
+01. Not for You (3:24)
+02. Echoes (3:57)
+03. Oblivious (2:44)
+04. Dark Shame (2:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F443BFDAE61601789F65316336D41990656FDF85
+magnet:?xt=urn:btih:2768BB32FF1E36E510183A3BA26255359CFDEA7C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736418   (106703) от 12.07.2024
+###  Публикация: 1739653   (106016) от 28.07.2024
 
-Волшебники / The Sorcerers (1967) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожилая супружеская чета профессор Монсеррат и его жена Эстель убеждают молодого человека Майка Роско принять участие в эксперименте по гипнозу и телепатии. Они обещают ему некий новый опыт. После того как парень подвергается воздействию их сложного аппарата, он оказывается в их подчинении. Пожилые супруги могут силой мысли заставить его исполнять свою волю, и в (   Читать дальше...   )Производство: Великобритания / Curtwel Productions, TigonЖанр: ужасы, фантастикаРежиссер: Майкл РивзАктеры: Борис Карлофф, Катрин Лэйси, Элизабет Эрси, Иэн Огилви, Виктор Генри, Сэлли Шеридан, Мейер Целкинер, Джералд Кэмпион, Сьюзен Джордж, Айвор Дин, Питер Фрайзер, Мартин Терри, Морин БутПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: нетПродолжительность: 01:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58AFE04D752E806E95541693B58A6FC9D8BD239E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736443   (106704) от 12.07.2024
-
-Vincent Ingala - Escape With Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Movin' and Shakin' (4:07)
-02. Fantasy or Reality (3:49)
-03. Let's Get To It (4:02)
-04. Escape With Me (4:45)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94AC14AE3A8F7F77A3A7F1F68D7088C3E66F5D27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736424   (106705) от 12.07.2024
-
-Amorphis - Tales From The Thousand Lakes (Live At Tavastia) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Death Metal, Doom Metal>
+Mammoth WVH - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Thousand Lakes (Live at Tavastia) [1:55]
-02 - Into Hiding (Live at Tavastia) [4:12]
-03 - The Castaway (Live at Tavastia) [5:35]
-04 - First Doom (Live at Tavastia) [3:50](   Читать дальше...   )Жанр: Progressive Metal, Death Metal, Doom MetalПродолжительность: 00:54:04
+Mammoth WVH — американская рок-группа, основанная и возглавляемая Вольфгангом Ван Халеном.2021 - Mammoth WVH
+2023 - Mammoth IIЖанр: Hard RockПродолжительность: 01:59:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:388D16C089406BB265C8939762BB84B2B9CCEE97
+magnet:?xt=urn:btih:C43CE13EE5E9352ECB8AA0D7AE270FA96B106F88
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736390   (106706) от 12.07.2024
+###  Публикация: 1739548   (106017) от 28.07.2024
 
-Axxis - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
+Grace Potter - Grace Potter's Road Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something That I Want (Acoustic) (2:56)
+02. Good Time (5:33)
+03. Mother Road (5:13)
+04. Ready Set Go (3:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023A52038B96D1FF35BA7FF3EB51806D73F056DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738441   (106018) от 28.07.2024
+
+VA - The Soulful Rhythm And Blues (2023) [MP3|320 Kbps] <RnB, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106018.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dixson | Only
+002. Lee Hi | Only
+003. Craig David | Teardrops
+004. Tinashe | Hmu For A Good Time(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 07:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D2FAEF198321FA332814073B7784E46D92D8C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739678   (106019) от 28.07.2024
+
+Firefox Browser 128.0.3 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE99898A51D02432D2E9592309625BBF879C14B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739439   (106020) от 28.07.2024
+
+Прямо как в кино / Net als in de Film / Just Like in the Movies (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поначалу Аннабель и Сандер кажутся противоположностями друг другу, в последний год обучения в школе, в начале 1980-х, но когда они оба присоединяются к школьной группе, их объединяет любовь к музыке.Производство: Нидерланды / KeyFilmЖанр: Музыкальный, мелодрамаРежиссер: Dorien Goertzen, Алберт Ян ван РесАктеры: Нуртье Херлар, Бенья Брёйнинг, Холли Мэй Бруд, Jip Smit, Кэй Грейданус, Jasper Heyman, Пепейн Шонефельд, Марго Рос, Леопольд Уитти, Янни ГослингаПеревод: Многоголосый любительский (RGB)Язык озвучки: РусскийСубтитры: Русские (Forced, Full)Продолжительность: 01:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C03A115E74419FFE6E27F61EA5BC1E45B07AEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739471   (106021) от 28.07.2024
+
+Генри Райдер Хаггард | Суд фараонов (2019) [MP3, Павел Конышев]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия «МедиаКнига» представляет аудиокнигу знаменитого английского романиста, автора множества приключенческих романов Генри Райдера Хаггарда (1856–1925) – «Суд фараонов». Его творчество широко известно у нас по книгам «Копи царя Соломона» и «Дочь Монтесумы», однако два этих произведения – лишь малая часть богатого творческого наследия автора.
+Увидев в Британском (   Читать дальше...   )Жанр: Зарубежная литература, классика, историко–приключенческая повестьПеревод: Зинаида ЖуравскаяИздательство: МедиаКнигаПродолжительность: 02:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19542A41107A4093AF6D8A07B580732E261C147D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739565   (106022) от 28.07.2024
+
+Елена Ульева | Детский этикет в сказках. Энциклопедия хороших манер (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Детский этикет в сказках. Энциклопедия хороших манер» поможет разобраться во всех нюансах норм этикета и научить им ребёнка. Внутри вы найдёте 43 сказки о правилах поведения и хороших манерах с материалами для закрепления знаний и вопросами на понимание прочитанного.
+Из сказок про девочку Шушу и её мамонтёнка вы узнаете:
+как следует вести себя за столом и (   Читать дальше...   )Жанр: детская познавательная и развивающая литература, нравственное воспитание, сказкиИздательство: CLEVERФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F5C8C5A0E92B8717817F5C1990D409483FFFDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739542   (106023) от 28.07.2024
+
+PrivaZer Pro 4.0.91 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106023.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DCEEBDF2A40F1B649AD475582244664237C537
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739598   (106024) от 28.07.2024
+
+MediaHuman YouTube to MP3 Converter 3.9.9.94 (0726) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы любите слушать музыку на YouTube или Vimeo, но хотите делать это без интернета. Или нужно скачать саундтрек нового фильма с YouTube. А может быть, сохранить аудиокнигу и слушать ее потом в машине? Тогда наш конвертер YouTube в MP3 является отличным выбором для вас.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A2EE83129F3AF1BBC2930E47C72FCE0752C231
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739487   (106025) от 28.07.2024
+
+Hooverphonic - Fake Is The New Dope (2024) [FLAC|Lossless|tracks + .cue] <Trip-hop, Downtempo, Indie Pop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fake Is The New Dope (3:43)
+ 02. Don't Think (2:47)
+ 03. The Best Day Of Our Life (3:05)
+ 04. And Then I Found You (3:04)(   Читать дальше...   )Жанр: Trip-hop, Downtempo, Indie PopПродолжительность: 38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66695DCE4D04162DEC54BE36A9C67FB27FA363D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739571   (106026) от 28.07.2024
+
+Perfectly Clear WorkBench 4.6.1.2681 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BEED7AA496EDBBD5897951E37398A4F0E91BA0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739465   (106027) от 28.07.2024
+
+Ocenaudio 3.14.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ocenaudio — аудиоредактор, распространяемый авторами абсолютно бесплатно. Приложение имеет различные варианты сборок, поддерживающих работу в различных операционных системах (Windows, Mac OS X, Linux). Это невероятно простой способ вносить изменения в аудио треки. При наличии достаточно мощных функций, программа не вызовет осложнений при работе даже новичками. Однако (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8878C93953120FDD0A4921112B51791342CD6CC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739529   (106028) от 28.07.2024
+
+VA - Дискотека Казанова. Dream House vol. 4 - Спецвыпуск Лето 2003 (2003) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Euro House>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Kristine Blond - Love Shy
+02. London Underground - Freeze Frame
+03. Pied Pipper - Slip & Slide(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC15B595722C16248AC4780FB9C04F6A9546ECC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739510   (106029) от 28.07.2024
+
+Photo Studio Premium v2.7.8.3067 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: PremiumРелиз состоялся: 27.07.2024Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86EA764B170880E52CA333CA298D3ACEE68C4E27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739032   (106030) от 28.07.2024
+
+Gloria Gaynor - Never Can Say Goodbye (2005) [WavPack|Lossless|image + .cue] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Eye Of The Tiger
+ 02. The Heat Is On
+ 03. Feel So Real
+ 04. The Power Of Love(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43BC8237747C126F6C80B22AE26FE657B9A453BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739481   (106031) от 28.07.2024
+
+Inazuma Eleven: Ares no Tenbin | Одиннадцать Молний: Весы Ареса [2018, TV, 26] HDTVRip 720p HS
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ares изображает альтернативный канон после событий первого сезона оригинального аниме Inazuma Eleven после их победы в Football Frontier, при этом инопланетная атака из второго сезона так и не произошла. Когда японский футбол был признан слабым по сравнению с международной конкуренцией, Raimon Eleven распалась, а ее члены перешли в разные футбольные команды по всей (   Читать дальше...   )Производство: OLMЖанр: спортРежиссер: Камакура ЮмиЯзык озвучки: ЯпонскийСубтитры: Русские (неотключаемые)Продолжительность: 26 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CA2B2C74BB231A4C462B34DEA55436D0D3994C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739501   (106032) от 28.07.2024
+
+Powerwolf - Wake Up The Wicked (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106032.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blackest Vision
-02. Coming Home
-03. Atlantica
-04. Moonlight Bay(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 00:41:32
+01. Bless 'Em With The Blade
+02. Sinners Of The Seven Seas
+03. Kyrie Klitorem
+04. Heretic Hunters(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:37:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA3A92D3ECD1BCA06E1E4DFF6FCE2C2A7405B79E
+magnet:?xt=urn:btih:40DAEFE5F167DEAA49809192F19913C6171AF76B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739619   (106033) от 28.07.2024
+
+Было бы здоровье / Tant qu on a la sante (1966) BDRip [H.264] [FR / RU Sub]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм представляет собой сборник из четырёх новелл.
+"Бессонница". Мучимый бессонницей, Пьер читает готический роман на сон грядущий... Спать ему уже не придётся...
+"Кинематограф". Простой поход в кино оборачивается для Пьера настоящей полосой препятствий...
+"Было бы здоровье". Пьер чувствует себя чужаком в 20-м столетии. Вокруг шумиха, (   Читать дальше...   )Производство: Франция / C.A.P.A.C., Les Films de la ColombeЖанр: комедияРежиссер: Пьер ЭтексАктеры: Пьер Этекс, Дениз Перонн, Симон Фондер, Сабина Сунь, Вера Вальмонт, Клод Массот, Дарио Мески, Эмиль Корин, Роже ТраппПеревод: отсутствуетЯзык озвучки: французскийСубтитры: русские, английскиеПродолжительность: 01:08:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F88B6F0981645A680462B3702E92E2874E5C1F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739594   (106034) от 28.07.2024
+
+HY-Plugins - HY-Filter4 1.1.62 VST, VST 3 (x86/x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106034.jpg" />
+</div>
+
+
+###  Подробнее
+
+HY-Filter4 — это плагин эффектов полумодульного типа. Он содержит многопроцессорный фильтр + встроенные 38 блоков эффектов + 10 типов модуляторов + CTRL SEQ. Вы можете модулировать параметры основного фильтра, встроенных эффектов и модуляторов с помощью модулей модуляции. Кроме того, ими управляет CTRL SEQ, который является сеточным секвенсором.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B585A0927C7527B0D20B8546A657363E33361BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739517   (106035) от 28.07.2024
+
+DVDFab StreamFab 6.1.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106035.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVDFab StreamFab — это удобный и мощный инструмент для загрузки, конвертирования и записи видео-контента. StreamFab поддерживает загрузку видео с большого количества онлайн-сервисов и позволяет пользователям загружать видео в различных форматах и качестве. С помощью StreamFab пользователи могут конвертировать загруженное видео в различные форматы, размеры и разрешения, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E1D7FB216B872F4D7C8C73EEC34A1CC911644F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739519   (106036) от 28.07.2024
+
+Radiant Photo 1.4.1.501 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Radiant Photo - это программа для редактирования фотографий, позволяющее пользователям изменять, улучшать и систематизировать их цифровые фотографии. Он предоставляет множество инструментов для настройки цвета, яркости, контрастности, насыщенности и других свойств изображения, а также возможностей для обрезки, вращения и изменения размеров изображений. Radiant Photo (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2767E114A49448906050D75BDB676533AA32E593
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739657   (106037) от 28.07.2024
+
+Firefox Browser 128.0.3 (x86/x64) Portable by 7997 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:218E919D8D5C7CB5AA4375010A15C952289710CB
 ```
 
 

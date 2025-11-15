@@ -1,685 +1,663 @@
-###  Публикация: 1669143   (173034) от 15.10.2023
+###  Публикация: 1670272   (172119) от 20.10.2023
 
-Nailwound - An Ode to Misery (2023) [MP3|320 Kbps] <Metalcore, Hardcore, Downtempo>
+Елена Старостина, Надежда Кобина | Поговорят и забудут (2023) [MP3, Екатерина Бабкова]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The Fourth Wall [00:02:20]
-02 - Dehumanize [00:03:13]
-03 - Juggernaut [00:04:10]
-04 - Roadkill [00:02:44](   Читать дальше...   )Жанр: Metalcore, Hardcore, DowntempoПродолжительность: 00:38:07
+Как грамотно реагировать на агрессию в интернете, что делать, если публичный человек оскорбил вас, как выразить несогласие, но при этом не получить поток травли.
+В этой книге эксперты по управлению репутацией Надежда Кобина и Елена Старостина отвечают на эти и другие вопросы. А еще, на основе проведенного исследования интернет-агрессии, дают эффективные рекомендации (   Читать дальше...   )Жанр: Саморазвитие, личностный ростИздательство: БОМБОРАПродолжительность: 03:23:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35620A25B624D4A16568988B5A89873D75421191
+magnet:?xt=urn:btih:412C3C7915C5C5037D3987570D3AAF9295350EC1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669280   (173035) от 15.10.2023
+###  Публикация: 1670294   (172120) от 20.10.2023
 
-Path Finder 2161 [Multi/Ru]
+Roger Whittaker - Love Will Be Our Home (1989) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Rock, Pop, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172120.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Morning Has Broken
+A2 I Believe
+A3 Kumbayah
+A4 Somewhere(   Читать дальше...   )Жанр: Rock, Pop, BalladПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86620D37C53E889A3AACBFFE1929F8886040AA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670485   (172121) от 20.10.2023
+
+Александр Абдулов | Хочу остаться легендой (2009) [MP3, Ефим Каменецкий]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Актерская книга.
+Эта книга – монолог, смонтированный из десятков интервью, – настоящий подарок для поклонников таланта Александра Абдулова. На этих страницах очень мало личного, глубинного, и в этом смысле содержание книги точно соответствует названию: перед нами информация, жестко отфильтрованная самим актером, который терпеть не мог нарушения личной жизни. (   Читать дальше...   )Жанр: Биография, воспоминания, мемуарыИздательство: АудиокнигаПродолжительность: 08:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C618E72D6CA27E01DDA57217F011081AD524E0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670249   (172122) от 20.10.2023
+
+WinCatalog 2024.3.2.1018 RePack (& Portable) by Dodakaedr [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.10.2023Разработчик: © 2022 CocoatechПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+WinCalatog - это простая в использовании программа, предназначенная для каталогизации дисков и файлов. Она позволяет найти нужный файл в Вашей дисковой коллекции за считанные секунды, даже не требуя наличия диска. Принцип работы заключается в следующем: программа запоминает все файлы и папки, которые хранятся на диске, а затем помогает находить нужные. Для более (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BFE1D5736B3D3A0D59C9EAF640763D3DF6890E0
+magnet:?xt=urn:btih:DF301D6EA506EA29831FFAEBB39579FBE5F60311
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669226   (173036) от 15.10.2023
+###  Публикация: 1670342   (172123) от 20.10.2023
 
-Heimdall - Hephaestus (2023) [FLAC|Lossless|image + .cue] <Power Metal>
+VA - 10 Years Of Suanda Music - Mixed by FEEL (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Hephaestus
-2. Masquerade
-3. King
-4. The Runes(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:39:56
+01. Feel feat. Johnny Norberg - The Razor (Hydrogenio Remix) [5:30]
+02. Ruslan Radriges & Feel - On Fire (Extended Mix) [4:36]
+03. Feel - Hallelujah (Extended Mix) [5:32]
+04. Feel - Swan Lake (Extended Mix) [5:47](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:36:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C596ACB558E3AAB9DFCCC71879076416368B5043
+magnet:?xt=urn:btih:8F14D755AE59EAE85EC117C13B4DF1798EF745EC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669167   (173037) от 15.10.2023
+###  Публикация: 1670303   (172124) от 20.10.2023
 
-Благовест | Любовь – причина всех благ. По творениям святителя Иоанна Златоуста (2015) [PDF, FB2, EPUB, MOBI, TXT]
+Bill Evans Trio - How My Heart Sings! (1962) 1999, JVC [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга из серии «Святые отцы о христианской любви» составлена по творениям святителя Иоанна Златоуста. Рассуждая о христианской любви, святитель охватывает все стороны проявления этого чувства и дает разъяснения, как себя следует вести в той или иной жизненной ситуации.
-
-Данная книга, как мы искренне надеемся, будет интересна и полезна православным современникам.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+01. How My Heart Sings [5:00]
+02. I Should Care [4:58]
+03. In Your Own Sweet Way (take 1) [7:00]
+04. Walking Up [4:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:48:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B9427C4C6985999402BC68EC5E252877F22B440
+magnet:?xt=urn:btih:57831353B5A1E1EDB74AB679BCB3D1B775D62639
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668898   (173038) от 15.10.2023
+###  Публикация: 1670185   (172125) от 20.10.2023
 
-Balga - ...By The Sea (2023) [FLAC|Lossless|image + .cue] <Symphonic Epic Black Metal>
+Папин Олимпос - Девочка и Мальчик (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.		Frodos Dreme (Prologue)
-02.		...by The Sea (Part I)
-03.		At The Stone Of Erech They Shall Stand Again
-04.		...By The Sea (Part II)(   Читать дальше...   )Жанр: Symphonic Epic Black MetalПродолжительность: 00:40:30
+01. СХИ [00:02:22]
+02. Бандерлог [00:02:39]
+03. На всю ночь [00:02:38]
+04. Переспим как друзья [00:02:24](   Читать дальше...   )Жанр: RockПродолжительность: 00:24:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34EA32659CFE8B56833197924A39257F2C9879FB
+magnet:?xt=urn:btih:E19DE4023072BFDE07A1D1ED456F561DA3095C97
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669202   (173039) от 15.10.2023
+###  Публикация: 1670435   (172126) от 20.10.2023
 
-Jackson Rose - Things Have Gotten Worse (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Deathcore, Trap Metal, Nu Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Putrid I: Things Have Gotten Worse [00:02:36]
-02. Limb From Limb [00:02:05]
-03. Geezer [00:01:42]
-04. Forgotten By Death [00:01:19](   Читать дальше...   )Жанр: Progressive Deathcore, Trap Metal, Nu MetalcoreПродолжительность: 00:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B03CF7FB545CE521A69E37CFA3A94D0BE29D3B3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669198   (173040) от 15.10.2023
-
-Mirror for LG TV 3.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отображение экрана для телевизоров LG. Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ LG. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели Смарт-ТВ LG с 2012 и новее. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). Поэтому данное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.09.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7EEA3301B4D2CF93E208E3C9AAB5024E3D446B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669171   (173041) от 15.10.2023
-
-The Answer Lies in the Black Void - Thou Shalt (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ataraxia [00:04:33]
-02. To Kill The Father [00:05:49]
-03. The Obsidian Clouds [00:05:36]
-04. Virgin Fire [00:05:00](   Читать дальше...   )Жанр: Atmospheric Doom MetalПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2A5089ECE9F0E8CABF6F7F3992E39F192C6F6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669253   (173042) от 15.10.2023
-
-Честь её ребенка / Her Child's Honor (1911) WEBRip
+Хаз-Пуш: Персия при Каджарах (1928) WEBRip [H.264/720p-LQ]
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сама не ведая того, женщина совершает двоемужество. И даже рожает ребенка от нового мужа. И вообще она счастлива в новом браке. Но внезапно появляется первый муж, считавшийся умершим. Но женщину тревожит не её собственная судьба, а судьба дочери. Ведь получается, что ребенок считается незаконорожденным. А в те времена это было позорным клеймом. Но женщина, любящая (   Читать дальше...   )Производство: США, Lubin Manufacturing CompanyЖанр: короткометражный, драма, немое киноРежиссер: Гарри СолтерАктеры: Флоренс Лоуренс, Артур В. Джонсон, Альберт МакГоверн, Гарри МайерсПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:15:27
+По мотивам рассказов Раффи и В. Папазяна "Носящие шелк" и "Персия при Каджарах".
+Действие фильма происходит в Иране конца XIX века. Фильм рассказывал о восстании «хаз-пушей» — обнищавших: крестьян и ремесленников — против английских колонизаторов и продавшихся иностранцам шаха и его окружения. Восстание начинают купцы и духовенство, боящиеся иностранной (   Читать дальше...   )Производство: СССР,  АрменкиноЖанр: драма, история, немое киноРежиссер: Амо Бек-НазаровАктеры: Грачья Нерсисян, М. Дулгарян, Авет Аветисян, Тигран Айвазян, Амвросий Хачанян, Никита Джанан, Михаил Гарагаш, Тигран Шамирханян, Вагарш Вагаршян, Амаси МартиросянСубтитры: русские (интертитры)Продолжительность: 01:12:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A59F787624E4A458A2B0E114630D54E7D88483B6
+magnet:?xt=urn:btih:1FA60DB7FEBD5181FA8865894D3C333716F601CE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669219   (173043) от 15.10.2023
+###  Публикация: 1670275   (172128) от 20.10.2023
 
-Catafalque - Dybbuk (2023) [FLAC|Lossless|WEB-DL|tracks] <drone doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manifestation [00:02:02]
-02. Infestation [00:13:27]
-03. Oppression [00:12:07]
-04. Possession [00:10:06]Жанр: drone doom MetalПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B4A4EA98920C8946345C5BF512B229FB7192BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669194   (173044) от 15.10.2023
-
-Graveyard of Souls - Infinity Equal Zero (2021) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madre (05:35)
-02. Your Children Will Be The Last (06:36)
-03. Mil Planetas Te Dicen Adiós (09:03)
-04. Distant Star (08:31)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C38F76C95EB8955D6EB81BD5EB46616F354B9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669107   (173045) от 15.10.2023
-
-Grant Green - Standards (1961) 1998, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+VA - 30 Sophisticated, Elegant, Inviting and Harmonious Tunes to Relax (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Easy Listening, Lounge>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You Stepped Out of a Dream [5:00]
-02. Love Walked In [6:35]
-03. If I Had You [7:11]
-04. I'll Remember April [9:10](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:57:16
+01. Chillaxing Jazz Kollektion - Touch (4:03)
+02. Chillaxonic - Aurora (5:13)
+03. Kool&Klean - I Smile (5:08)
+04. Chillaxing Jazz Kollektion - Evening Sun (5:24)(   Читать дальше...   )Жанр: Smooth Jazz, Easy Listening, LoungeПродолжительность: 02:19:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA3607C1EA30AFD77BD048DF79AA2D553377630B
+magnet:?xt=urn:btih:3CE95AC64B417F14A08F8A8B288994ABE7F644D6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669148   (173046) от 15.10.2023
+###  Публикация: 1670399   (172129) от 20.10.2023
 
-Топь - Изотоп (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
+Подшивка журнала | Тайны звезд №14-20 (март-май 2023) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Этим пацанам [00:04:32]
-02. Суисайд ПАЗ [00:03:53]
-03. Кровавый пот [00:03:35]
-04. Среди своих [00:03:02](   Читать дальше...   )Жанр: Stoner MetalПродолжительность: 00:34:37
+Журнал "Тайны звезд" рассказывает самые правдивые и откровенные факты из жизни российских звезд. Дельные советы по всем сферам жизни: здоровье, финансы, красота, семья, дети, кулинария, путешествия.
+Множество конкурсов с возможностью выиграть ценные призы.Жанр: Популярный журналИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0A54A3FB42FA71FC4A34F5D7D8C149F133C3C31
+magnet:?xt=urn:btih:50B9E56EEB5B476CFD7263A9F2938BC429DA2EAF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668894   (173047) от 15.10.2023
+###  Публикация: 1670365   (172130) от 20.10.2023
 
-Чёрные Озёра - Метанойя (2022) [FLAC|Lossless|image + .cue] <Atmospheric Blackened Doom Metal>
+Подшивка журнала | Тайны звезд №26-36 (июнь-август 2023) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Metanoia
-02 Apotheosis of Despair
-03 On Chains
-04 Cold and Fog(   Читать дальше...   )Жанр: Atmospheric Blackened Doom MetalПродолжительность: 00:30:58
+Журнал "Тайны звезд" рассказывает самые правдивые и откровенные факты из жизни российских звезд. Дельные советы по всем сферам жизни: здоровье, финансы, красота, семья, дети, кулинария, путешествия.
+Множество конкурсов с возможностью выиграть ценные призы.Жанр: Популярный журналИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57CDD2C3DFB5830A2CB3D6DA0E528BE1356AA62C
+magnet:?xt=urn:btih:1AF5B4709CA7C89295FE236502DE86F2776AD370
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668930   (173048) от 15.10.2023
+###  Публикация: 1670431   (172131) от 20.10.2023
 
-5`НО - Наружу (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+Apostolica - Animae Haeretica (2023) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Тишина [00:03:20]
-02. Наружу [00:02:59]
-03. Нарисованный мир [00:04:05]
-04. Новый день [00:04:18](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:51
+01. Animae Haeretica
+02. Angel Of Smyrna
+03. Rasputin
+04. Black Prophets(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:44:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82C1DB192EA0111535E82C700CB13A6167E352C6
+magnet:?xt=urn:btih:8FFF2C816DECC7DC03D06C64DA509871E96E03D2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669282   (173049) от 15.10.2023
+###  Публикация: 1670393   (172132) от 20.10.2023
 
-Dato 5.1.1 [En]
+Project Office X Pro 1.1.10 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
-Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.10.2023Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 13.3Язык интерфейса: Английский
+Project Office X — это полнофункциональное приложение для управления проектами, которое поможет вам управлять как простыми, так и сложными проектами на устройствах iOS и macOS.Тип издания: macOS SoftwareРелиз состоялся: 19.10.2023Разработчик: © 2015 – 2023 by DK ConsultingПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B55127FCD86300F167FDD5BDCDF651897BEB2298
+magnet:?xt=urn:btih:4CDA729842BFAC40C1C96DD09CF7415B76CB18C5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668960   (173050) от 15.10.2023
+###  Публикация: 1670285   (172133) от 20.10.2023
 
-VCTMS - Vol. V The Hurt Collection (2023) [MP3|320 Kbps] <Metalcore / Nu-Metal>
+Apeaksoft Screen Recorder for Mac 2.1.38 [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Twist The Rage (2:14)
-02. Burn Victim (feat. Jondoe_87 of Orphan) (3:29)
-03. Resent // Yourself (3:13)
-04. Feed The Vice (feat. Life_for91) (2:39)(   Читать дальше...   )Жанр: Metalcore / Nu-MetalПродолжительность: 00:35:00
+ApeakSoft Screen Recorder - это приложение, с помощью которого можно записывать определенную область на экране компьютера. Вы можете использовать утилиту для записи онлайн фильмов, радио, делать видеоинструкции, записывать видео из игр и с вебкамер.Тип издания: macOS SoftwareРелиз состоялся: 25.09.2023Разработчик: © 2023 Apeaksoft StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4F602AA23B4B5BF6852010ADE2170DA30AC9F18
+magnet:?xt=urn:btih:B402E041A710B392E769ADD94E587B9E12BD01BA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669180   (173051) от 15.10.2023
+###  Публикация: 1670323   (172134) от 20.10.2023
 
-Graveyard of Souls - Cenizas (2018) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
+Movie Thumbnails Maker 4.4.4.0 [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. El triunfo de la muerte (03:45)
-02. Cenizas (05:23)
-03. Perdido (06:37)
-04. Mi sangre en tu boca (08:43)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:54:25
+Хотите сделать нарезку кадров из любимого фильма? Как насчет создания потрясающего обзора для всех последних фильмов? Movie Thumbnail Maker - это комплексное решение для быстрого и удобного создания миниатюр фильмов.Тип издания: macOS SoftwareРелиз состоялся: 20.10.2023Разработчик: © 2023 yumysoft.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DDB4A159B73A1EB66A765383B4B8A0F67DE76B4
+magnet:?xt=urn:btih:201FAB4E6F4D191C4E048A31005DE80D0825332D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669193   (173052) от 15.10.2023
+###  Публикация: 1670343   (172135) от 20.10.2023
 
-Spiritus Mortis - Spiritism 2008-2017 (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Wind Howled With A Human Voice [00:05:49]
-02. Waiting For The Sun [00:04:59]
-03. Black Night [00:03:37]
-04. Sunrise [00:04:52](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A56D5701DE2EEE0E0F1779BDB5CAFA78868E8F4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669227   (173053) от 15.10.2023
-
-Beastwars - Tyranny of Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <sludge metal, Stoner, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Identity [00:03:20]
-02. Waves [00:05:03]
-03. Emmanuelle [00:03:03]
-04. Dark Child [00:04:20](   Читать дальше...   )Жанр: sludge metal, Stoner, GrungeПродолжительность: 00:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833FF798BF2684CF8487471AE8628DFDA7803B7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669102   (173054) от 15.10.2023
-
-Grant Green - Green Street (1961) 1993, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No.1 Green Street [7:21]
-02. 'Round About Midnight [7:06]
-03. Grant's Dimensions [7:57]
-04. Green with Envy [9:48](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6212024EED50DF2E3453B1186F202F8C659500F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669177   (173055) от 15.10.2023
-
-Anatomy of I - The Los(T) Angered Sessions (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drowning
-02. Day of Wrath
-03. Vitrified Brain Fragments
-04. Banished Messiah(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3E1584AF5C91ADE1AAF93295FA5859047DB5024
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669211   (173056) от 15.10.2023
-
-Mirror for Hisense TV 3.9.1 [En]
+DockView 1.4 [En]
 
 >>Программы для macOS
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отображение экрана для телевизоров Hisense
-Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Hisense. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели Смарт-ТВ Hisense с 2012 и позже. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+DockView - это приложение, которое добавляет предварительный просмотр окон выбранного приложения в macOS Dock. Вам просто нужно подвести мышь к его значку, и появятся эскизы всех его окон. Нажав на нужный, вы сразу перейдете к нему. С помощью эскизов окон вы можете быстро закрывать и уменьшать окна, а также управлять ими.Тип издания: macOS SoftwareРелиз состоялся: 05.07.02023Разработчик: © 2023 MacPlus SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6BB546BFCA4EA61A98D11CED10EA05816047167
+magnet:?xt=urn:btih:FE1A03F8A933F99922C05E829F27BDA564543CEE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669251   (173057) от 15.10.2023
+###  Публикация: 1670318   (172136) от 20.10.2023
 
-Yate 6.17.1 [En]
+Oxymorrons - Melanin Punk (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rapcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Enemy (00:02:24)
+02 - Graveyard Words (00:02:54)
+03 - Look Alive (Netic) (00:03:13)
+04 - Head For The Hills (00:02:52)(   Читать дальше...   )Жанр: RapcoreПродолжительность: 00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B1936BE9F6882F6CB3666BC3A8D11F85BDDC57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670352   (172137) от 20.10.2023
+
+Журнал | Тайны звезд №38 (819) (13 сентября 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Тайны звезд" рассказывает самые правдивые и откровенные факты из жизни российских звезд. Дельные советы по всем сферам жизни: здоровье, финансы, красота, семья, дети, кулинария, путешествия.
+Множество конкурсов с возможностью выиграть ценные призы.Жанр: Популярный журналИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42A17FAEC3861134F64B9F124FDA0F189A909B2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670341   (172138) от 20.10.2023
+
+Sublime Text 4.0 Build 4159 Dev for Mac [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
-Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
-У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.10.2023Разработчик: © 2023 Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
+Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2023Разработчик: © 2006-2021 Sublime HQ Pty LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93BA4587A5D0C43FF7AC02A8CFB406F9C1D0DDF0
+magnet:?xt=urn:btih:E1C04B3F4CD428208281F4D613EE1486873ACB60
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669196   (173058) от 15.10.2023
+###  Публикация: 1670253   (172139) от 20.10.2023
 
-Sahg - Born Demon (2022) Deluxe Edition, 2023, Drakkar Entertainment [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Hard Rock>
+SpamSieve 3.0.1 [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fall into the Fire [00:04:12]
-02. House of Worship [00:04:01]
-03. Born Demon [00:03:44]
-04. Descendants of the Devil [00:04:08](   Читать дальше...   )Жанр: Doom Metal, Hard RockПродолжительность: 00:59:20
+Без преувеличения можно сказать, что SpamSieve - лучший спам-фильтр для Mail.app и многих других почтовых клиентов для macOS. Если ваши почтовые фильтры уже не справляются с непрекращающимся потоком спама, то это плагин несомненно вам поможет.
+Хотя SpamSieve имеет свою огромную базу спам-слов и серверов, все же какое-то время придётся потратить на обучения спам фильтра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2023Разработчик: © 2002–2021 C-Command Software, LLC.Поддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C0B49EDEAE397E372E41A33A30D86DCCA4CEFF6
+magnet:?xt=urn:btih:EADCC24A28D9D4DDCD87777854F32A07BEA461C9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669056   (173059) от 15.10.2023
+###  Публикация: 1670420   (172140) от 20.10.2023
 
-Patriarch - Demonic Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Metal>
+Тамара Крюкова | Автомобильчик «Бип» и другие истории (2017) [MP3, Андрей Святсков]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Blindfolded Nation (04:34)
-02 - Watch Us, Feed Us, Control Us (06:03)
-03 - Deadlocked (04:31)
-04 - Demonic Heart (05:35)(   Читать дальше...   )Жанр: Power, Thrash MetalПродолжительность: 00:48:36
+Тамара Шамильевна Крюкова (родилась 14 октября 1953) – российский автор книг для детей и юношества, лауреат международных премий, член Союза писателей России. Работает в разных жанрах и для читателей разного возраста. Её произведения переведены на языки стран ближнего зарубежья, Центральной и Восточной Европы.
+
+Знаете ли вы, чем занимаются игрушки ваших детей по (   Читать дальше...   )Жанр: Приключения, сказкаИздательство: 1С-ПаблишингПродолжительность: 01:25:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA5DDE364D2F5A4D2102C52D3C26DB0D54415BF1
+magnet:?xt=urn:btih:93372EF691710354C23E7812F0DC08E6F7E90D88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670413   (172141) от 20.10.2023
+
+Devin Townsend - Empath (2019) [FLAC|24/192|image + .cue|Vinyl-Rip]  <Progressive Metal, Rock, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172141.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Castaway (02:31)
+A2. Genesis (06:04)
+A3. Spirits Will Collide (04:39)
+A4. Evermore (05:38)(   Читать дальше...   )Жанр: Progressive Metal, Rock, AmbientПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AFE24B0DCB9D65823CD955A39D14FE5CEAB547D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670257   (172142) от 20.10.2023
+
+EazyDraw 11.2.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172142.jpg" />
+</div>
+
+
+###  Подробнее
+
+EazyDraw от Dekorra Optics – графическая программа, созданная специально для macOS. Она будет полезна при работе над многими проектами, включая чертежи, иллюстрации, иконки, логотипы и стилизованные тексты.Тип издания: macOS SoftwareРелиз состоялся: 19.10.2023Разработчик: © 2022-2023 Dekorra Optics, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A60D47571E05F52D5DDAC67E42B5C2D4C5C4CCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670319   (172143) от 20.10.2023
+
+Debit & Credit Premium 6.2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы ищете приложение для учета личных финансов, которая является максимально удобной, но в, то же время, обладает достаточным количеством функций, то Debit & Credit - это лучший выбор для вас.
+Обычно учет финансов требует времени и усилий. Но теперь с Debit & Credit этот процесс наконец-то стал намного удобней. Просматривайте свои счета в одном месте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2023Разработчик: © 2023 Ivan PavlovПоддерживаемая ОС: macOS 10.14.5+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C201A933D333FFD31C374ABA86BC9D847696D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670391   (172144) от 20.10.2023
+
+Folder-Factory 7.5.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Folders Factory — сделай уникальными свои папочки в OS X.
+«Вам надоели угрюмые одинаково синие папки? С помощь Folders Factory вы сможете легко изменить их цвет, добавить картинки, написать текст или даже сделать оттиск наподобие системных папок».
+Речь идет о замечательном приложении — Folders Factory.
+Единственная и главная функция этой программы — создание уникальных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.10.2023Разработчик: © 2012-2023 TryBestПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A95AED783784036D7A36E1EA1F697DC18B1667F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670300   (172145) от 20.10.2023
+
+Kenny Drew Trio - At The Brewhouse (1992) Storyville [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Your Own Sweet Way [11:43]
+02. It Might as Well Be Spring [11:04]
+03. Hush-A-Bye [13:52]
+04. Bluesology [7:53](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4C2C341AFF46A81131F4852BB7A8D844EDE42C
 ```
 
 

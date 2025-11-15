@@ -1,3 +1,109 @@
+###  Публикация: 1672407   (169330) от 28.10.2023
+
+Артур Беркут - Стритрейсер (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стритрейсер [00:03:35]
+02. Разорви [00:03:57]
+03. В плену пустоты [00:04:09]
+04. Последний день [00:04:18](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00E36E77929C9E7F34465B5A6099BAD9014E424
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596580   (169358) от 11.12.2022
+
+Anderdog - Kelgoma (2022) [FLAC|Lossless|WEB-DL|tracks] <Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ineved [00:04:17]
+02. Moksha [00:03:50]
+03. Setmoshi [00:04:19]
+04. Pinae [00:03:50](   Читать дальше...   )Жанр: Experimental RockПродолжительность: 00:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF83E50F662B434EFF3B1BEC12EB85553CBE4FA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512381   (169400) от 07.12.2021
+
+Forces United - 2 Studio Albums (2020-2021) 3xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169400.jpg" />
+</div>
+
+
+###  Подробнее
+
+2020 - Предания о преданных и предателях
+2021 - Предания о преданных и предателях - 2Жанр: Heavy MetalПродолжительность: 02:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C80B011C589A041687472721BB626881342B72F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672426   (169435) от 28.10.2023
+
+Asper X - Для тех, кто молчит (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Abstract Hip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Патрон [00:04:54]
+02. Скоро узнаешь [00:03:03]
+03. Прикосноверие [00:02:49]
+04. Monsta [00:02:42](   Читать дальше...   )Жанр: Alternative Rock, Abstract Hip-HopПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08ED7D1AF15CFDCA51C07D20B3A00EB65834FCD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515508   (169475) от 07.12.2021
 
 Forces United - Hits From Metal Musicals (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -589,114 +695,6 @@ magnet:?xt=urn:btih:C6BAE301F09D057F4D54790E7BA8C16C07FA414B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01B8256F295D9C45EABBFF7FF0D89B1C6B1FF8F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669278   (172861) от 16.10.2023
-
-Обратный прикус - Сукирп Йынтарбо (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Слушай [00:02:39]
-02. Солнце [00:03:28]
-03. Сексуальная девица [00:03:14]
-04. Рок-н-ролл [00:03:32](   Читать дальше...   )Жанр: RockПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EAC91981D7823B8B965B8917CC5F3A8EC059628
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669258   (172863) от 16.10.2023
-
-Время альбиносов - Продано (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3D квадрат [00:05:05]
-02. Продано [00:03:47]
-03. Наглое время [00:03:36]
-04. Снега - альбиносы [00:04:03](   Читать дальше...   )Жанр: Alt RockПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E6D2E43838FCBD42A9DE0254BCDF844F5BAC5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669150   (173028) от 15.10.2023
-
-Коrsика (Корсика) - Мания (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алиса, падай [00:03:19]
-02. Ангел тьмы [00:05:32]
-03. На пороге рая [00:04:24]
-04. В игре [00:03:16](   Читать дальше...   )Жанр: RockПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C789BA75486F1E303A286871CE09C235E001DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668898   (173038) от 15.10.2023
-
-Balga - ...By The Sea (2023) [FLAC|Lossless|image + .cue] <Symphonic Epic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.		Frodos Dreme (Prologue)
-02.		...by The Sea (Part I)
-03.		At The Stone Of Erech They Shall Stand Again
-04.		...By The Sea (Part II)(   Читать дальше...   )Жанр: Symphonic Epic Black MetalПродолжительность: 00:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34EA32659CFE8B56833197924A39257F2C9879FB
 ```
 
 

@@ -1,692 +1,660 @@
-###  Публикация: 1731896   (107513) от 23.06.2024
+###  Публикация: 1735747   (106844) от 09.07.2024
 
-Sound Momentum - Blue Groove (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+Rawa Blues Band - Night and Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106844.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Short Is Fine (5:33)
-02. Be SeriousOnce (4:19)
-03. Back From Holidays (4:00)
-04. Mt Queen (4:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:43
+01. Down Town Train (4:04)
+02. Zelezniok Blues (4:15)
+03. Moja Mila (5:31)
+04. Ich habe einen Plan (5:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E598C4B12823DA1A63790704BD6529EAD7E7FC4
+magnet:?xt=urn:btih:510A53024F93E45898809391E155C687A641FA5E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731859   (107514) от 23.06.2024
+###  Публикация: 1735657   (106845) от 09.07.2024
 
-My Diligence - 5 Albums (2014-2024) [FLAC|Lossless|WEB-DL|tracks] <heavy psych, posthardcore, powerfull rock, stoner rock>
+DS Caw - Nothing To Fight For (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106845.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-My Diligence - 2014 - Who Killed the Driver
-My Diligence - 2015 - My Diligence
-My Diligence - 2018 - Sun Rose(   Читать дальше...   )Жанр: heavy psych, posthardcore, powerfull rock, stoner rockПродолжительность: 5 CD, 03:06:12
+01. Endless Rain (3:46)
+02. Nothing To Fight For (3:11)
+03. Static On The Radio (3:22)
+04. Demon In My Pocket (3:28)(   Читать дальше...   )Жанр: Classic Rock, BluesПродолжительность: 00:52:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83D92211EB18ED18D79EC95315F9A60B06865E2F
+magnet:?xt=urn:btih:F4AD9B80B95C7E4B6E661B4E265CDD5E66BAB13A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731881   (107515) от 23.06.2024
+###  Публикация: 1735649   (106846) от 09.07.2024
 
-Max Esquivel - Formas (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+George Shearing Quintet And Orchestra - White Satin & Black Satin (1957, 1960) 1991, Capitol Records [FLAC|Lossless|tracks + .cue] <Easy Listening, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Name Is Love [2:56]
+02. Dream [2:30]
+03. Laura [2:56]
+04. There's A Small Hotel [2:56](   Читать дальше...   )Жанр: Easy Listening, Cool, Piano JazzПродолжительность: 01:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A123BBE400E28E17CD099F09F921F5F930B994B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735678   (106847) от 09.07.2024
+
+Экзорцизм / The Exorcism (2024) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актер отправляется на съемки хоррора, где ему предстоит сыграть священника, которым овладел дьявол. Вживаться в роль долго не пришлось, так как с ним начали взаправду происходить странные вещи. Похоже, дьявол или же некие потусторонние силы все же овладевают его разумом. Бороться с искушением или поддаться соблазну? Выбор крайне сложный, если учесть, что на кону (   Читать дальше...   )Производство: США /  Miramax, Outerbanks EntertainmentЖанр: ужасыРежиссер: Джошуа Джон МиллерАктеры: Рассел Кроу, Райан Симпкинс, Сэм Уортингтон, Хлоя Бейли, Адам Голдберг, Адриан Пасдар, Дэвид Хайд Пирс, Трэйси Боннер, Марсена Линетт, Джошуа Джон МиллерПеревод: Дублированный (Велес) звук с TSЯзык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:36:14Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735740   (106848) от 09.07.2024
+
+Mike Cahen - Bottle Neck Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106848.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wiköl (9:12)
-02. Abril (4:37)
-03. Tres Hermanos (5:28)
-04. Cafezinho (5:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:00
+01. Stuck Here Waiting (2:56)
+02. Cocaine Blues (3:42)
+03. Keep The Options Open (3:51)
+04. The Work Song Featuring Jane Henley (2:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4446B56085CE20A3A9DF04CEAA6260B0B9BEB822
+magnet:?xt=urn:btih:14300EC4941EBCB6E11EDE74B181216AB6D37161
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731939   (107516) от 23.06.2024
+###  Публикация: 1735743   (106849) от 09.07.2024
 
-Sheppard - Zora (Zopa) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Australian indie pop>
+Paul Benjaman Band - My Bad Side Wants a Good Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106849.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Zora [00:01:24]
-02. Daylight [00:03:14]
-03. Good Time [00:02:52]
-04. Got To Be Love [00:03:48](   Читать дальше...   )Жанр: Australian indie popПродолжительность: 00:47:54
+01. Undercover of Night (3:11)
+02. Hot Dice (3:24)
+03. My Bad Side Wants a Good Time (2:41)
+04. Old Rock House (4:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E87AFC540CEB4338AE41B1406FF626C877D0996E
+magnet:?xt=urn:btih:EA2EBB03F2C714B27E70A25DDCDD377A8307F0FF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732023   (107517) от 23.06.2024
+###  Публикация: 1735777   (106850) от 09.07.2024
 
-Antropofagus - No Waste of Flesh (1999) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+Егор Куликов | Охайат (2024) [MP3, Станислав ЭВЕНТОВ]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106850.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Welcome To My Slaughterhouse
-02. Love You In Decay
-03. Recollections Of Human Habits
-04. Thick Putrefaction Stink(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:41:01
+Миссионерская экспедиция в джунгли Бразилии показывает истинное лицо каждого из ее участников. Насколько крепка вера в священника? Как малодушие доводит до смерти? И на что готов пойти тихоня-переводчик, чтобы остановиться зло?Жанр: Мистика, попаданцыИздательство: Пересадочная станцияПродолжительность: 09:32:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:668B41EA21484E834010C6013913CEECE56AF376
+magnet:?xt=urn:btih:65453B05ECEFC2CA45E68CA85B9057419F1E1729
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731895   (107518) от 23.06.2024
+###  Публикация: 1735686   (106851) от 09.07.2024
 
-Rondelle55 - Qualitative Dissertation Methodology (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+Glary Disk Cleaner 6.0.1.13 [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106851.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Happy Mother's Day Mums (2:04)
-02. Lucy Hong Nhung Velvet (3:03)
-03. Qualitative Dissertation Methodology (3:06)
-04. The Birds Sing to Yen (3:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:07
+Glary Disk Cleaner - инструмент от компании Glarysoft для очистки операционной системы от различного мусора. При помощи Glary Disk Cleaner можно существенно освободить место на жестком диске посредством удаления временных файлов системы, кэша различных приложений и утилит, кэша web-браузеров, файлов дампа памяти, очистки корзины и многое другое.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB90E6E446A68546394E78DA365543E5933FA25F
+magnet:?xt=urn:btih:0A1A2091D1930E156A7DD4E7796B6EFFAA8D011B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732086   (107519) от 23.06.2024
+###  Публикация: 1735769   (106852) от 09.07.2024
 
-V.A. - Split Torso Trauma (2011) Split [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+Экзорцизм / The Exorcism (2024) WEB-DLRip [H.264] [звук с TS]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106852.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Antropofagus - Consumed By A Lacerating Desire
-02. Antropofagus - Eternity To Devour
-03. Putridity - Zombie Oral Sex
-04. Putridity - Necropedophile (Cannibal Corpse cover)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:36:58
+Актер отправляется на съемки хоррора, где ему предстоит сыграть священника, которым овладел дьявол. Вживаться в роль долго не пришлось, так как с ним начали взаправду происходить странные вещи. Похоже, дьявол или же некие потусторонние силы все же овладевают его разумом. Бороться с искушением или поддаться соблазну? Выбор крайне сложный, если учесть, что на кону (   Читать дальше...   )Производство: США /  Miramax, Outerbanks EntertainmentЖанр: ужасыРежиссер: Джошуа Джон МиллерАктеры: Рассел Кроу, Райан Симпкинс, Сэм Уортингтон, Хлоя Бейли, Адам Голдберг, Адриан Пасдар, Дэвид Хайд Пирс, Трэйси Боннер, Марсена Линетт, Джошуа Джон МиллерПеревод: Дублированный (Велес) звук с TSЯзык озвучки: Русский, УкраинскийСубтитры: АнглийскиеПродолжительность: 01:35:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36980D9E0DCA99B620290F69FF653EE13AA84939
+magnet:?xt=urn:btih:CF6ADE477534A22C664401D63A537F2DAC7F862D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731852   (107520) от 23.06.2024
+###  Публикация: 1735629   (106853) от 09.07.2024
 
-Kinkfolk - Kinkfolk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Popcorn (4:21)
-02. Not Bad (4:38)
-03. Stee-Wee (4:52)
-04. I'm Not Sure (4:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7AA7DD419CD752B738D628B4FD09A7C2C20C806
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731930   (107521) от 23.06.2024
-
-VA - DJ Hits '98 Volume 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doctor Delite - Let The Music Play (Radio Mix)
-02. Sweetbox - Another Minute (Album version)
-03. Ultimate KAOS - Casanova (7 mix)
-04. Express Of Sound feat. Afrika Bambaataa - Funky Weekend (Radio Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30CB76CE726F0AB1DD946EFEB3D6CC9598BD89A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732171   (107522) от 23.06.2024
-
-Snowy White - Unfinished Business (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unfinished Business [00:06:19]
-02. Evening Blues [00:03:33]
-03. Alone with Me [00:05:35]
-04. Overland and See [00:04:54](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807020DA0115E6034181F819F4ED48624346F260
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732116   (107523) от 23.06.2024
-
-Mountainroad DSP - Lumina Delay 2.0.0.289 VST 3, AAX (x64) RePack by MOCHA [En]
+TapinRadio 2.15.97.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106853.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Lumina Delay - это первая в мире полностью визуальная и захватывающая (7.1.4) задержка, которая выходит за рамки ограничений стандартных задержек.
-Вместо традиционных ручек Lumina Delay использует интуитивно понятную функцию click-and-drag, позволяющую пользователям создавать точки задержки на сетке и легко настраивать параметры.
-Благодаря регулированию громкости, (   Читать дальше...   )Язык интерфейса: Английский
+TapinRadio - интернет радио от компании RaimerSoft (разработчика известной программы RarmaRadio) предоставляет своим пользователям широчайший ассортимент радиостанций. Данная программа дает возможность прослушивать 15 тысяч радиостанций разного направления и стиля музыки.
+Для более удобного поиска любимых станций можно создавать свой список часто прослушиваемых радиостанций, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC721A292AB0E78B38EA6B5D8A757500A7A2DD00
+magnet:?xt=urn:btih:663BC6E1F394AA3DBE611A031144C6B4367D0B8D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732039   (107524) от 23.06.2024
+###  Публикация: 1735744   (106854) от 09.07.2024
 
-Within Temptation - Worlds Collide Tour (2024) Live in Amsterdam [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+Валерий Листратов | В интересах Рода (2024) [MP3, Илья Кочетков]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106854.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Our Solemn Hour (Live in Amsterdam) (5:39)
-02. Faster (Live in Amsterdam) (4:30)
-03. Paradise (What About Us?) (Live in Amsterdam) (5:25)
-04. Stand My Ground (Live in Amsterdam) (5:01)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:10:43
+Первая книга цикла «В интересах Рода»!
+
+Очнулся молодым и в другом мире? Молодец! Мир магический? Повезло! Сам одарен? Да это ж просто праздник какой-то! Только памяти о жизни в этом мире у него нет. Вокруг тайга, свирепые волки, и он уже почти добыча. Да и в городах на него и его семью открыта охота. Но он еще посмотрит, кого из охотников оставить в живых. Ведь (   Читать дальше...   )Жанр: Боевое фэнтези, Приключенческое фэнтезиИздательство: Аудиокнига (АСТ)Продолжительность: 11:19:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E7C9DAB6659C94E529FE6895AF9864F4015EAA6
+magnet:?xt=urn:btih:826BF3A779B639A220B79929C155CADDF78D9092
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732061   (107525) от 23.06.2024
+###  Публикация: 1735808   (106855) от 09.07.2024
 
-Seven Spires - A Fortress Called Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal>
+Subtitle Edit 4.0.7 + Portable [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106855.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – A Fortress Called Home
-02 – Songs Upon Wine-Stained Tongues
-03 – Almosttown
-04 – Impossible Tower(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:04:07
+Subtitle Edit - редактор субтитров. При помощи этой программы вы сможете синхронизировать субтитры с видео, а также создавать новые субтитры. Subtitle Edit позволяет импортировать субтитры (в т.ч. - OCR), объединять и разбивать их на несколько фрагментов, настраивать их кодировку и частоту кадров, переводить их с одного языка на другой и многое другое. Пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D178CDC9B2C20AAE7CD8A8934A372AEA97FABF7
+magnet:?xt=urn:btih:93FB4BED0B7E3ACE111AAD8A40E015D383129B65
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731540   (107526) от 23.06.2024
+###  Публикация: 1735813   (106856) от 09.07.2024
 
-Cavalera Conspiracy - Schizophrenia (1987) Re-Recorded, 2024, Nuclear Blast[FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+Balabolka 2.15.0.873 + Portable [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (Re-Recorded) (0:32)
-02. From the Past Comes the Storms (Re-Recorded) (4:54)
-03. To the Wall (Re-Recorded) (6:12)
-04. Escape to the Void (Re-Recorded) (4:41)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:43:58
+Балаболка (Balabolka) - программа предназначена для чтения вслух текстовых файлов. Для воспроизведения звуков человеческого голоса могут использоваться любые речевые синтезаторы, установленные на компьютере.
+Воспроизведение речи можно контролировать при помощи стандартных кнопок, подобных тем, что присутствуют в любой мультимедийной программе ("воспроизвести/приостановить/остановить"). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9283189B28E4CF39EB4A4684CDB591A040C70A7C
+magnet:?xt=urn:btih:14B72887E704BECF134EBA44B6910DBC2CBD6983
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732090   (107527) от 23.06.2024
+###  Публикация: 1735726   (106857) от 09.07.2024
 
-Чудо техники с Сергеем Малозёмовым (23.06.2024) WEBRip [H.264/720p]
+PDF Shaper Premium / Ultimate 14.3 RePack (& Portable) by TryRooM [Ru/En]
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106857.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Элетросамокаты: есть ли разница между дешевыми и дорогими моделями и как улучшить этот индивидуальный вид транспорта, чтобы передвигаться на нем было и удобно, и безопасно? Что выгоднее — купить свой или брать напрокат?
-Как спрятать холодильник или, например, духовой шкаф на кухне, чтобы они не портили фасад мебели, насколько удобна в быту встраиваемая техника, с (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:09
+Программа для работы с PDF-документами, которая предоставляет коллекцию инструментов и утилит для модификации и оптимизации PDF-файлов и их содержимого. Благодаря этой программе вы сможете легко разделять и объединять PDF-документы, извлекать тексты и графику из PDF-файлов, шифровать/расшифровывать документ при помощи пароля, изменять права пользователя, конвертировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0ED4D82186AF0FA0AAD4BACA7184D00726A8B9BE
+magnet:?xt=urn:btih:C044D4ABB725350B2D3219EB377FA6B6028F915B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732021   (107528) от 23.06.2024
+###  Публикация: 1735805   (106858) от 09.07.2024
 
-S.O.D. - Stormtroopers of Death (Anthrax) - Studio Albums (2 releases) (1985-1999) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover/Hardcore Punk>
+Kdenlive 24.05.2 + Standalone [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106858.jpg" />
 </div>
 
 
 ###  Подробнее
 
-S.O.D. (Stormtroopers of Death) — музыкальная кроссовер-трэш группа, сформированная в Нью-Йорке в 1985 году. Группа считается одним из первых кроссовер-трэш коллективов, смешавших в своём творчестве хардкор-панк и трэш-метал.1985 - Speak English or Die
-1999 - Bigger Than The DevilЖанр: Thrash Metal/Crossover/Hardcore PunkПродолжительность: 01:26:38
+Kdenlive - бесплатный нелинейный видеоредактор, который удовлетворяет большинство задач пользователя, от базового редактирования видео до профессиональной работы. Присутствует возможность использовать любые аудио/видео форматы (например QuickTime, AVI, WMV, MPEG и пр.), поддерживается 4:3 и 16:9 соотношение сторон для PAL, NTSC и различных HD стандартов, в том числе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A833621B679ADD999E5879420C289AA8C7C8FFE8
+magnet:?xt=urn:btih:C1D62CC56DE355D01EAE26B7BB6160FF263F1B68
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732159   (107529) от 23.06.2024
+###  Публикация: 1735389   (106859) от 09.07.2024
 
-Lonely Fire - The Last Ride (2024) [FLAC|Lossless|WEB-DL|tracks] <AOR>
+Drupi - The Best of Drupi (2007) [WavPack|Lossless|image + .cue] <Pop>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106859.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Welcome To The Future
-02. Don't Break My Window
-03. Victory
-04. Casual Encounter(   Читать дальше...   )Жанр: AORПродолжительность: 00:41:51
+01		Soli	4:39
+02		Piccola E Fragile	3:57
+03		Ridammi Il Sole	4:43
+04		Vado Via	4:45(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80A1D4F997D4751CF119A62CF3F2546795668E47
+magnet:?xt=urn:btih:A6C560B6D08204BF60F9DAEE2FA9720E06BB8F71
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731923   (107530) от 23.06.2024
+###  Публикация: 1735677   (106860) от 09.07.2024
 
-Kat Hawley - X•IX•VIII (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocfl Jazz>
+Байкеры / The Bikeriders (2023) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106860.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Keep On, Keepin' On (4:00)
-02. No Chill (3:56)
-03. Love Me Tonight (A Lovers Duet) (4:13)
-04. Can We Dance (3:50)(   Читать дальше...   )Жанр: Contemporary Jazz, Vocfl JazzПродолжительность: 00:39:40
+1960-е. Мотоклуб, в котором собираются местные аутсайдеры, постепенно превращается в сборище бандитов.Производство: США / 20th Century Studios, Regency Enterprises, Regency TelevisionЖанр: драма, криминалРежиссер: Джефф НиколсАктеры: Джоди Комер, Остин Батлер, Том Харди, Майкл Шеннон, Майк Фейст, Бойд Холбрук, Норман Ридус, Дэймон Херриман, Бо Напп, Эмори КоэнПеревод: Дублированный (Movie Dubbing / Bravo Records Georgia) звук с TSЯзык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:57:14Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34F90499CA89AF778EECECAFE8823E6D2C71BE45
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731886   (107531) от 23.06.2024
+###  Публикация: 1735713   (106861) от 09.07.2024
 
-NeoSwing - The Groovy Gatsby (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+VA - Chillout & Lounge Music Summer Vibes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In the Club (3:49)
-02. Spotlight Shines (3:49)
-03. Sisters Forever (3:16)
-04. Two of a Kind (3:16)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:37:06
+01. Crossing Colors - Animated Expressions (4:20)
+02. Bio Logical Theory - Sunny Groove (4:25)
+03. Klasse XXI - Shared Aspirations (4:20)
+04. Vostok Divers - Apparent Nonchalance (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7855D19F255B4C4EA1912412BB7FCB8C891AC6BA
+magnet:?xt=urn:btih:86A0B314F8969E5CA061FB27DFBF60F5FB59250B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731782   (107532) от 23.06.2024
+###  Публикация: 1735750   (106862) от 09.07.2024
 
-Aires - Останусь собой (2024) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+Николай Чуковский | Хочу всё знать! (Выпуск № 7). Великие мореплаватели. Крузенштерн и Лисянский (2007) [MP3, Денис Некрасов]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106862.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 16 лет [00:03:43]
-02. Веселье [00:02:40]
-03. По новой [00:03:06]
-04. Останусь собой [00:02:45](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:26:53
+Николай Корнеевич Чуковский (1904–1965) – русский писатель, переводчик прозы и поэзии, сын писателя Корнея Чуковского.
+Отважные русские капитаны сделали немало замечательных открытий. Они исследовали не только Северные моря и Аляску – они обошли вокруг света, и в их экспедициях было множество захватывающих приключений. Книга Николая Корнеевича Чуковского рассказывает (   Читать дальше...   )Жанр: Историческая литература, биографияИздательство: Элитайл, СиДиКомПродолжительность: 05:28:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F0E18E87BE5F03063B4AAECB8BC473850840993
+magnet:?xt=urn:btih:87C046E143A25B34B65788F673A22E0DDAF86ECA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732054   (107533) от 23.06.2024
+###  Публикация: 1735680   (106863) от 09.07.2024
 
-Сатисъ | Подвиг христиан последних времен. Из творений святителя Игнатия (Брянчанинова) (2011) [PDF, FB2, EPUB, MOBI, TXT]
+Байкеры / The Bikeriders (2023) WEB-DLRip [звук с TS] [AD]
 
->>Разное (категория книг)
->>Религиозная литература
+>>
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге, составленной по творениям святителя Игнатия (Брянчанинова) раскрывается православное учение о смысле жизни человека, о его небесном призвании и о путях подвижничества христиан последних времен.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+1960-е. Мотоклуб, в котором собираются местные аутсайдеры, постепенно превращается в сборище бандитов.Производство: США / 20th Century Studios, Regency Enterprises, Regency TelevisionЖанр: драма, криминалРежиссер: Джефф НиколсАктеры: Джоди Комер, Остин Батлер, Том Харди, Майкл Шеннон, Майк Фейст, Бойд Холбрук, Норман Ридус, Дэймон Херриман, Бо Напп, Эмори КоэнПеревод: Дублированный (Movie Dubbing / Bravo Records Georgia) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:57:14Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71C7DDC093E552F807F62554215791A4FF79EBBA
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731889   (107534) от 23.06.2024
+###  Публикация: 1735748   (106864) от 09.07.2024
 
-Omolewa Osain - Belcugazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+Николай Чуковский | Хочу всё знать! (Выпуск № 6). Великие мореплаватели. Джеймс Кук (2007) [MP3, Денис Некрасов]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Welcome (5:18)
-02. Dougla (8:24)
-03. Four (6:44)
-04. Armando's (4:33)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:10:50
+Серия/Цикл: Хочу всё знать!
+Николай Корнеевич Чуковский (1904–1965) – русский писатель, переводчик прозы и поэзии, сын писателя Корнея Чуковского.
+Как были открыты Австралия и Таити?
+Как исчезали с карты земли белые пятна?(   Читать дальше...   )Жанр: Историческая литература, биографияИздательство: Элитайл, СиДиКомПродолжительность: 04:13:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:717A60B0FAD292E13334C9DB44DBA9B1FAE5E259
+magnet:?xt=urn:btih:14C901A8BD2068249D2A3F9A48DA0FAAF5894637
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731913   (107535) от 23.06.2024
+###  Публикация: 1735515   (106865) от 09.07.2024
 
-Cafe Rex Paris - Summer in Paris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+TeknoVore - Caerdroia (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, Hard Techno, Industrial>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Soulful Blues (4:51)
-02. Nightfall in New Orleans (2:04)
-03. Street Jam (2:51)
-04. Sultry Serenade (3:11)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:27:27
+01. Lament [00:04:05]
+02. Synthesize [00:04:50]
+03. Citadel [00:04:00]
+04. Woodchipper [00:05:14](   Читать дальше...   )Жанр: Dark Electro, Hard Techno, IndustrialПродолжительность: 00:45:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C06D31C7D0EA52EE52DB27AAB0EE96C9EEB13EF
+magnet:?xt=urn:btih:F06E5AB30E863CA78B028F86CB9392BCB9831901
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732087   (107536) от 23.06.2024
+###  Публикация: 1735388   (106866) от 09.07.2024
 
-Первая передача на НТВ. Автомобильная передача (23.06.2024) WEBRip [H.264/720p]
+Дмитрий Колдун - Ночной Пилот (2012) [WavPack|Lossless|image + .cue] <Pop>
 
->>Документалистика и Телепередачи
->>За рулем
+>>Pop
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106866.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Талант переобуваться: владелец шиномонтажа не возвращает клиенту летние шины после хранения. Как найти управу на ушлого бизнесмена, тайком продавшего ваш комплект резины?
- Снятие с учета угнанного авто: что даст новая норма в законе владельцам ТС?
- Правила мойки автомобиля на даче. Чем обработать машину и зачем покупать отдельное ведро и ершик?
- Месть, зависть или хайп? (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:59
+01. Ночной Пилот
+ 02. В Комнате Пустой
+ 03. Корабли
+ 04. Не Моя Вина(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D06CD4988872856859B3A4D9D481DC40C895D130
+magnet:?xt=urn:btih:86FD6DDD2C3EB661D78A1785A101F82082C0EA12
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731849   (107537) от 23.06.2024
+###  Публикация: 1735775   (106867) от 09.07.2024
 
-Hoot & Annie - Inspector Penny (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Vocal>
+Тайна Кара-Тау / Тайна чёрных гор (1932) WEBRip [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Undead Love (2:43)
-02. It's You (2:56)
-03. He's My Baby (4:52)
-04. Bossa Penny (3:11)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:37:14
+Начальник небольшой железнодорожной станции, которая находилась в степях Казахстана, нашел каучуконосное растение — хандриллу. С его помощью можно было бы добывать резину. Чтобы исследовать окрестности станции, в Казахстан прислали группу геологов во главе с профессором Шахровым, который всеми правдами и неправдами настойчиво будет доказывать отсутствие каучуконосов (   Читать дальше...   )Производство: СССР / ВостоккиноЖанр: социальная драма, немое киноРежиссер: Александр ДубровскийАктеры: Владимир Гардин, Николай Кутузов, Хаким Давлетбеков, Евгения Пырялова, Борис АзаровСубтитры: казахские латиница, русские (интертитры)Продолжительность: 01:16:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9345BBCBEBA7A74675A536A8EE0C41DF424B4B93
+magnet:?xt=urn:btih:1D1C54CBEE8DEF317E39A0A3F348973C8B9449A1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731901   (107538) от 23.06.2024
+###  Публикация: 1735697   (106868) от 09.07.2024
 
-Thomas Greenberg - Quirky Retro & Vintage (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+Simone Kopmajer - Hope (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106868.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Speaking Easy (1:34)
-02. Summertime Swing (1:25)
-03. Handbag Chic (1:32)
-04. Gift Of The Gab (1:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:20:38
+01. Pick Yourself Up
+02. Black Tattoo
+03. Careless Whisper
+04. Little Green Apples(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63CBFCD31CC0238F5BA3EE4802986F0B65573722
+magnet:?xt=urn:btih:33D2F260D71A38361AB0D89B9B868090F424E465
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735714   (106869) от 09.07.2024
+
+До свидания, дети / Au revoir les enfants (1987) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на воспоминаниях Луи Маля, которому шёл двенадцатый год, и он учился в католическом колледже. Зимой начала 1944 года он стал свидетелем рейда гестапо, в результате которого трое еврейских учеников и один учитель были отправлены в Освенцим (все они по прибытии были отправлены в газовые камеры), а директор был арестован (он был отправлен в Маутхаузен, (   Читать дальше...   )Производство: Франция, Италия, Германия (ФРГ) / Centre National de la Cinématographie (CNC), Images Investissements, Stella FilmЖанр: драма, военныйРежиссер: Луи МалльАктеры: Гаспар Манесс, Рафаэль Фейтё, Франсин Расетт, Станислас Карре Де Мальбер, Ирен Жакоб, Филипп Морье-Жану, Франсуа Берлеан, Франсуа Негре, Петер Фиц, Паскаль Риве, Бенуа АнриетПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F44DB6E4F272286CDF0FCBAEE97C77DFA67AAA
 ```
 
 

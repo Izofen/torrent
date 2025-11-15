@@ -1,3 +1,30 @@
+###  Публикация: 1086885   (148206) от 26.12.2016
+
+VA - Acoustic Covers of Love Songs (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Josh Franklin – When We Were Young
+ 02. Portland UK – Heart’s on Fire
+ 03. Meg Birch – Heaven
+ 04. Karizma Duo – Photograph(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496F8FB1F5079A6C4DF1644AB97235EB0555F79F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519395   (148223) от 24.12.2021
 
 VA - Music for Speed (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - German Top 100 Single Charts 31.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59F1C9528934CB0B072C3F5B2822144A19095F92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347703   (148759) от 24.12.2019
-
-VA - Panorama Electro Sound (2019) [MP3|320 Kbps] <Synthwave, Electronic, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148759.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hante. - Waiting For A Hurricane
-002. Nima Gorji - A Better World
-003. Stilz - Anomaly
-004. Clock And Dagger - Planet X(   Читать дальше...   )Жанр: Synthwave, Electronic, DanceПродолжительность: 12:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C59B62E2734D3088D3B5F155616A0C012917D4
 ```
 
 

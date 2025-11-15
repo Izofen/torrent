@@ -1,699 +1,650 @@
-###  Публикация: 1729890   (107981) от 13.06.2024
+###  Публикация: 1733139   (107312) от 28.06.2024
 
-Umbra Vitae - Light Of Death (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metalcore, Death Metal, Chaotic Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Leave Of Absence (00:04:24)
-02 - Belief Is Obsolete (00:02:16)
-03 - Clear Cutter (00:01:25)
-04 - Anti-Spirit Machine (00:03:40)(   Читать дальше...   )Жанр: Metalcore, Death Metal, Chaotic HardcoreПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5581CB717C270543625D2249F753B757A983091
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729782   (107982) от 13.06.2024
-
-Hour of Penance - Sedition (2012) [FLAC|Lossless|image + .cue] <Technical, Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transubstantiatio
-02. Enlightened Submission
-03. Decimate the Ancestry of the Only God
-04. Fall of the Servants(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2ED68414967773053488FCF6F78C9195F00BE6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729754   (107983) от 13.06.2024
-
-Hour of Penance - Paradogma (2010) [FLAC|Lossless|image + .cue] <Technical, Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradogma
-02. Thousands of Christs
-03. The Woeful Eucharisty
-04. Malevolence of the Righteous(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934BF875B24F337A1C1D52B20683D267086AF1B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729749   (107984) от 13.06.2024
-
-Grand Slam - Wheel Of Fortune (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Goes My Heart
-02. Starcrossed Lovers
-03. Come Together (In Harlem)
-04. Trail Of Tears(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF60F55DDD2E75E706B586BC86FC01DC12B8D92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729924   (107985) от 13.06.2024
-
-Wildstreet - IV (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heroes (3:10)
-02. Sick to Death (4:27)
-03. Won't Be Apart (3:58)
-04. Come Down (4:04)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9338A2ACA68C52BB9B53ED6EA8CB2F5F0E5A6E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729737   (107986) от 13.06.2024
-
-Blitz - Kicking Up A Storm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break Neck (3:12)
-02. Shell Shock (3:15)
-03. C.O.G (3:04)
-04. Keep Moving On (3:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA5DB3763A11C73193CB6D7AA7663BA275B4AB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729935   (107987) от 13.06.2024
-
-Самуил Маршак | На улице Бассейной (1996) [MP3, Олег Басилашвили и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самуил Яковлевич Маршак (1887–1964) советский поэт, драматург, переводчик, литературный критик.
-Самые любимые стихи Самуила Яковлевича Маршака в исполнении знаменитых актеров Олега Басилашвили Николая Литвинова, Зои Бокаревой и др.
-
- Самуил Маршак на NoNaMe ClubЖанр: Русская литература для детей, классика, стихи, сказкаИздательство: Inner Circle RecordsПродолжительность: 00:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE713456B163352F9C4E5179CFFD4A4E9D0024FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729925   (107988) от 13.06.2024
-
-The Dead Daisies - Resurrected, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mine All Mine (3:33)
-02. How Does It Feel (3:09)
-03. Last Time I Saw The Sun (4:13)
-04. Mainline (3:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE1F0D13B221DE459919371132A539FFEA78ADE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729972   (107989) от 13.06.2024
-
-Ron Jameson Project - CrossRoad Blues: Rock'n'Roll for the King of Kings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got to Get in Touch (2:41)
-02. Prodigal Son (4:50)
-03. Don't Be Dismayed (MD) (5:37)
-04. Walkin' Shoes (2:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C8C24A65B34F1ED9A153905EE8F0BBC5A3EAA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729812   (107990) от 13.06.2024
-
-Hypersonic - Existentia (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The First Sound of Life (Principium)
-02. The Eyes of the Wolf
-03. As an Angel
-04. Blind Sins(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A920003590971BD54B731444C1B7A7A7BA2BC6B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729887   (107991) от 13.06.2024
-
-Velvet Meadow - Never Want To Leave My Head (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <psychedeleic pop, indie rock, fadeaway, Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - If She Really Loved Me (00:04:40)
-02 - Slow Down (00:03:39)
-03 - My Reasons Why (00:05:03)
-04 - IVe Come To Realize (00:05:12)(   Читать дальше...   )Жанр: psychedeleic pop, indie rock, fadeaway, Space RockПродолжительность: 01:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2DC8C0247DB941D89C810DEB0CE838D4A9C036
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729920   (107992) от 13.06.2024
-
-Nestor (Néstor) - Teenage Rebel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Law Of Jante (feat. Freya Miller) (1:27)
-02. We Come Alive (3:29)
-03. Teenage Rebel (4:32)
-04. Last To Know (4:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241DABD4B532719039C99F6B964B114BB527C1A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729882   (107993) от 13.06.2024
-
-Velvet Meadow - Velvet Meadow (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <psychedeleic, indie rock, Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cant Be Late (00:05:18)
-02 - Spring Song (00:04:55)
-03 - I Dont Like Money Anyways (00:03:48)
-04 - Colours (00:03:36)(   Читать дальше...   )Жанр: psychedeleic pop, indie rock, fadeaway, Space RockПродолжительность: 00:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8A8F8CCE1D2628FF4F26370686CB51B70E23BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729959   (107994) от 13.06.2024
-
-Olshanoe - Как Велик И Печален Мир (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk Metal, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107994.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Зима Р-254
-A2 - Лён
-A3 - Плач Нау
-B1 - Последнее Лето Детства(   Читать дальше...   )Жанр: Atmospheric Black Metal, Folk Metal, AmbientПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E7E2FE5A7C240A4962C3D616519224A4BE9F63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729739   (107995) от 13.06.2024
-
-Gustaf Westin featuring AGFF - Piece by Piece (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pressure (4:01)
-02. Messed Up Mind (4:42)
-03. Paria (3:37)
-04. Cotton Bear Road (4:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1322660EE3CB12F4DF7801A4401C1F6601413873
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729741   (107996) от 13.06.2024
-
-Kickhunter - Greatest Kicks (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Emotions (Remix 2024) (3:31)
-02. Mine All Mine (Remastered 2024) (4:00)
-03. This Summer (3:48)
-04. To Hell and Back Again (Remix 2024) (3:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08C4DA14E0D6EE5FD8C42D876271004C4CC5487
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729933   (107997) от 13.06.2024
-
-Ensiferum - Iron (2004) Remastered, 2014, Blood Music[FLAC|24/192|image + .cue|Vinyl-Rip]  <Epic Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107997.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ferrum Aeternum
-A2 Iron
-A3 Sword Chant
-A4 Mourning Heart - Interlude(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7454BBFA23C158F5DA11FF22A25A741672747478
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729921   (107998) от 13.06.2024
-
-Shred - What They Say (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What They Say (4:51)
-02. Nobody Knows Me (4:29)
-03. The Ride (3:39)
-04. Monster (4:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3B7A544944D849486552D933115989F56D7DDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729588   (107999) от 12.06.2024
-
-When Nothing Remains - Studio Albums (3 releases) (2012-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107999.jpg" />
-</div>
-
-
-###  Подробнее
-
-When Nothing Remains - шведская дум/дэт-метал группа, в которую входят участники таких групп, как Nox Aurea, The Cold Existence, Rimfrost, Draconian, Doom: VS.
-Идея When Nothing Remains родилась в конце 2010 года, когда Питер Лаустсен «Rimfrost, Nox aurea, The Cold Existence» и Ян Салландер «The Cold Existence» захотели создать что-то очень мрачное и эмоциональное. (   Читать дальше...   )2012 - As All Torn Asunder
-2013 - Thy Dark Serenity
-2016 - In MemoriamЖанр: Gothic/Doom/Death MetalПродолжительность: 03:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88278C64D1AB5C7A3E29DF0125E67A0C6DC749A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729408   (108000) от 12.06.2024
-
-Libra - Follow The Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journeying [00:03:39]
-02. Live Yourself [00:04:22]
-03. My Shining Soul [00:03:35]
-04. I'll Breathe For Me [00:04:24](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CE32EEE15B4D7AD3CA5C4EF59E11200AD17B75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729733   (108001) от 12.06.2024
-
-Xaon - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xaon — швейцарская метал-группа, образованная в 2014 году.2016 - Face of Balaam (EP)
-2017 - The Drift
-2019 - Solipsis
-2022 - The LetheanЖанр: Symphonic Death MetalПродолжительность: 02:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394D61CC015C19CB232D84A4F13B65C5D0B08831
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729766   (108002) от 12.06.2024
-
-Корней Чуковский | Лучшие стихи для детей (2007) [MP3, Клара Румянова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корней Иванович Чуковский (1882–1969). Настоящее имя – Николай Васильевич Корнейчуков. Русский писатель, поэт, переводчик, историк литературы.
-В книге собраны лучшие стихотворения детского писателя Корнея Ивановича Чуковского: «Муха-Цокотуха», «Телефон», «Мойдодыр»...
-CD-диск с записью стихов в исполнении Клары Румяновой, Ирины Муравьевой, Валентина Гафта, Алексея (   Читать дальше...   )Жанр: Русская литература для детей, классика, стихиИздательство: Студия «Самовар»Продолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19AAD5D3EDB1443B7017E14B0EE4CA87DAFD161
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729693   (108003) от 12.06.2024
-
-Mortician (Austrian) - Studio Albums (4 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mortician - австрийская хэви-метал группа из Саттайнса и Фельдкирха, Форарльберг.2011 - Mortician
-2014 - Shout For Heavy Metal
-2020 - Titans
-2023 - 40 Years Of MetalЖанр: Heavy MetalПродолжительность: 02:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30FF7E4D978422842777F0D8494B9A369EA02B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729596   (108004) от 12.06.2024
-
-Hilltop Howlers - Alright, Alright! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Procrastinator (2:38)
-02. Boys Don’t Lie (4:57)
-03. Face Of Jimmy (3:23)
-04. Get It On! (3:21)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60256C0F45826A5DD7D56E74DD586E2D01A583A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729495   (108005) от 12.06.2024
-
-Fjaak - Fjaak The System (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unity [00:00:58]
-02. And You Feel [00:03:21]
-03. Redemption [00:05:23]
-04. Horsepower [00:03:35](   Читать дальше...   )Жанр: TechnoПродолжительность: 01:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2737E59E16BA815683A2E11EB998A2A6BCE50D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729712   (108006) от 12.06.2024
-
-Mel Torme - In Person (1962) Remaster, 2024, Warner Music Group [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+Willis Jackson - Single Action (1978) 1995, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Putting On the Ritz [00:02:24]
-02. Autumn in New York [00:03:22]
-03. Broadway [00:02:16]
-04. On Green Dolphin Street [00:02:56](   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:38
+01. Evergreen [4:46]
+02. Bolita [8:13]
+03. Makin' Whoopee [7:01]
+04. You Are the Sunshine of My Life [7:44](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:43:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F2BD70D15062387C3CF50D562EA833D3F4F0C44
+magnet:?xt=urn:btih:59DA7DBA646F79BFD87E410A1010A3AF5F28D092
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733227   (107313) от 28.06.2024
+
+Phlyndc - Passion (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holding Me Back (4:32)
+02. Well After Dark (5:52)
+03. Out of Control (5:30)
+04. Nice Night Out (4:07)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB69D444A97B370CAA9EE5273D972973D758895
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733425   (107314) от 28.06.2024
+
+PrivaZer Pro 4.0.88 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107314.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89627F6FA3E92011B758F3306BCFCC7FD4A33F5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733220   (107315) от 28.06.2024
+
+Anims - Good 'n' Evil (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cherubims (3:59)
+02. Fear of the Night (4:09)
+03. Where Were You (4:22)
+04. Satellite (4:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C76EFCCB317D114153AEEF27FCA77331D785A06B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733107   (107316) от 28.06.2024
+
+Любовь и пёсики / Ai quan qi yuan / Puppy Love (2023) WEB-DLRip [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малыш-терьер Бобби Би и красотка ши-цу Дзё-Дзё безумно влюблены, но их хозяева даже не знакомы. Нужно непременно их свести, чтобы стать одной семьей. А как насчет бедного ветеринара и гламурной клиентки? Их тоже нужно подружить, дабы их питомцы были счастливы. Хитроумные песики сделают все, чтобы их хозяева были вместе.Производство: Китай /  Sunac Culture & Tourism, Tianjin Lechuang Pictures, Wentou EntertainmentЖанр: мелодрамаРежиссер: Тони Чань, Вин ШьяАктеры: Уильям Фэн, Бекстияр Гюльнэзэр, Джеки Ли, Бу Гуаньцзинь, Яо Чи, Ду Юань, Джаспер Лю, Лю Цзиньшань, У Хаочэнь, Сюн НайцзиньПеревод: Дублированный (Leff Sound) звук с TSЯзык озвучки: РусскийСубтитры: Английские, Китайские (hardsub)Продолжительность: 01:40:59Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F24E636AB27A455E10FADD7DCB9F772017809A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733174   (107317) от 28.06.2024
+
+Fort Firewall 3.13.2 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA80341DC8B20B514132CF548F8CD7C3DF333E92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733376   (107318) от 28.06.2024
+
+VA - Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARTY - Save Me Tonight (Extended Mix) [4:02]
+02. Amirali - Deep Inside (Avision Extended Remix) [5:52]
+03. Nick Schilder - Realize (Avaion Extended Remix) [4:11]
+04. Kisch & Oscar Duke - Your Touch (Extended Mix) [4:11](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C76124876EB55F8DFF4E80664B7868BEA5A38D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733239   (107319) от 28.06.2024
+
+Белые ночи / Le Notti Bianche (1957) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107319.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе сюжета одноимённая повесть Ф. М. Достоевского (1848). Действие картины перенесено во вторую половину 50-х годов ХХ века в итальянский город Ливорно. Он встречает Её, но, к сожалению для обоих, узнаёт, что Она ждёт давно уехавшего возлюбленного...Производство: Италия, Франция / Cinematografica Associati (CI.AS.), Rank Film, Vides CinematograficaЖанр: драма, мелодрамаРежиссер: Лукино ВисконтиАктеры: Мария Шелл, Марчелло Мастроянни, Жан Марэ, Марчелла Ровена, Мария Дзаноли, Елена Фанчера, Ланфранко Чеккарелли, Анджело Галасси, Ренато Терра, Коррадо ПаниПеревод: профессиональный многоголосыйЯзык озвучки: русский, итальянскийСубтитры: русские, английские, итальянскиеПродолжительность: 01:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9AEA1A0017061BC3F6D9A940F1A2A9DA8DAE09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733406   (107320) от 28.06.2024
+
+Skype 8.122.0.205 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC4679AC290AEE3B1C6F2270B32333D8AF92DE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733258   (107321) от 28.06.2024
+
+Уильям Шекспир | Сонеты (2021) [MP3, Сергей Юрский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения. В мировой истории – несомненно, самый знаменитый и значимый драматург, оказавший огромное влияние на развитие всего театрального искусства. Произведения Шекспира и сегодня не сходят с театральных подмостков всего мира.
+Послушайте сонеты Уильяма Шекспира (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэзияИздательство: Нигде не купишь, ГостелерадиофондПродолжительность: 00:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5ED76C41D8F826A086CE13AD0089F34940F52A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733275   (107322) от 28.06.2024
+
+Opera One 111.0.5168.43 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7EDCCCFE57AAA295F19F9248EBFA3B41203A7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733274   (107323) от 28.06.2024
+
+Журнал | Военно-исторический журнал №7 (771) (июль 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107323.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военно-исторический журнал» Министерства обороны Российской Федерации освещает актуальные проблемы отечественной и зарубежной военной истории; военную политику Российского государства на всех этапах его становления и развития; проблемы военного строительства; исторический опыт обеспечения национальной безопасности; историю развития военной науки и техники; деятельность (   Читать дальше...   )Жанр: Военно-исторический журналИздательство: Редакционно-издательский центр МО РФФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED27FE3E4EB3ABBA2370854D94C501443B91E92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733099   (107324) от 28.06.2024
+
+Фолия / Follia (2023) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107324.jpg" />
+</div>
+
+
+###  Подробнее
+
+После несчастного случая на съёмочной площадке режиссёр по крупицам восстанавливает реальность. Постепенно выясняется, что фильм вообще не должен был состояться, а единственный его сюжет — постоянное возвращение к потерянной любви.Производство: Италия, Китай, Гонконг, Франция / Beabia Films, Golden Shadow Entertainment, Honger Music VentureЖанр: драмаРежиссер: Шарль Герен СюрвильАктеры: Стефано Кассетти, Манал Исса, Даниил Воробьев, Марго Шателье, Николя Ночелла, Анита Чуи, Камилль Дюгаст, Мари Люче Пеннизи, Джанни Сальво, Гуя ЙелоПеревод: Дублированный (Pride Production) звук с TSЯзык озвучки: РусскийСубтитры: Франциске (hardsub)Продолжительность: 01:26:16Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733106   (107325) от 28.06.2024
+
+Любовь и пёсики / Ai quan qi yuan / Puppy Love (2023) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малыш-терьер Бобби Би и красотка ши-цу Дзё-Дзё безумно влюблены, но их хозяева даже не знакомы. Нужно непременно их свести, чтобы стать одной семьей. А как насчет бедного ветеринара и гламурной клиентки? Их тоже нужно подружить, дабы их питомцы были счастливы. Хитроумные песики сделают все, чтобы их хозяева были вместе.Производство: Китай / Sunac Culture & Tourism, Tianjin Lechuang PicturesЖанр: мелодрамаРежиссер: Тони Чань, Вин ШьяАктеры: Уильям Фэн, Бекстияр Гюльнэзэр, Джеки Ли, Бу Гуаньцзинь, Яо Чи, Ду Юань, Джаспер Лю, Лю Цзиньшань, У Хаочэнь, Сюн НайцзиньПеревод: Дублированный (Leff Sound) звук с TSЯзык озвучки: РусскийСубтитры: Английские, Китайские (hardsub)Продолжительность: 01:40:59Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CDB58109CF694C439B71DA85A92C8EF0E192E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733253   (107326) от 28.06.2024
+
+Уильям Шекспир | Сонеты (1979) [MP3, Иннокентий Смоктуновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения. В мировой истории – несомненно, самый знаменитый и значимый драматург, оказавший огромное влияние на развитие всего театрального искусства. Произведения Шекспира и сегодня не сходят с театральных подмостков всего мира.
+Послушайте сонеты Уильяма Шекспира (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэзияИздательство: Нигде не купишь, ГостелерадиофондПродолжительность: 00:25:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B36C5A2720DED208CC24EC0E988EE475C65DEE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733296   (107327) от 28.06.2024
+
+Учитель / Belfer (2023) WEBRip (сезон 3, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учитель приезжает в провинциальный городок и становится участником расследования жестокого убийства местной ученицы. Постепенно он узнаёт, что всё вокруг опутано паутиной коррупции, во главе которой стоит местная элита.Производство: Польша/ Canal+ Polska, TVNЖанр: криминалРежиссер: Лукаш Палковски, Мацей Бохняк, Кшиштоф Лукашевич и др.Актеры: Мацей Штур, Катажина Дабровска, Paulina Szostak, Пётр Гловацкий, Шимон Пётр Варшавский, Якуб Заяц, Мальвина Бусс, Юзеф Павловский, Piotr Kruszewski, Михалина Родак и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49F91670E197F01F452F283A581D959BCC6C5BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733145   (107328) от 28.06.2024
+
+Изумрудный Город - Дуэль (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107328.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дуэль
+2. Украду
+3. Стенка
+4. Русская рулетка(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00EAE4EC9D1C02736908584DA236D7F0A38F200
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733150   (107329) от 28.06.2024
+
+para bellvm - Это я (2024) [MP3|320 Kbps] <Gothic Rock, Dark Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107329.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Это я (Вас задел)
+2. Что я буду делать завтра (1998 Version)
+3. На реке
+4. Тоннель (1999 Version)(   Читать дальше...   )Жанр: Gothic Rock, Dark RockПродолжительность: 00:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842B728FD21ED5E6F9E464EC294C36E6007DEF50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733172   (107330) от 28.06.2024
+
+Yes - Fragile (1971) Super Deluxe Edition, Steven Wilson Remix, 2024, Rhino Atlantic [FLAC 24/96,192|Lossless|WEB-DL|tracks] <Progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 1: Original Album Remastered
+Disc 2: Remixes & Instrumentals
+Disc 3: Rarities(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 4CD, 04:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595B09B6BB4FA6C83BC8D36BBE7D2A9FDBCC2A46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733294   (107331) от 28.06.2024
+
+Учитель / Belfer (2023) WEBRip [H.264/1080p] (сезон 3, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учитель приезжает в провинциальный городок и становится участником расследования жестокого убийства местной ученицы. Постепенно он узнаёт, что всё вокруг опутано паутиной коррупции, во главе которой стоит местная элита.Производство: Польша/ Canal+ Polska, TVNЖанр: криминалРежиссер: Лукаш Палковски, Мацей Бохняк, Кшиштоф Лукашевич и др.Актеры: Мацей Штур, Катажина Дабровска, Paulina Szostak, Пётр Гловацкий, Шимон Пётр Варшавский, Якуб Заяц, Мальвина Бусс, Юзеф Павловский, Piotr Kruszewski, Михалина Родак и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622DAC9F350E622631FF302D8AE25FAB831E375B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733203   (107332) от 28.06.2024
+
+Эмигранты / Utvandrarna (1971) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на двух романах писателя Вильхельма Муберга — «Эмигранты» (Utvandrarna, 1949) и «Иммигранты» (Invandrarna, 1952), которые входят в цикл из четырёх произведений, объединяемых под общим названием «Эмигранты» (Utvandrarserien)... Середина XIX века. В провинции Смоланд, на юге Швеции, проживает крестьянская супружеская пара Карл-Оскар и Кристина Нильссоны. (   Читать дальше...   )Производство: Швеция / Svensk Filmindustri (SF) ABЖанр: драма, историяРежиссер: Ян ТруэльАктеры: Макс фон Сюдов, Лив Ульман, Эдди Аксберг, Свен-Улоф Берн, Айна Альфредсон, Моника Зеттерлунд, Ханс Альфредсон, Оке ФриделльПеревод: профессиональный двухголосыйЯзык озвучки: русский, шведскийСубтитры: английскиеПродолжительность: 03:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45CA7817534BB5FF2EB0CE5DF660B01BB048586
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733222   (107333) от 28.06.2024
+
+Night Pleasure Hotel - Portraits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niko (3:51)
+02. Just This Once (4:59)
+03. We Say Goodbye (4:25)
+04. Walking Through The Horizon (5:04)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D81FAE1548BE0B5389FA2EFEC4EE075B89DABF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733218   (107334) от 28.06.2024
+
+K-Lite Codec Pack Update 18.4.4 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107334.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC804313A2C298171BA605B2ECE40C1C4ACB0D9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733161   (107335) от 28.06.2024
+
+Detectives United 7: Mission Possible (2024) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение серии детективных историй Detectives United. Странные исчезновения людей в городке Myst Hill совпадают с появлением не менее странных животных. Союз детективов снова в деле! Однако автомобильная авария разлучает вас с товарищами по команде. Чтобы их спасти, нужно выиграть не только гонку со временем, но и справиться с опасными звероподобными существами, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5CBBAC8C8D318D230EA4084254A67C6437F764C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733288   (107336) от 28.06.2024
+
+Shotcut 24.06.26 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shotcut - мощное кроссплатформенное приложение с открытым исходным кодом, с помощью которого пользователи могут просто и быстро производить все стандартные операции по обработке видео. Данная программа позволяет быстро редактировать, коллажировать видеоролики с помощью широкого набора настраиваемых аудио и видео фильтров, менять настройки видео и аудио, указывать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9AFBD42BEE5C391EBEC9ED53256DF6344125B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733313   (107337) от 28.06.2024
+
+Журнал | Наука и техника №6 (9) (июнь 2024) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107337.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Наука и Техника» - научно-популярный журнал широкого профиля. Люди с техническим складом ума не только найдут здесь полезную информацию о достижениях авиации, кораблестроения, покорении космоса, но также смогут расширить свой кругозор в области естественных и гуманитарных наук.Жанр: Научно-популярный журналИздательство: ООО "Университет дополнительного профессионального образования"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7333AC7591D2A89541CB37EF43DB82A6D201F909
 ```
 
 

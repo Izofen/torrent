@@ -1,688 +1,654 @@
-###  Публикация: 1749170   (104522) от 13.09.2024
+###  Публикация: 1753268   (103853) от 04.10.2024
 
-London Grammar - The Greatest Love (2024) [MP3|320 Kbps] <Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - House [3:11]
-02 - Fakest Bitch [4:20]
-03 - You And I [5:01]
-04 - LA [4:32](   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91DF294D122F7B2C93C736B8AC3D63E67E83DAF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749260   (104523) от 13.09.2024
-
-VA - Armin van Buuren - A State Of Trance 1190 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+VA - Armin van Buuren - A State Of Trance 1193 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103853.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Above & Beyond ft. Richard Bedford – Heart Of Stone
-02. MEDUZA ft. HAYLA – Another World
-03. AYU – Move
-04. MORTEN & ARTBAT ft. Bonn – Hollow(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:48
+01.	Protoculture - Viper
+02.	LÜRUM - Decisions
+03.	Armin van Buuren - Pulstar (Future Favorite)
+04.	Pennyman - Paloma (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0482AC329A5B22493FBC5384A5905107E81CA2A3
+magnet:?xt=urn:btih:0D551302EB73567D35DADC81C52EC1E4ED902A9B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749302   (104524) от 13.09.2024
+###  Публикация: 1753392   (103854) от 04.10.2024
 
-Velvet Revolver - Contraband (2024 Deluxe Edition) (2004) Reissue, 2024, RCA - Legacy [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+Журнал | Дачный спец №9 (сентябрь 2024) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103854.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дачный спец» — журнал для всех, чья жизнь так или иначе связана с работой и отдыхом на земле. Независимо от уровня знаний в дачных делах, любой человек найдет в журнале именно то, что ему нужно: мнения и обзоры от известных в своей области специалистов, советы опытных дачников и садоводов, планировочные решения и мастер-классы от профессиональных дизайнеров, проверенные (   Читать дальше...   )Жанр: СадоводствоИздательство: ООО "Издательская группа "КАРДОС"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5429E62E7BA236BC58DDDC21C6EF2FD3A0BFF5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753287   (103855) от 04.10.2024
+
+King Of The World - Get Up, Get Down & Get With It (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103855.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sucker Train Blues (4:28)
-02. Do It For The Kids (3:56)
-03. Big Machine (4:26)
-04. Illegal i Song (4:18)(   Читать дальше...   )Жанр: RockПродолжительность: 01:26:27
+01. In Between the Lines (3:08)
+02. Black Coffee (3:43)
+03. Back In My Hometown (4:10)
+04. Devil Woman (4:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E49507843CF8FF5590EE1B5E2208D5BFE78D6D2C
+magnet:?xt=urn:btih:D8DF7F4FE68882A0C1E7B014D85271EFC845349C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749298   (104525) от 13.09.2024
+###  Публикация: 1753325   (103856) от 04.10.2024
 
-Velvet Revolver - Contraband (2024 Deluxe Edition) (2004) Reissue, 2024, RCA - Legacy [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sucker Train Blues (4:28)
-02. Do It For The Kids (3:56)
-03. Big Machine (4:26)
-04. Illegal i Song (4:18)(   Читать дальше...   )Жанр: RockПродолжительность: 01:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C968807473BA99F6E5C22C346EF388C180472FD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749169   (104526) от 13.09.2024
-
-London Grammar - The Greatest Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - House [3:11]
-02 - Fakest Bitch [4:20]
-03 - You And I [5:01]
-04 - LA [4:32](   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAF3C60F48CD06D8AE703CFC4F88895111143F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749318   (104527) от 13.09.2024
-
-VA - Black Hole House Music 09-24 (2024) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Thomas & Christian Burns - Enjoy The Silence (Extended Mix) [7:25]
-02. PARAFRAME - Close To Me (Extended Mix) [5:56]
-03. Markus Schulz & Sarah De Warren - Light On (ZOYA Extended Remix) [5:05]
-04. Scot & Millfield x Cabriolet Paris - Talamanca (Extended Mix) [5:25](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E75C3FFBE2FF6DDE1352CB80B77FFC64C9AEA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749133   (104528) от 13.09.2024
-
-Wake The Nations - Heartageddon (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive
-02. Don't Call Me Tonight
-03. Never Say
-04. Bulletproof(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CEE2DE3D28A59E34D6A9D8D35FA3FF3FDF67AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749166   (104529) от 13.09.2024
-
-Моя заветная мечта / Der ganz grosse Traum (2011) BDRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конрад Кох - один из первых учителей английского языка в Германской империи, в Брауншвейге. Он знакомит своих учеников с новым видом спорта - футболом, в то время совершенно не известным за пределами Англии, чтобы заинтересовать их английской культурой и языком. Но либеральные методы преподавания Коха расстраивают его консервативных коллег, родителей учеников и местных (   Читать дальше...   )Производство: Германия, Cuckoo Clock Entertainment, Degeto Film, Deutschfilm...Жанр: драма, спортРежиссер: Себастьян ГроблерАктеры: Даниэль Брюль, Бургхарт Клаусснер, Томас Тиме, Юстус фон Донаньи, Юрген Тонкель, Винсент Кастнер, Катрин фон Штайнбург, Аксель Праль, Тео Требс, Адриан МурПеревод: профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:493DD44C9A25F3C2CB4AA0D564ACE3105FB5BDA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749153   (104530) от 13.09.2024
-
-Моя заветная мечта / Der ganz grosse Traum (2011) BDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конрад Кох - один из первых учителей английского языка в Германской империи, в Брауншвейге. Он знакомит своих учеников с новым видом спорта - футболом, в то время совершенно не известным за пределами Англии, чтобы заинтересовать их английской культурой и языком. Но либеральные методы преподавания Коха расстраивают его консервативных коллег, родителей учеников и местных (   Читать дальше...   )Производство: Германия, Cuckoo Clock Entertainment, Degeto Film, Deutschfilm...Жанр: драма, спортРежиссер: Себастьян ГроблерАктеры: Даниэль Брюль, Бургхарт Клаусснер, Томас Тиме, Юстус фон Донаньи, Юрген Тонкель, Винсент Кастнер, Катрин фон Штайнбург, Аксель Праль, Тео Требс, Адриан МурПеревод: профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDE11E0D110F723F4E09595AEFE0D1C3CD7E2F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749168   (104531) от 13.09.2024
-
-London Grammar - The Greatest Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - House [3:11]
-02 - Fakest Bitch [4:20]
-03 - You And I [5:01]
-04 - LA [4:32](   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B59F755EE55F7541A1AB4B5C41BB51CFE3F435
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749131   (104532) от 13.09.2024
-
-Chaos Unleashed - I Am Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heaven Shall Burn [4:09]
-02 - I Am Chaos [5:36]
-03 - The New Dominion [4:59]
-04 - M.A.D. (Mutual Assured Destruction) [4:59](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905E9B4B67E0E29CE74CC8397AEE97AF7B9986B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749075   (104533) от 13.09.2024
-
-Witchz - Drugz2feel (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Drugz2feel [2:44]
-02 - Zen !!! [2:56]
-03 - The Algorithm [3:25]
-04 - The Simulation [2:10](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC2BE758A6B1E84D320ADC4FFA63972C1A3D3EB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749181   (104534) от 13.09.2024
-
-Big Big Train - A Flare On The Lens (Live in London 2023) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Crossover Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Folklore (7:23)
-02. The Connection Plan (4:15)
-03. Curator of Butterflies (8:22)
-04. Summoned by Bells (10:25)(   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 02:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A077439CB9D76AFB13E1AE68DBD3905DAE335822
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749294   (104535) от 13.09.2024
-
-TooEvil - Lepers and Lace (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad baptism (03:14)
-02. Ring Your Bell (03:20)
-03. Hangman (04:22)
-04. The Fall (03:12)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54B8EED94CA03E4645A5292DC9990CA090DCE61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749010   (104536) от 12.09.2024
-
-Пересечение судеб / The Meeting of the Ways (1912) WEBRip
+Депутатка Анджелина / L onorevole Angelina (1947) BDRip [H.264] [IT / RU Sub]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшая сентиментальная история на житейскую тему. Том и Дик — братья и учатся в одном колледже. Том прилежный парень и заканчивает обучение с отличием, а Дика исключают из колледжа за плохое поведение. Дику стыдно идти домой... Десять лет спустя Том, успешный юрист, женат и имеет двоих маленьких детей. А Дик так ничего и не добился в жизни. Как говорится, человек (   Читать дальше...   )Производство: США / Vitagraph Company of AmericaЖанр: короткометражный, драма, немое киноРежиссер: нет сведенийАктеры: Морис Костильо, Лео Делани, Джулия Свейн Гордон, Долорес Костелло, Хелен Костелло, Гарри Т. Мори, Чарльз Элдридж, Норма Толмедж, Джордж КуперПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:14:17
+Послевоенная Италия. Анджелина Бьянки, жена сержанта полиции и мать пятерых детей, становится защитницей бедных жителей римского района Пьетралата. Вместе с другими женщинами она ведёт борьбу с произволом властей и спекуляцией, стремится улучшить условия жизни бедных людей, которые за это выдвигают её в депутаты. Пытаясь заниматься политикой, Анджелина оказывается (   Читать дальше...   )Производство: Италия / Lux Film, Ora FilmЖанр: драма, комедияРежиссер: Луиджи ДзампаВ ролях: Анна Маньяни, Нандо Бруно, Аве Нинки, Эрнесто Альмиранте, Агнеса Дуббини, Армандо Мильяри, Мария Донати, Мария Грация Франчия, Витторио Моттини, Франко ДзеффиреллиПеревод: субтитрамиЯзык озвучки: итальянскийСубтитры: русские (olnikka), английскиеПродолжительность: 01:32:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB4D870A9E955E241B3DFD6337E0D73FF9A44E51
+magnet:?xt=urn:btih:ECF48F07F46E2C72D5CB615DE8699C43FF063ABE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749030   (104537) от 12.09.2024
+###  Публикация: 1753289   (103857) от 04.10.2024
 
-A Killer's Confession - Victim 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Nu Metal>
+Toby Lee - House On Fire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103857.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tongue (3:41)
-02. Sun (3:48)
-03. Greed (3:43)
-04. Voices (3:39)(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:35:04
+01. House On Fire (3:21)
+02. Just Hold On (3:33)
+03. Count On Me (3:19)
+04. Blame Me (3:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56162D806289E22CA1BA135C69FA49169671AD00
+magnet:?xt=urn:btih:A31F96C6A25E47E60500C5578ACD6CC1FF1700B8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748928   (104538) от 12.09.2024
+###  Публикация: 1753338   (103858) от 04.10.2024
 
-Jim Hall And Friends - Live At Town Hall, Vol. 2 (1990) MusicMasters [APE|Lossless|image + .cue] <Cool, Post-Bop, Guitar Jazz>
+Chick Corea / Miroslav Vitous - Tones for Joan's Bones & Mountain in the Clouds (1999) Collectables [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103858.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hide and Seek [11:01]
-02. How Deep Is the Ocean [8:18]
-03. Sancticity [8:57]
-04. My Funny Valentine [7:53](   Читать дальше...   )Жанр: Cool, Post-Bop, Guitar JazzПродолжительность: 00:44:34
+01. Litha [13:31]
+02. This Is New [7:37]
+03. Tones for Joan's Bones [6:07]
+04. Straight Up and Down [12:32](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:19:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E15DD7A3BC1039A9E73CA1D750A0703EB9EA9AF4
+magnet:?xt=urn:btih:5B4A0000B1284BD99309CB8FEA7DFEB038FAFE92
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748725   (104539) от 11.09.2024
+###  Публикация: 1753331   (103859) от 04.10.2024
 
-Jim Hall And Friends - Live At Town Hall, Vol. 1 (1991) MusicMasters [APE|Lossless|image + .cue] <Cool, Post-Bop, Guitar Jazz>
+Jeanie Lambe And The Danny Moss Quartet - The Blue Noise Session (1999) Nagel Heyer Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103859.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alone Together [6:45]
-02. St. Thomas [5:18]
-03. Skylark [4:30]
-04. Begin the Beguine [7:02](   Читать дальше...   )Жанр: Cool, Post-Bop, Guitar JazzПродолжительность: 01:06:59
+01. Long Ago and Far Away [4:02]
+02. Just Squeeze Me [3:40]
+03. Black Coffee [4:56]
+04. Saturday Night Is the Loneliest Night in the Week [2:33](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 01:09:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:956CB4EBB16396DF0EA6A92C9B801F91520F270B
+magnet:?xt=urn:btih:4C24BBF4A06FA2C8D4C078E46B3CADF2A125963A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748588   (104540) от 10.09.2024
+###  Публикация: 1753415   (103860) от 04.10.2024
 
-Skelethal - Within Corrosive Continuums (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+Из жизни артистов / Mellem Storbyens Artister (1912) WEBRip [H.264/720p]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103860.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Creation 01:52
-2. Spectrum of Morbidity 04:50
-3. Mesmerizing Flies at the Doors of Death 05:16
-4. Eyes Sewn Mouth Full 05:13(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:20
+В 1910-е годы огромной популярностью пользовались фильмы о цирковой жизни. Люди приходили в цирк, чтобы увидеть сенсационные представления, а фильмы с арены каким-то образом переносили цирковые впечатления во мрак кинотеатра. Опасные прыжки, опасные танцы на канате или смертоносные цирковые животные придавали фильмам драматизм и динамику.
+И вот очередной датский (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Ингеборг Брюн Бертелсен, Anton Gambetta Salmson, Albert Helsengreen, Alma Hinding, Фредерик Якобсен, Ааге Лоренцен, Эксел Маттсон, Карл Шенстром, Генри Симан, Ella SprangeПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:28:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35FC2A8E34B2FD7277EE7330D4900D1859DD5F08
+magnet:?xt=urn:btih:68866D70913A9A6512406661FA8D3C69EA8F4B0B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748204   (104541) от 10.09.2024
+###  Публикация: 1753205   (103861) от 04.10.2024
 
-The Mourning - Hush (2024) [MP3|320 Kbps] <Progressive Metal, Rock>
+OneCommander Pro 3.90.0.0 + Portable [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chaos Machine (04:58)
- 02. The Mountain (05:38)
- 03. He Cries (04:22)
- 04. I Feel The Rain (05:05)(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:51:59
+OneCommander V3 — это современный файловый менеджер для Windows 10 и Windows 11. Особенности включают вкладки, браузеры с двумя панелями, навигацию по столбцам, встроенный предварительный просмотр, систему тем, цветовые теги и многое другое. Он бесплатен для домашнего использования и не содержит рекламы.
+Эта программа не пытается быть просто более привлекательным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5829FBB15453D8B3F673576E38112524C7FD990F
+magnet:?xt=urn:btih:6FD46935DFAE6690288FA884B86444651B6AD3DE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748224   (104542) от 10.09.2024
+###  Публикация: 1753381   (103862) от 04.10.2024
 
-VA - DJ Hits Vol. 401 (1997) [OGG Vorbis|480 Kbps] <Electronic,  Euro House, Eurodance>
+Переродившись в аристократа, я стану успешным благодаря навыку оценки [ТВ-1] | Tensei Kizoku, Kantei Skill de Nariagaru [2024, TV, 12 из 12] BDRip 1080p Raw+Rus
 
->>Pop
->>Зарубежная поп-музыка
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103862.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Armand Van Helden - The Funk Phenomena
-02. Sash! - Encore Une Fois
-03. Blueboy - Remember Me
-04. Soultans - Every Little Move(   Читать дальше...   )Жанр: Electronic,  Euro House, EurodanceПродолжительность: 01:10:53
+Обычно попаданцам в другой мир достаётся огромное богатство, высокое положение в обществе или, на худой конец, какая-нибудь полезная способность.
+Однако переродившемуся Арсу Ловенту с этим не повезло: хоть он и стал дворянином, но не слишком родовитым, а искусного владения мечом или великого таланта к магии ему не подвезли. К тому же страна, в которую его забросило, (   Читать дальше...   )Производство: Япония / Студия Studio MotherЖанр: приключения, фэнтезиРежиссер: Като ТакаоЯзык озвучки: Русский (AniLibria), (Anything Group), (Dream Cast); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB669FED220E357672AB604BBA974838C224F5DC
+magnet:?xt=urn:btih:6576B4B1D5B5FE0DCBAEB1A4244066D68B8078E2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748556   (104543) от 10.09.2024
+###  Публикация: 1753384   (103863) от 04.10.2024
 
-Музыка Гиона / Гейша / Gion bayashi (1953) BDRip [H.264] [AVO]
+Камеди Клаб / Комеди Клаб / Comedy Club (04.10.2024) IPTV [H.264/720p] (сезон 20, выпуск 14)
 
->>Зарубежное кино
->>Азиатское кино (SD)
+>>Юмор (ТВ)
+>>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм основан на романе Мацутаро Кавагути... Мать Эйко умирает, и 16-летняя девушка преезжает к её подруге Миёхару, гейше, работающей в «весёлых домах» в Гионе (район Киото). Эйко тоже собирается стать гейшей, для этого ей необходимо обучиться пению и танцу, овладеть искусством икебаны. Миёхару готова помочь девушке и заплатить за её обучение...Производство: Япония / Daiei StudiosЖанр: драмаРежиссер: Кэндзи МидзогутиАктеры: Митиё Когурэ, Аяко Вакао, Сэйдзабуро Кавадзу, Сабуро Датэ, Сумао Ишихара, Мидори Комацу, Кандзи Кошиба, Кикуэ Мори, Тиэко Нанива, Эйтаро СиндоПеревод: авторскийЯзык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:24:41
+Главное юмористическое шоу российского телевидения возвращается после перерыва. Comedy Club уже почти два десятилетия остаётся на передовой юмора, всегда успевая за трендами и даже задавая их. В числе гостей шоу всегда можно увидеть самых медийных звёзд: от Ольги Бузовой до Евгения Понасенкова. А на сцену всегда выходят комики, которые за словом в карман не лезут. (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморУчастники: Павел Воля, Женя Синяков, Тимур Батрутдинов, Иван Половинкин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец, Андрей Бебуришвили и др.Субтитры: ОтсутствуютПродолжительность: 00:47:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC978320B4CB2C069633D22234508D79875ED8DD
+magnet:?xt=urn:btih:8617B07744FECDD59DA57B7D44F7C8E13CC55710
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748189   (104544) от 10.09.2024
+###  Публикация: 1753280   (103864) от 04.10.2024
 
-Sylvester - Live At The Opera House (1979) 2024, Craft Recordings [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, Rhythm & Blues, Soul>
+Eric Clapton - Meanwhile (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Rock>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Overture: Grateful / You Make Me Feel (Mighty Real) / Dance (Disco Heat) (Live At The War Memorial Opera House / 1979) [00:03:29]
-02. Body Strong (Live At The War Memorial Opera House / 1979) [00:04:49]
-03. Medley #1: Everything Must Change / You Are My Love (Live At The War Memorial Opera House / 1979) [00:08:55]
-04. Medley #2: Could It Be Magic / A Song For (   Читать дальше...   )Жанр: Disco, Funk, Rhythm & Blues, SoulПродолжительность: 02:07:53
+01. Pompous Fool (4:45)
+02. Heart of a Child (7:04)
+03. Eric Clapton & Jeff Beck - Moon River (5:06)
+04. Sam Hall (5:27)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:04:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F5488320C39D96E31C0089CDDC1403FFAA2B1A3
+magnet:?xt=urn:btih:0B97299090641B447576133C99D27EE87836EA4D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748245   (104545) от 10.09.2024
+###  Публикация: 1753379   (103865) от 04.10.2024
 
-Symphony of Unity - The Countdown to Tomorrowland Brasil, São Paulo, Brazil (2024-08-29) [MP3|320 Kbps] <Various>
+Draw.io 24.7.17 + Portable [Multi/Ru]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kölsch ft. Troels Abrahamsen - All That Matters (ARTBAT Remix) (Live Orchestal Version)
-02. The Temper Trap - Sweet Disposition (John Summit & Silver Panda Remix) (Live Orchestal Version)
-03. Armin van Buuren ft. Susana - Shivers (Live Orchestral Version)
-04. Sebastian Ingrosso & Tommy Trash ft. John Martin - Reload (Live Orchestral Version)(   Читать дальше...   )Жанр: VariousПродолжительность: 00:57:05
+Вам доступно бесплатное программное обеспечение под названием Draw.io - это отличный инструмент для создания диаграмм и лучшей организации вашей работы. Если вы студент и вам нужно сделать диаграмму для иллюстрации презентации или задания, или вы менеджер проекта и вам нужно управлять своей командой, данный софт практически на сто процентов способен удовлетворить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D66867FAC16E299DDB719971DB9C71C418FD589B
+magnet:?xt=urn:btih:3909CB18B5F956380F3163D25A2B2455A3B0AB06
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748612   (104546) от 10.09.2024
+###  Публикация: 1753380   (103866) от 04.10.2024
 
-Gotfire - Free Again (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
+Однажды в России (2024.10.04) SATRip
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Юмор (ТВ)
+>>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103866.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Do Your Want Fire?
-2. The Escape (Liberation Pt. III)
-3. She's This Way
-4. Hide Away(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:11
+Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: ЮморУчастники: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:40:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16589225808CDB784A36CB0DFF6A947983D0AF4E
+magnet:?xt=urn:btih:A690A877194006128DB0AEA64A1B47AE7B631922
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748472   (104547) от 10.09.2024
+###  Публикация: 1753376   (103867) от 04.10.2024
 
-VA - DJ Hits Volume 777 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
+XtraTools Professional 24.9.1 [Multi/Ru]
 
->>Pop
->>Зарубежная поп-музыка
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beat System - What's Going On (In Your Mind)
-02. Amen U.K. - Passion
-03. Celvin Rotane - Back Again
-04. U 96 - Seven Wonders(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:10:13
+XtraTools — это универсальный инструмент для оптимизации системы MS Windows, который заботится о каждом аспекте работы вашего компьютера - от оптимизации реестра и удаления ненужных программ, настроить ваши сетевые подключения для увеличения скорости оперативной памяти. Это компактный инструмент с интуитивно понятным интерфейсом, который дает вам полный контроль (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FBE48B644BA1AE6189817CBE089FE2BE76B52EE
+magnet:?xt=urn:btih:4548AB374E3AE84E63D76072E32D2DC9010182C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753172   (103868) от 04.10.2024
+
+Задержи дыхание / Hold Your Breath (2024) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_103868.jpg" />
+</div>
+
+
+###  Подробнее
+
+1930-е. Маргарет живет со своими дочерьми в страдающей от засухи Оклахоме, пытаясь защитить их от всепроникающей пыли и демонов из собственного прошлого. Однажды старшая дочь рассказывает младшей легенду о Сером человеке — бестелесном духе, передвигающемся подобно пыли на ветру, которого можно запросто вдохнуть... Эта история окутывает страхом всю семью.Производство: США / MAD DOG FILMS, Searchlight Pictures, Secret EngineЖанр: драма, триллер, ужасыРежиссер: Кэрри Круз, William JoinesАктеры: Сара Полсон, Амайя Миллер, Alona Robbins, Аннали Эшфорд, Эбон Мосс-Бакрак, Аррон Шивер, Билл Хек, Фрэнсис Ли МакКейн, Кортни Каннингэм, Джеймс Хили мл.Перевод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:35:52Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752870   (103869) от 04.10.2024
+
+Журнал | Главбух №19 (октябрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Главбух» – это издание №1 бухгалтерского мира. В «Главбухе» практические ответы на злободневные вопросы бухгалтерского учета, расчета налогов и зарплаты. Примеры, образцы и готовые решения о том, как поступать в неоднозначной ситуации. Новости бухучёта и налогообложения. Консультации экспертов. Правовая база. Бланки налоговых деклараций, расчётов и др. документов, (   Читать дальше...   )Жанр: Бухгалтерский учетИздательство: ООО "Актион-пресс"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9908CCF1ED3DC65B1CAF0F99A0E773FA854160D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752859   (103870) от 04.10.2024
+
+Журнал | Наша история №10 (64) (октябрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайны государства в журнале "Наша история". Необычная трактовка известных событий. Самые скандальные события прошлого. Журнал рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать (   Читать дальше...   )Жанр: ИсторияИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B615D581FDE2114F91500E5105B07CB9C116110A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752811   (103871) от 04.10.2024
+
+Firefox Browser ESR 128.3.0 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E496BA9551438B71E1F1225B8734D15EFF9D6EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753443   (103872) от 04.10.2024
+
+Erotica - Serene Seduction (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel (3:55)
+02. Open The Heart (3:00)
+03. Lover and Soul Mate (2:50)
+04. Life del Mar (3:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BA2958B73372417D6E85941160619B71D6DA9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753339   (103873) от 04.10.2024
+
+Сергей Бобунец - Концерт в «Фабрике» (2024) WEBRip [H.264/2160p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Бобунец показал масштабное сольное шоу «Концерт в Фабрике». Во время выступления были исполнены двадцать пять композиций – хиты группы «Смысловые Галлюцинации» и известные сольные песни музыканта в актуальном звучании. Мероприятие состоялось 1 марта в Екатеринбурге. Альбом вышел в двух форматах – аудио и видео. Впервые у всех появилась возможность увидеть (   Читать дальше...   )Производство: Россия / Творческое объединение Вечно молодой, Teleclub GroupЖанр: концерт, рок, попРежиссер: Василий Устюжанин, Виталий МасловАктеры: Сергей Бобунец, Евгений Никулин, Дмитрий Фоменко, Александр Вольхин, Анна Воробьёва, Мане НагапетянПеревод: Не требуетсяЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2075CBD2BF49289BFE97B97676D141B43EEDB02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753198   (103874) от 04.10.2024
+
+Оно слушает / AfrAId (2024) WEBRip [H.264/1080p] [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_103874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кёртис, сотрудник маркетинговой фирмы, которая собирается продвигать революционный ИИ, соглашается на испытание продукта в собственном доме. Система называется Айа, и через установленные по всему дому датчики она подстраивается под нужды своей новой семьи — Кёртиса, его жены и троих детей. Первоначальный скепсис домашних сменяется восторгом, когда система показывает (   Читать дальше...   )Производство: Великобритания, США / Columbia Pictures, Blumhouse Productions, Depth of FieldЖанр: фантастика, триллерРежиссер: Крис ВайцАктеры: Джон Чо, Кэтрин Уотерстон, Кит Кэрредин, Гавана Роуз Лю, Лукита Максвелл, Эшли Романс, Давид Дастмалчян, Уайатт Линднер, Айзек Бэй, Беннетт Каррен и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:20:02Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753281   (103875) от 04.10.2024
+
+K-Lite Codec Pack Update 18.5.7 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103875.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC0F76543929961C3D7E40C170FCBE540E1D0F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753010   (103876) от 03.10.2024
+
+Kant - Paranoia Pilgrimage (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Great Serpent (5:01)
+02. Baba Yaga (3:49)
+03. Book Of Creation (3:18)
+04. Traitor's Lair (5:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B9D37E5E3D7F24BE024C79A42453E8D13F4622
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753056   (103877) от 03.10.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Динамо (Загреб, Хорватия) - Монако (Франция) (02.10.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Динамо (Загреб, Хорватия) - Монако (Франция)  (02.10.2024)
+СУДЬЯ Осмерс Харм (Ганновер, Германия)
+СТАДИОН «Максимир» (Загреб)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF9CA7CBD4378102B33BBB663C2C0860384D705
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753003   (103878) от 03.10.2024
+
+Sonny Stitt - Stitt's Bits: The Bebop Recordings (1949 - 1952) 3CD, 2006, Prestige [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeepers Creepers [2:58]
+02. Imagination [3:28]
+03. Cherokee [2:35]
+04. 'Round About One A.M. [3:06](   Читать дальше...   )Жанр: BopПродолжительность: 03:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613DE630808AB96057332009A619561CC8E0AF8B
 ```
 
 

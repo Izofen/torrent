@@ -1,675 +1,683 @@
-###  Публикация: 1727382   (108475) от 02.06.2024
+###  Публикация: 1730813   (107806) от 18.06.2024
 
-Wilbur Ware - Super Bass (1968) 2012, Wilbur Ware Institute [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mod House [5:46]
-02. Symphony for Jr. [10:11]
-03. Wilbur's Red Cross [8:18]
-04. A Real Nice Lady [7:32](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00CF9FA171E585793EC895E9C3BF84881281E5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727455   (108476) от 02.06.2024
-
-Priest - Dark Pulse (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <EBM>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Love [00:04:16]
-02. Black Venom [00:04:06]
-03. Demon's Call [00:03:27]
-04. Dungeon Dance [00:03:19](   Читать дальше...   )Жанр: EBMПродолжительность: 00:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A834A0533305A91B61290CE513DF293D63B5947E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727463   (108477) от 02.06.2024
-
-Asena Akan - Asık (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Güzelliğin On Par Etmez (6:45)
-02. Yetmez Mi (4:04)
-03. Çayeli'nden Öteye (7:11)
-04. Doğuda Sabah (3:54)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34488097EE9D0522E31F65803100A33C5B3BEE58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727456   (108478) от 02.06.2024
-
-2in2out - Living Stories (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something Given (5:30)
-02. Maniny (5:04)
-03. Amorfa (1:24)
-04. Over the Abyss of Betrayal (5:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55279FCA26D76751748C1014ABB7E8F592DC782F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727493   (108479) от 02.06.2024
-
-Deliverance - What a Joke (1991) [FLAC|Lossless|image + .cue] <Speed, Thrash Metal, Industrial>
+Loch Vostok - V: The Doctrine Decoded (2012) [FLAC|Lossless|image + .cue] <Extreme Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Intro
-02 Prophet Of Idiocy
-03 Pseudo Intellectual
-04 Cheeseburger Maker Du(   Читать дальше...   )Жанр: Speed, Thrash Metal, IndustrialПродолжительность: 00:46:30
+01. Seeker
+02. A Tale Of Two Kings
+03. Syndrome Of Self
+04. Citizen Cain(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:56:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C6FACB068952E48232035639DAA1F8EBEEC5827
+magnet:?xt=urn:btih:B8E161E0BBB4DFCF3462BD98133D415E9CBD39EB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727375   (108480) от 02.06.2024
+###  Публикация: 1730785   (107807) от 18.06.2024
 
-Mary Lou Williams, Jutta Hipp, Beryl Booker - First Ladies Of Jazz (1940 - 1954) 1989, Savoy Jazz [FLAC|Lossless|image + .cue] <Bop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mary Lou Williams - Mary Lou Williams' Blues (aka Mary Lou Blues) (Williams) - 3:21
-02. Mary Lou Williams - Tea for Two (Youmans-Caesar) - 2:52
-03. Mary Lou Williams - Scratchin' the Gravel (Williams) - 3:15
-04. Mary Lou Williams - Zonky (Waller-Razaf) - 2:57(   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A71C2072DAE5AFBAE2C3402A8D0F09DA06CEA441
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557158   (108481) от 02.06.2024
-
-Bludgeoned - Live at the end (2018) [MP3|320 Kbps|tracks] <Crust Punk, Doom, Sludge, Thrash Metal>
+Loch Vostok - Dystopium (2011) [FLAC|Lossless|image + .cue] <Extreme Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107807.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. suicide bomber [00:03:08]
-02. global bio death [00:03:55]
-03. midlife crisis 2 [00:03:40]
-04. war on the poor [00:03:29](   Читать дальше...   )Жанр: Crust Punk, Doom, Sludge, Thrash MetalПродолжительность: 00:38:57
+01. A Mission Undivine
+02. Repeat Offender
+03. World Trade Dissenter
+04. Sacred Structure(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:51:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5B6A0F838430C246BD443C5C16A481677E60B96
+magnet:?xt=urn:btih:25742972EB4595CCC649E7603FB435DCF9456CF7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727511   (108482) от 02.06.2024
+###  Публикация: 1730946   (107808) от 18.06.2024
 
-MotoGP. Этап 07 из 20. Гран-при Италии. Гонка (02.06.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+Прах моей плоти словно огромная галактика / Kudakechiru tokoro o misete ageru (2021) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107808.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноимённому роману Такэмия Юкико... У Хамада Киёсуми есть мечта стать героем, но до третьего класса старшей школы ему так и не выпала возможность, пока он не встретил Хурамото Хари. Она настоящий изгой, полностью не принимаемый одноклассниками, а постоянные тычки и унижения только усугубляют ситуацию. Теперь у Хамада Киёсуми есть шанс, спасти чью-то невинную (   Читать дальше...   )Производство: Япония / LDH Japan, Post Republic, The, Rapid Eye Movies, Robot CommunicationsЖанр: драма, мелодрамаРежиссер: СабуАктеры: Тайси Накагава, Анна Исии, Каи Иноваки, Кая Киёхара, Аири Мацуи, Такуми Китамура, Акико Яда, Хана Кино, Томоё Харада, Синъити ЦуцумиПеревод: любительский двухголосыйЯзык озвучки: русский, японскийСубтитры: русские (Cheshire Cat), английскиеПродолжительность: 02:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE3537158E26D6E9C32D63FB9D2283F760D7DFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730947   (107809) от 18.06.2024
+
+Футбол. Чемпионат Европы 2024. Групповой турнир. 1-й тур. Группа D. Австрия - Франция (17.06.2024) HDTVRip [H.264/720p-LQ]
 
 >>Спорт и активный отдых
->>Авто, Мото
+>>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2 июня 2024, воскресенье. 15:00 МСК. Этап 7, Тоскана. Гран-при Италии. Гонка (23 круга)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:29:51
+Футбол. Чемпионат Европы 2024. Групповой турнир. 1-й тур. Группа D. Австрия - Франция (17.06.2024)
+СУДЬЯ Хиль Мансано (Дон-Бенито, Испания)
+Судья на линии 1: Барберо Диего (Испания)
+Судья на линии 2: Родригес Анхель Невадо (Испания)(   Читать дальше...   )Телекомпания: Матч Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:57:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1843CC1713481ED09837E07B91B2ED13F9D6E8BF
+magnet:?xt=urn:btih:A3594C0E0F7B3D3D1F6B037B0CAA949E7EE96338
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727501   (108483) от 02.06.2024
+###  Публикация: 1730939   (107810) от 18.06.2024
 
-Barock Project - Time Voyager (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
+Redemm - Be My Lover (2024) [FLAC|Lossless|tracks] <Euro House, Deep House>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107810.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Carry On (6:37)
-02. Summer Set You Free (4:44)
-03. An Ordinary Day's Odyssey (6:04)
-04. The Lost Ship Tavern (4:40)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 01:11:06
+01. Redemm - Be My Lover (3:06)Жанр: Euro House, Deep HouseПродолжительность: 00:03:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C62EDA05DD754151E58B6A1E933F134108E585BA
+magnet:?xt=urn:btih:0BF94F1F58E4BFAF6B5C64E6C4C52F83EE5C9608
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727524   (108484) от 02.06.2024
+###  Публикация: 1730934   (107811) от 18.06.2024
 
-Благовест | О просфоре, антидоре и артосе (2017) [PDF, FB2, EPUB, MOBI, TXT]
+Google Chrome 126.0.6478.62 Portable by Cento8 [Ru/En]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В настоящем издании рассказывается об освященных Церковью для употребления верующими в разных случаях дарах, которыми являются просфора, антидор и артос.
-
-Издание рассчитано на широкий круг православных читателей.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF0AD5D2EC7B821F1BF1317B5FC897A4E411D204
+magnet:?xt=urn:btih:C100C8A83B33D8BFD87FE4E49E12C052DE004364
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727544   (108485) от 02.06.2024
+###  Публикация: 1730945   (107812) от 18.06.2024
 
-Silver Convention - Get Up & Boogie: The Worldwide Singles (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Disco, Soul>
+PrivaZer 4.0.87 Free + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107812.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633D43C102BDF1A3BD0E8B9F369591887CCC9686
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730906   (107813) от 18.06.2024
+
+BAND-MAID - The Day of Maid (2021) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107813.jpg" />
+</div>
+
+
+###  Подробнее
+
+BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
+6-ть песен, выпущенные на бонусном Blu-Ray диске к лимитированному изданию сингла "Sense", с онлайн концерта группы "The Day of Maid", состоявшегося 10 мая 2021.01. I Still Seek Revenge.
+02. Youth
+03. Why Why Why
+04. H-G-K(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 00:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85226131D511E0F8CF4DABFC439049E9546C892
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730916   (107814) от 18.06.2024
+
+Прах моей плоти словно огромная галактика / Kudakechiru tokoro o misete ageru (2021) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107814.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноимённому роману Такэмия Юкико... У Хамада Киёсуми есть мечта стать героем, но до третьего класса старшей школы ему так и не выпала возможность, пока он не встретил Хурамото Хари. Она настоящий изгой, полностью не принимаемый одноклассниками, а постоянные тычки и унижения только усугубляют ситуацию. Теперь у Хамада Киёсуми есть шанс, спасти чью-то невинную (   Читать дальше...   )Производство: Япония / LDH Japan, Post Republic, The, Rapid Eye Movies, Robot CommunicationsЖанр: драма, мелодрамаРежиссер: СабуАктеры: Тайси Накагава, Анна Исии, Каи Иноваки, Кая Киёхара, Аири Мацуи, Такуми Китамура, Акико Яда, Хана Кино, Томоё Харада, Синъити ЦуцумиПеревод: любительский двухголосыйЯзык озвучки: русский, японскийСубтитры: русские (Cheshire Cat), английскиеПродолжительность: 02:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30874A3023144178B57C39F0DC94CEA478FE8FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730942   (107815) от 18.06.2024
+
+Chillymouse - Only You (Bootmasters & Visioneight remix) (2021) [FLAC|Lossless|tracks] <Deep House, Disco House, Future House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillymouse - Only You (Bootmasters & Visioneight remix) (4:53)Жанр: Deep House, Disco House, Future HouseПродолжительность: 00:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58BFEDE46E56CF6E5713AFE13DD520FC2565BFD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730901   (107816) от 18.06.2024
+
+BAND-MAID - Online Okyu-Ji (2021) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107816.jpg" />
+</div>
+
+
+###  Подробнее
+
+BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
+Онлайн концерт группы, состоявшийся 11 февраля 2021 и выпущенный на Blu-Ray диске 26 мая 2021.01. Intro
+02. Warning!
+03. DICE
+04. Screaming(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 02:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8496D052DA780307DAB37ED07C42D9F851F231
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730877   (107817) от 18.06.2024
+
+Dutch Rhythm Combo Ft. Isa GT - Alerta (remixes) (2010) [FLAC|Lossless|tracks] <Disco, Nu-Disco, House, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dutch Rhythm Combo Ft. Isa GT - Alerta (Lipelis and Simple Symmetry remix) (6:30)
+02. Dutch Rhythm Combo Ft. Isa GT - Alerta (Paul Marmota remix) (4:10)
+03. Dutch Rhythm Combo with Jan Willems Ft. Isa GT – Alerta (Turntable Dubbers redub) (6:00)Жанр: Disco, Nu-Disco, House, ElectroПродолжительность: 00:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22B5D4A7A4F335ED0748A7FC572E13053DB4251
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730919   (107818) от 18.06.2024
+
+Tarkan - Kuantum 51 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107818.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Save Me ((Single Edit)) [00:03:04]
-02. Fly, Robin, Fly ((Stereo Single Long Version Edit)) [00:03:51]
-03. Tiger Baby ((Single Radio Edit)) [00:04:19]
-04. San Francisco Hustle ((Single Version)) [00:03:04](   Читать дальше...   )Жанр: Disco, SoulПродолжительность: 01:00:45
+01 - Yo (00:03:45)
+02 - İllallah (00:03:39)
+03 - Olay (00:02:58)
+04 - Şerbetli (00:03:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:784D0E7B7C7E1B14DDDC089301F4132632AFF400
+magnet:?xt=urn:btih:1E5CFC7BDA180CB3500089D86B0A7D02FEFDF905
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727504   (108486) от 02.06.2024
+###  Публикация: 1730859   (107819) от 18.06.2024
 
-Спящая красавица / La belle au bois dormant (1908) WEBRip [H.264/720p]
+VA - Валентинка для тебя (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107819.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Общеизвестная сказка Шарля Перро. На мой взгляд немного двусмысленная. В королевской семье родилась девочка. Как положено принцесса, то есть мажорка. Пришедшие на крестины феи понажелали ей всякого, Добрые феи - добрые пожелания, злая - недобрые. Принцесса выросла как водится красавицей. И вот, как и было предсказано, она укололась веретеном. Как так? Вы веретено (   Читать дальше...   )Производство: Франция / Pathé FrèresЖанр: короткометражный, сказка, немое киноРежиссер: Альбер Капеллани, Люсьен НонгеАктеры: Жюльенна МэтьюПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:14:48
+01. Евгений Коновалов - Я люблю твои глаза (3:46)
+02. Стас Михайлов - Золотое сердце (3:47)
+03. Сергей Дубровин - Сказочная женщина (4:05)
+04. Андрей Бандера - Любимая (3:52)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:48:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC9B64319A65417119B908AF616CAB5F3D0ECB9E
+magnet:?xt=urn:btih:6946339958D820C3F18E07E1C588D821298CFE2F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727426   (108487) от 02.06.2024
+###  Публикация: 1730861   (107820) от 18.06.2024
 
-Первая передача на НТВ. Автомобильная передача (02.06.2024) WEBRip [H.264/720p]
+VA - Весеннеее настроение - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
 
->>Документалистика и Телепередачи
->>За рулем
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107820.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ваши родственники не платят штрафы? Тогда приставы идут к вам! На каком основании сотрудники ФССП посягают на автомобили тех, кто лично ничего не должен?
- Саморез, герметик или старый добрый набор со жгутом — какие из временных средств помогут отремонтировать шину?
- Попало в Сеть: герои и антигерои за рулем на дорогах страны.
- Три друга, не считая байка: улетная поездка, (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:33
+01. Дмитрий Голд - Ты моя вселенная (3:50)
+02. Мила - Ты помни (3:50)
+03. Игорь Ашуров - Без тебя (3:06)
+04. Сергей Одинцов - Будь со мной (3:41)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 00:37:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EBCDF4BCE70249305C153EEE0469C36A1204613
+magnet:?xt=urn:btih:DC8A9E1F0DD951C092D54790C6A2FD5001493343
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727403   (108488) от 02.06.2024
+###  Публикация: 1731000   (107821) от 18.06.2024
 
-MotoGP. Этап 07 из 20. Гран-при Италии. Спринт (01.06.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108488.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 июня 2024, суббота. 16:00 МСК. Этап 7, Тоскана. Гран-при Италии. Спринт (11 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4B29397014E2D9ED6C0EC9B3274FA5D0880626
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727407   (108489) от 02.06.2024
-
-НХЛ. Кубок Стэнли 2024. Восток - Финал. 6-й матч. Нью-Йорк Рейнджерс - Флорида Пантерз (01.06.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108489.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 июня 2024, воскресенье. 03:00 МСК. Финал - Восток. 6-й матч. Стадион: Амерант Банк Арена (Санрайз, США), 19 865 зрителей (102% при вместимости 19 434)
-Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Главный судья: Крис Руни (Бостон, США); Линейный: Девин Берг (Китченер, Канада); Линейный: Райан Дейзи (Мансфилд, США)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7384154598957F1471E654FDD59561168DCDE933
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727410   (108490) от 02.06.2024
-
-VA - DJ Hits 24 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
+VA - DJ Hits Vol. 66 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107821.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Red Nex - Cotton Eye Joe
-02. U 96 - Love Religion
-03. Whigfield - Another Day
-04. Baby D - Let Me Be Your Fantasy(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:17:02
+01. Zucchero - My Love (Album Version)
+02. Fool's Garden - Wild Days (Radio Version)
+03. Deep Blue Something - Breakfast At Tiffany's
+04. Just Friends - Anytime Anyplace(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:16:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFDC0A634ADA709E7614AD235D019484601936DB
+magnet:?xt=urn:btih:4F6978BCF8EF190A9313EE07D992AC905EB8A3FF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727425   (108491) от 02.06.2024
+###  Публикация: 1730986   (107822) от 18.06.2024
 
-Dead Or Alive - The Pete Hammond Hi-NRG Remixes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hi-NRG, Dance, Synth-pop, New Wave, Electronic>
+VA - DJ Hits Vol. 65 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snap! & Einstein - The Power '96
+02. Mr. President - Coco Jamboo
+03. Los Del Rio - Maria, Maria (Pura Carroceria)
+04. Klubbheads - Klubbhopping(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841CD42D58AE8530813EA6107A107AC46845524F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730570   (107823) от 17.06.2024
+
+Loch Vostok - Dark Logic (2003) [FLAC|Lossless|image + .cue] <Extreme Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Admire And Resent
+02. Impressions
+03. Blunt Force Trauma
+04. Falling Star(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3252267E44200160FB9223C14C854AAC275FAFF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730792   (107824) от 17.06.2024
+
+VA - DJ Hits Vol. 57 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G-groove - Everybody
+02. Backstreet Boys - I Wanna Be With You
+03. Heath Hunter & The Pleasure Company - Revolution In Paradise
+04. Noble Savages - Digging in the noise(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F15407128B7E554DE7A9C2A9BB83E41FE1F9B55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730774   (107825) от 17.06.2024
+
+autoKratz - Animal (2009) 15th Anniversary Edition, 2024, Bad Life[FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electroclash>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Keep Walking (2024 Rewerk) [00:04:52]
+02. Stalker (2024 Rewerk) [00:04:48]
+03. Always More (Yuksek Remix) [00:04:33]
+04. Swastika Eyes [00:04:07]Жанр: Synthpop, ElectroclashПродолжительность: 2 CD, 01:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F34435EDFB372B0F03062947E9F095879D31385
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730787   (107826) от 17.06.2024
+
+VA - Nothing But... Pure Dance, Vol. 23 (2024) [MP3|320 Kbps] <Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Angel - Hong Kong Elvis (The Mike Angel Edit) (03:10)
+ 02. Dimitris Karipidis, Wassup Diki - Your Eyes (04:34)
+ 03. Derry Kost - Take Control (02:09)
+ 04. John Bounce - I Feel Love (04:16)(   Читать дальше...   )Жанр: Pop DanceПродолжительность: 01:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25789C1B51E1E96ECCE7979F0E528BED37FEB8F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730753   (107827) от 17.06.2024
+
+Vesperian Sorrow - Awaken the Greylight (2024) [MP3|320 Kbps] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As The Pillars Were Raised (06:26)
+ 02. Antediluvian Proceeding The Unshaping (05:52)
+ 03. An Epistle To The Prime Vivified (05:06)
+ 04. Traverse The Vorthonian Passage (05:14)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF238AB5406E734110343A935E8CDC92E85F3F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730772   (107828) от 17.06.2024
+
+Merging Cluster - Peak of Ephemeral Light (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107828.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You Spin Me Round (Like a Record) (2000 Pete Hammond Hi-NRG Remix) (9:39)
-02. Hit and Run Lover (Pete Hammond Hi-NRG Remix) (8:29)
-03. U Were Meant 4 Me (Pete Hammond Hi-NRG Remix) (8:31)
-04. Lover Come Back to Me (2000 Pete Hammond Hi-NRG Remix) (8:25)(   Читать дальше...   )Жанр: Hi-NRG, Dance, Synth-pop, New Wave, ElectronicПродолжительность: 01:37:17
+1. Dysrationalia (10:02)
+2. Peak of Ephemeral Light (6:08)
+3. Subjective Doubles Syndrome (10:10)
+4. Gift Undeserved (8:37)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:07:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B39C8959387FB1AFB53499889A2D057E9C9CF95D
+magnet:?xt=urn:btih:2D763DA4BC4B77C26F5C596D3393BA4A0F30D63B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727506   (108492) от 02.06.2024
+###  Публикация: 1730755   (107829) от 17.06.2024
 
-Своя игра (02.06.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108492.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться 30 игр, и победитель получит один миллион рублей!
-
-Во второй круг юбилейного турнира вышли 18 участников из 30 — они продолжат борьбу (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130C85DEC4DC0467A5740F698181BC3023FA484F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727431   (108493) от 02.06.2024
-
-V.A. - Bossanova & Jazz: Summer Bossanova & Jazz Vibes 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Rodriguez - Peter Pan's Syndrome (Edit)
-02. Montefiori Cocktail - Sofisticata (Nicola Conte's Soft Samba Mix)
-03. Silvia Donati, Nova 40, Giancarlo Bianchetti, Roberto Rossi - Parece Vortice
-04. Papik, Giuseppe Milici - Passos De Esperança(   Читать дальше...   )Жанр: Bossa Nova, Nu JazzПродолжительность: 01:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B25E4C9106D97B0E73C58A4CE82BD2786C044F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727520   (108494) от 02.06.2024
-
-Сибирская Благозвонница | Исследуйте Писания (2015) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не бойтесь приступать к чтению Священных Писаний, думая о том, что в них содержится много непонятного для вас. Конечно, там встречаются моменты, которые требуют особого исследования. Вот о таких исследованиях и написана эта книга. Она поможет вам лучше понять евангельские события, больше узнать о Тайной Вечере и о предательстве Иуды, а также о том, когда пострадал (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F90D79A7119D7788B126EBFD3396C6C55C045C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727429   (108495) от 02.06.2024
-
-Erasure - Cowboy (1997) Expanded Edition, 2024, BMG Company [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+The Human Element - River (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rain (2024 Remaster) [00:04:11]
-02. Worlds On Fire (2024 Remaster) [00:03:37]
-03. Reach Out (2024 Remaster) [00:03:47]
-04. In My Arms (2024 Remaster) [00:03:36](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:57:11
+01. The Size of an Ocean (6:07)
+02. No Twist, No Turn (5:47)
+03. Passing Phase (4:38)
+04. I Had a Ghost (5:36)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6464DFD562DAA69C421A931220140B78B93D4FF1
+magnet:?xt=urn:btih:6FF3F7687FE420C0227CF9049B387944971AF144
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727516   (108496) от 02.06.2024
+###  Публикация: 1730707   (107830) от 17.06.2024
 
-Сибирская Благозвонница | Молитвослов с молитвами об усопших (2010) [PDF]
+Questing Beast - Birth (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progressive Metal>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107830.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Особенность этого молитвослова в том, что он, помимо обычных правил: утреннего, вечернего и молитв на всякую потребу, содержит молитвы об усопших и чин литии, совершаемый мирянином дома и на кладбище.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
+01. The Comet's Tale (4:03)
+02. At Crater's Edge (4:20)
+03. Sow (0:57)
+04. Growth (5:22)(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 00:43:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:413C42F386B4C07A157EB0E5D5AB04057FA5EF8F
+magnet:?xt=urn:btih:9FF6F63468694963F1FD3C5849266C32E3FFE922
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727416   (108497) от 02.06.2024
+###  Публикация: 1730689   (107831) от 17.06.2024
 
-Преподобный Никодим Святогорец | Невидимая брань (2015) [PDF, FB2, EPUB, MOBI, TXT]
+Birdstone - The Great Anticipation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Разное (категория книг)
->>Религиозная литература
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107831.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга преподобного Никодима Святогорца «Невидимая брань» раскрывает различные этапы и аспекты духовной жизни христианина, показывает нам путь ко спасению во Христе и ту брань с врагами нашего спасения, которую каждому верующему следует вести. В этом издании подробно рассказывается о различных бесовских кознях, способах их распознавания и преодоления их.
-
-Издание (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+01. Eyes on the Ceiling (6:40)
+02. Instant Shutdown (6:13)
+03. Alcyon (6:13)
+04. The Devil (5:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DCD1363255C5B24BBA84FA4AB0D761427A181DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727266   (108498) от 02.06.2024
-
-Своя игра (01.06.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108498.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться 30 игр, и победитель получит один миллион рублей!
-
-Во второй круг юбилейного турнира вышли 18 участников из 30 — они продолжат борьбу (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A292B4B60832E9D836FE0392136D6741DC4AD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727448   (108499) от 02.06.2024
-
-Судьба человека с Борисом Корчевниковым. Судьба Михаила Любимова (31.05.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108499.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Судьба человека" - это откровенное портретное интервью о судьбе главного героя, об интересных и малоизвестных фактах его биографии, о чувствах и эмоциях, которые переживал человек на главных поворотах своей судьбы. Героями программы "Судьба человека" будут не только известные артисты и политики, но и простые люди с непростой судьбой.
-
-В программе (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: телепередача, биография, интервьюУчастники: Михаил ЛюбимовЯзык озвучки: РусскийПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6EF72BC4F3AE4D466D1D71EC9486E0CD8D6CAAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727482   (108500) от 02.06.2024
-
-НашПотребНадзор (02.06.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какая доступная всем россиянам рыба, которой многие пренебрегают, — деликатес, любимый гурманами и шеф-поварами разных стран? Как ее вкусно и быстро готовить? И какой рыбой подменяют культовую корюшку? Маринованный шашлык: в мясе от каких брендов кишат бактерии, а в каких ведерках — просроченный опасный полуфабрикат? Как выбрать керамическую плитку, чтобы она не (   Читать дальше...   )Телекомпания: НТВЖанр: телепередачаЯзык озвучки: РусскийПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBF650E6FA198444B9A59BBBE9C04A861AA6BBAB
+magnet:?xt=urn:btih:5B25BED542DAB2CBA3841F66D0C124D7F5337FE4
 ```
 
 

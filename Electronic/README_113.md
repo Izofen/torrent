@@ -1,3 +1,57 @@
+###  Публикация: 1669904   (172440) от 18.10.2023
+
+VA - 100 Greatest Running Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172440.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fred again.. - Jungle (3:18)
+002. Eliza Rose - B.O.T.A. (Baddest of Them All) (Edit) (3:46)
+003. Tiësto - 1035 (2:52)
+004. Bruno Mars - Runaway Baby (2:27)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 05:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35ACC5128DBBC9F814940C97C95DC6473514738C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669753   (172608) от 17.10.2023
+
+VA - 100 Greatest Workout Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172608.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eliza Rose - B.O.T.A. (Baddest of Them All) (Edit) (3:46)
+002. Tiësto - 1035 (2:52)
+003. Fred again.. - Jungle (3:18)
+004. Dua Lipa - Physical (3:13)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 05:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A42F9BD3F6C26FA456EE85FCCB70A1AF63C789
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669682   (172647) от 17.10.2023
 
 VA - Black Hole House Music 10-23 (2023) [MP3|320 Kbps] <House, Progressive House>
@@ -636,60 +690,6 @@ VA - Anjunadeep The Remixes 2020 (2020) Compilation [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56962364BA1EA86EF9C9CD80CABB28D65D578C35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595865   (174498) от 07.12.2022
-
-VA - Remix Rockets (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chantola, J-Junior -  Don't You Know (Hector Sawiak Remix)  (8:08)
-02.  Thorin -  Ancient Times (Chris M Progressive Mix)  (10:14)
-03.  21Street -  Mind Bender (Phony Orphants Remix)  (7:00)
-04.  Zas, Sanze, Mindgamers -  Soul To Soul (Fab Code Remix)  (7:24)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C1E855224D65601E2AAA84D2143D60B38BBEF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595632   (175051) от 06.12.2022
-
-Any Second - Enemies (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Futurepop>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scalpel [00:04:19]
-02. I Shout [00:04:19]
-03. Dreamer [00:04:28]
-04. Me And My Enemy [00:04:48](   Читать дальше...   )Жанр: Dark Electro, EBM, FuturepopПродолжительность: 01:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9924EF3811F6A2A2B879AD3FB531B5A9E92D184D
 ```
 
 

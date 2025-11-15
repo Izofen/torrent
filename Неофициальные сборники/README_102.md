@@ -1,3 +1,30 @@
+###  Публикация: 1594265   (178644) от 30.11.2022
+
+The Savage Rose - Compilation (2022) [MP3|320 Kbps] <Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Day
+02. Children of Mine
+03. City of Angels
+04. Early Morning Blues(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B2D625D59F616F5193A804056CE8C993DFF38A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666770   (178771) от 05.10.2023
 
 VA - Music News vol.303 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Tech House Electro Music Fest (2020) [MP3|320 Kbps] <EDM, Techno, Tech Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40203EEB3E130AC0E90261570FEE77B3111B2A6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664668   (184569) от 27.09.2023
-
-VA - Music News vol.301 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184569.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ANSE - За Двоих (02:33)
- 002. 84 - Последний Поцелуй (02:26)
- 003. A Boogie Wit Da Hoodie - Her Birthday (Slowed Down) (02:53)
- 004. Alvaro Diaz - PLN (02:45)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1EF8EEF4C0DC54883FF3136906F30DCA4A9380
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1669206   (172789) от 16.10.2023
+
+VA - Electronic compilation part 38 (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Gamid - Staying faithful
+02. Redfeel - Nobody Cares You
+03. DJ Gamid - Maybe
+04. Redfeel - Something(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83A883164B7CF802520C3D2502D5EDE55BC530F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669166   (172791) от 16.10.2023
 
 Elyanna - Compilation (2023) [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - La Ballade Du Coeur (2020) [MP3|320 Kbps] <Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB1D03F11C0F48EA05EDB4246FDEF5C81BEA99BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429834   (175035) от 08.12.2020
-
-VA - 900 Days (2020) [MP3|320 Kbps] <Alternative, Indie, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тематический сборник рок музыки "900 Days" выдержан в едином стиле неприятия и непримирения. Бунтарский дух – это когда душа горит огнём, когда испытываешь жажду быть свободным от условностей, когда есть смелое и бескомпромиссное желание быть тем, кто ты есть.001. Status Quo - The Anniversary Waltz
-002. No Love For The Middle Child - Frozen
-003. The Galileo 7 - Dandy In Aspic
-004. Tyler Bryant - Couldn’t See The Fire(   Читать дальше...   )Жанр: Alternative, Indie, RockПродолжительность: 07:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8DC0A55BDAECBF7614206CDCB75DF1B3B7B095D
 ```
 
 

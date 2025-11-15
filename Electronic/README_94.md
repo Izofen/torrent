@@ -1,3 +1,57 @@
+###  Публикация: 1272778   (141380) от 29.12.2018
+
+VA - Future Sound of Egypt - Best Of (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila with Emma Hewitt - You & I (Club Mix)
+02. Giuseppe Ottaviani - Till The Sunrise (Original Mix)
+03. James Dymond - Stay (Original Mix)
+04. Roger Shah & Aisling Jarvis - Hold Your Head Up High (Aly & Fila Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:436D66DE13CD92E9E2B73ACC919D992047733D37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272916   (141445) от 29.12.2018
+
+VA - Happy New Year Party 2019 (2018) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teknova - Ievan Polkka 2K18 (Melbourne Bounce Mix) 03:22
+02. FLGTT - Por Que No 2K19 (Radio Edit) 03:26
+03. MaxRiven - Moonlight Shadow (Original Mix) 03:37
+04. Turbotronic - Move That Body (Original Mix) 04:03(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63886F6F4CD055C4CFD09A8CA9A4A39C22DA4A51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272779   (141456) от 29.12.2018
 
 VA - FSOE Fables: Best Of (2018) [MP3|320 Kbps] <Trance>
@@ -641,57 +695,6 @@ Moby - Everything Was Beautiful, and Nothing Hurt (Remixes) (2018) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BFAEF1FD4AEAF78267287B4B78CA3B1A342DC84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272491   (142798) от 28.12.2018
-
-Gabe Gurnsey - Physical (2018) [FLAC|Lossless|tracks + .cue] <Disco House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ultra Clear Sound (4:03)
-02. You Can (3:33)
-03. Temazzy (3:40)
-04. Harder Rhythm (5:18)(   Читать дальше...   )Жанр: Disco HouseПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660E0336C05EC70DDC50D723B9292BD20064EAC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739877   (142914) от 29.12.2013
-
-Darude - 5 Альбомов , 1 Компиляция (2000 - 2012) [MP3|192 - 320 кб/с]<Trance , Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trance , Progressive TranceПродолжительность: 03:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B38FE7C2DEB3CB721B8609B8082438221CB248
 ```
 
 

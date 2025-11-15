@@ -1,3 +1,57 @@
+###  Публикация: 1770088   (100591) от 30.12.2024
+
+V.A. - Music For Dreams, Best Of 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troels Hammer - I Done All I Could
+02. The Swan and The Lake - Primavera Gelato
+03. Jacob Gurevitsch - Morning View
+04. Ambala, Troels Hammer, Anders Ponsaing - Quiet Yellow Purple(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:373B47AB8239D470137B9C9A7971D9353CCD372F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770099   (100607) от 30.12.2024
+
+VA - The Best Releases 2024 of Endlessky Audio (By Abstract Moon & André Wildenhues) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.J.G. & M.I.K! - Who You Are (Forceflow Remix) (06:38)
+02. Andy Newtz - Take Me to the Stars (Rick Art Remix) (05:16)
+03. Gayax - Midnight Bird (Original Mix) (06:47)
+04. Iberian - Lose Yourself in the Dream (D.J.G. & M.I.K! Remix) (06:18)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB3719D90615DDE996270DBFC03EF4D5E72907A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769730   (100647) от 29.12.2024
 
 VA - The Best Of Suanda Chillout 2024 (2024) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
@@ -635,60 +689,6 @@ Markus Schulz - Global DJ Broadcast Year in Review Part 2 (2024-12-19) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C4AD6CAD4F5771EC9C6D0E6487AB031A95FEA3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766772   (101221) от 20.12.2024
-
-V.A. - Lounge & Wine, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calmabohain - In My Mind
-02. Lemongrass - Blue Moon (Original Mix)
-03. Jazzamor - Till the End of Time (Original Mix)
-04. C.A.T. - No Way ? (Original Version)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill OutПродолжительность: 02:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A20E0CFFCF8D8C7308132EFA86F46F3A351F3792
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766687   (101222) от 20.12.2024
-
-VA - Armin van Buuren - A State Of Trance 1204 (Top 50 Of 2024) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101222.jpg" />
-</div>
-
-
-###  Подробнее
-
-50. Cosmic Gate & Christian Burns – Brave
-49. Miyuki & Jennifer Rene – Our Song
-48. Trance Wax – Ascend
-47. Matty Ralph – Te Adoro(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC6686D770BE6321D3883590CE492B5AD80F146E
 ```
 
 

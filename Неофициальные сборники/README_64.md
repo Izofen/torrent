@@ -1,3 +1,30 @@
+###  Публикация: 1694009   (121329) от 23.01.2024
+
+VA - Music News vol.333 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121329.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sofia Coll - Here To Stay (02:39)
+ 002. 128 Ударов В Минуту - Если Уходишь (02:57)
+ 003. AARPI - Вернись В Мой Сон (03:37)
+ 004. AARPI - Горизонт (04:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D6B4A848A24BA9A202275314503430448249BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823263   (121438) от 11.10.2025
 
 Павел Кашин - Compilation (1992-2025) [MP3|320 Kbps] <Soft rock, World music>
@@ -668,33 +695,6 @@ VA - Club Beats (2024) [MP3|320 Kbps] <Club, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25E0A39349ED0396BB3C38778AF1BCB4A6136839
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691334   (123199) от 13.01.2024
-
-VA - Mega Dance Hits Collection (1990-2001) [MP3|320 кб/с] <Eurodance, Euro-House, Pop, Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123199.jpg" />
-</div>
-
-
-###  Подробнее
-
-0001. Mr. John - It's Not Too Late (Extended Club Version)
-0002. King Of Paradise - Give Me Your Love (My Desire Mix)
-0003. Space Master - World Of Confusion (Extended Mix)
-0004. DJ Bobo - Respect Yourself (B+B Remix)(   Читать дальше...   )Жанр: Eurodance, euro-house, pop, technoПродолжительность: 465:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14329F610744D7CFA4E296740B526D00046D2B2C
 ```
 
 

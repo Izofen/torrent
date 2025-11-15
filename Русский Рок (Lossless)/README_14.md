@@ -1,3 +1,111 @@
+###  Публикация: 1701012   (116685) от 19.02.2024
+
+Коррозия Металла - 1.966 + Угар в Полярном! (2024) 2 x CD, Compilation, Reissue, Remastered, Meat Stocks Records [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116685.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - 1.966:
+01. Apocalypse Time
+02. Punk Not Dead
+03. Nicht Kapitulieren(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65161D72E7D4644DB1405AC0EECAA40A92B2E71D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696420   (116726) от 19.02.2024
+
+Сектор Газовой Атаки - Рождённый на Земле (2024) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116726.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Изменился мир
+2. Беги без оглядки
+3. Компромисс
+4. Злые дома(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A920AD359DBB73D0730CD933632D6A89C8D6358
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700538   (117019) от 17.02.2024
+
+Гнилой Район - В Деревне У Дедушки (2022) Переиздание Bonus Edition, 2023, RUMEDIA.IO [FLAC|Lossless|WEB-DL|tracks] <Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Забойная Песня [00:03:07]
+02. Никому не отдам [00:03:51]
+03. В деревне у дедушки [00:04:04]
+04. Город [00:03:24](   Читать дальше...   )Жанр: Punk, New WaveПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D93049C4A91648C44BE039629905E8009D81EE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700520   (117022) от 17.02.2024
+
+Гнилой Район - В деревне у дедушки (2023) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Забойная
+02. Никому не отдам
+03. В деревню дедушки
+04. Юра ХойЖанр: RockПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D553AE88915739B9AE8E417EA46BDFABA54A98C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700065   (117407) от 15.02.2024
 
 Мураками - THE BEST XX (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -581,114 +689,6 @@ magnet:?xt=urn:btih:F98818FE63537EDE3B87C87F85496713E6AF24D2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:333513B59735B35ABE9D58489193E077D977F77C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694371   (120924) от 25.01.2024
-
-Banev! - Синдром разбитого сердца (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Со своей любовью [00:04:34]
-02. Сердце вскрылось [00:03:48]
-03. Паралич [00:04:08]
-04. Выживем [00:03:31](   Читать дальше...   )Жанр: Indie, Alternative RockПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405BF10D8C58185638DFAA5DFA5CCEFCF542D7AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694484   (121023) от 25.01.2024
-
-Аквариум - Радио Африка (1983) 2023, 2CD, 40 Anniversary Deluxe Edition [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121023.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Музыка Серебряных Спиц
-02. Капитан Африка
-03. Песни Вычерпывающих Людей(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:565E9DF81579FE0F5A162DC0C0F2DEDA2C705DAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692938   (121823) от 20.01.2024
-
-есть что сказать - Солнце больше не светит (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не доверяй словам [00:02:23]
-02. Ненавидь меня [00:02:59]
-03. Не вернусь [00:03:03]
-04. Вспоминай [00:02:46](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860678B2CE75355F1DCEE93FE6856AF3060364E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693224   (121826) от 20.01.2024
-
-Kruger - Агония (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Мощь, скорость и шквал (00:03:25)
-02 - Здравствуй, Брат (00:04:29)
-03 - Агония (00:06:27)
- 04 - Обряд (00:03:34)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5626E71D61B98D905D640F097587F706891D96B
 ```
 
 

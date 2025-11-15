@@ -1,3 +1,30 @@
+###  Публикация: 1195725   (138786) от 31.12.2017
+
+VA - De Top 100 Aller Tijden 1978 (RadioVeronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138786.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. John Travolta & Olivia Newton John - You're The One That I Want (2:49)
+002. Mighty Sparrow With Byron Lee & The Dragonaires - Only A Fool (2:46)
+003. Boney M - Rivers Of Babylon (4:22)
+004. Scott Fitzgerald & Yvonne Keeley - If I Had Words (3:51)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:16:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D516CEA9BAF3347D90F41457B075ACEDCC615AC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348994   (139703) от 30.12.2019
 
 VA - Popular Winter Dance Pack (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -674,33 +701,6 @@ VA - Happy Dance Hit (2018) [MP3|320 Kbps] <Pop, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44568B17B0B21C5B072C0ADD1A6F4EA77592349C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087306   (144643) от 28.12.2016
-
-VA - Русские свежаки радиостанций. Топ новинок поп музыки. Версия № 4 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144643.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Вячеслав Быков - Дом В Котором Я Тебя Любил 3:24
-002.Константин Легостаев - Религия Любви 3:22
-003.Scarlett - Дистанция 3:23
-004.Макс Барских - Туманы 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858F2525E47518D744AAFFF1E8D39E04C58C46C5
 ```
 
 

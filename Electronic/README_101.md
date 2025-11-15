@@ -1,3 +1,57 @@
+###  Публикация: 1194900   (152377) от 27.12.2017
+
+CoH - CoHgs (2017) Editions Mego [FLAC|Lossless|WEB-DL|tracks] <Abstract, Experimental, Minimal, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exercise in Colour (feat. Ann Demeulemeester) (05:44)
+ 02. Sleepwalker (feat. Anna Yamada) (06:10)
+ 03. Silence Is Golden (feat. Peter 'Sleazy' Christopherson) (05:00)
+ 04. Fffetish (feat. Frankie Gothard) (05:00)(   Читать дальше...   )Жанр: Abstract, Experimental, Minimal, AmbientПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F952CDD64D92E31441DF1E33183B10A6A002BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194978   (152382) от 27.12.2017
+
+VA - The Hues of Infinity (2015) Projekt [FLAC|Lossless|tracks+.cue] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Roach - The Function Inside The Form (Excerpt) (05:46)
+ 02. Steve Roach - Etheric Imprints (Excerpt) (09:44)
+ 03. Erik Wøllo - Pathway (06:31)
+ 04. As Lonely As Dave Bowman - Failure Of The AE-35 Unit Radio Antenna (07:23)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D5FF8061EB4F58E31AF8D0F6FD5FD427545FB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194825   (152396) от 27.12.2017
 
 Manu Zain - Don't Give Yourself Away (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -640,60 +694,6 @@ S36 - Turkish Delight EP (2018) Sumo Smash Record [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D49E734E3CEB215FCB0F1417E5B7FBD3879BD6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270884   (154566) от 21.12.2018
-
-VA - World Club Charts (2018) [MP3|320 Kbps] <House, Tropical, Funky, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiziara - Save Me (Radio Version) 3:17
-02. Ibiza Bitches - Be Happy (#сmondance Radio Remix) 3:17
-03. Higher State Of Trance - Memories (Radio Version) 3:22
-04. Mykel Mars - Give Me The Sunshine (Radio Version) 3:48(   Читать дальше...   )Жанр: House, Tropical, Funky, ClubПродолжительность: 02:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26BA3932D924148C2B61E07A6D34823B8B45AA5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433694   (154578) от 22.12.2020
-
-Nina - Control (2020) EP [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154578.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Where It Ends (feat. LAU) [00:03:29]
-2. Control (feat. LAU) [00:03:37]
-3. Forever (feat. LAU) [00:03:50]
-4. Tainted Butterflies [00:01:36](   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrowaveПродолжительность: 00:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1464A1F602701BB2997CE4D553C1C11B798AA9B
 ```
 
 

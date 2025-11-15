@@ -1,3 +1,30 @@
+###  Публикация: 1088388   (139385) от 31.12.2016
+
+VA - Trance Elegance On This Year 005 (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UDM - Tornado (Original Mix) 6:37
+02. Lucid Blue - Eyes Wide Open (Saad Ayub Remix) 6:40
+03. Adam Lester - That Moment (Original Mix) 8:59
+04. Kukuzenko - Immortal (Original Mix) 6:44(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 02:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D898577BC38E1255383D5FF49D80E02F3A1CDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435983   (139401) от 30.12.2020
 
 VA - No More Games (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -681,33 +708,6 @@ Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5AC96C7F6807377142CE09DA50D686F2808F1DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272800   (140738) от 29.12.2018
-
-VA - Не Зима, Просто Горячие Треки (2018) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140738.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Homie - Пули
-002. HammAli & Navai - Запах Снов (Rakurs & Ramirez Radio Edit)
-003. HammAli & Navai - Начальник Не Хочу Работать
-004. МакSим - Абонент недоступен(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB048368A1880570BD8641407380123D0617C9CC
 ```
 
 

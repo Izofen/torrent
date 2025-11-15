@@ -1,3 +1,57 @@
+###  Публикация: 1727427   (108514) от 02.06.2024
+
+Erasure - Cowboy (1997) Expanded Edition, 2024, BMG [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain (2024 Remaster) (04:11)
+02. Worlds On Fire (2024 Remaster) (03:37)
+03. Reach Out (2024 Remaster) (03:47)
+04. In My Arms (2024 Remaster) (03:36)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F13AD30916FB6C4F1937DAA9B94578B059F755
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727549   (108521) от 02.06.2024
+
+VA - Erotic Chillout & Lounge Perfect Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sura Quintet - Similitudes (4:27)
+02. Jagel - Inspiring Delight (4:27)
+03. Exquisite Frame - Palingenesis (4:27)
+04. Sigrun II - Skipping Rocks (4:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CE35DD14FA08A9FEB240D13A7B4DC7E6E8C54D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727434   (108529) от 02.06.2024
 
 Erasure - From Moscow to Mars (2019) Remixes, 2019, BMG Company [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
@@ -641,60 +695,6 @@ VA - Alternative EDM Party 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60C6786991BE7015B98625778599EB6472D3620B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725464   (108905) от 25.05.2024
-
-VA - Tropical House Anthems (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adriana Johnson - One & One (Original Mix) [02:45]
-02. Gabriel Solume - My Lover (Deep Mix) [02:56]
-03. Cream Bitches - Paranoic (Deep Mix) [03:09]
-04. Dave Jayden - Attention (Original Mix) [02:45](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:26:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9332359806DD37023BED28713DFD65E410D59E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725396   (108921) от 25.05.2024
-
-VA - A-Mase - Vocal House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Mase & Vika Grand - Fever (Extended Mix) [5:16]
-02. A-Mase & Sharliz - Crush (Original Mix) [5:45]
-03. A-Mase & Natune - Sunny (Extended Mix) [5:16]
-04. A-Mase - I Miss You (Extended Mix) [5:15](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A31571FBE40BBCF2A2243DBD3F7255A52E06F86
 ```
 
 
